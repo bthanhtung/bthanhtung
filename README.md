@@ -1,5 +1,5 @@
 ### Hi there 👋
-
+[![bthanhtung](dino.gif)](https://bthanhtung.github.io//?utm_source=github&utm_medium=github_profile)
 <!--
 **bthanhtung/bthanhtung** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
