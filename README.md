@@ -5,7 +5,7 @@ Mohamad Ali
 
 <h1>Hi friend 👋 </h1> 
 <h3>😃 About me</h3>
-<p>Hello! I am Bui Thanh Tung. I'm a student in Software Engineering at Can Tho University. I love coding, reading books, traveling and photographing. Especially, code is my life!</p>
+<p>Hello! I am Bùi Thanh Tùng (You can call me Michael Corleone if you can't say Vietnamese). I'm a student in Software Engineering at Can Tho University. I love coding, reading books, traveling and photographing. Especially, code is my life!</p>
 
 <h3>💻 My skills</h3>
 <p>
