@@ -3,7 +3,7 @@ _**I hated every minute of training, but I said, 'Don't quit. Suffer now and liv
 Mohamad Ali
 
 
-<h1>Hello there 👋 </h1> 
+<h1>Hi friend 👋 </h1> 
 <h3>😃 About me</h3>
 <p>Hello! I am Bui Thanh Tung. I'm a student in Software Engineering at Can Tho University. I love coding, reading books, traveling and photographing. Especially, code is my life!</p>
 
