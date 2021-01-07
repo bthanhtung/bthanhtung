@@ -11,8 +11,8 @@ Mohamad Ali
 <p>
   Web: 
   <ul>
-    <li>Front end: HTML5, CSS3, Scss, Bootstrap, JS (Level Basic)</li>
-    <li>Back end: Java Spring, NodeJS, Express</li>
+    <li>Front end: HTML5, CSS3, SCSS, Bootstrap, JS (Level Basic)</li>
+    <li>Back End: Java Spring, NodeJS, Express</li>
   </ul>
 </p>
 <p>Desktop:
