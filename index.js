@@ -3,7 +3,8 @@ const fs = require("fs");
 
 const getQuote = async () => {
   try {
-    const { data } = await axios.get("https://quotes.rest/qod?language=en");
+//     const { data } = await axios.get("https://quotes.rest/qod?language=en");
+    const { data } = await axios.get("http://quotes.rest/qod.json?category=inspire");
     const quote = data.contents.quotes[0].quote;
     const author = data.contents.quotes[0].author;
 
