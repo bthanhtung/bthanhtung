@@ -1,3 +1,3 @@
-_**The free soul is rare, but you know it when you see it - basically because you feel good, very good, when you are near or with them.**_
+_**With the realization of one's own potential and self-confidence in one's ability, one can build a better world.**_
 
-Charles Bukowski
+Dalai Lama
