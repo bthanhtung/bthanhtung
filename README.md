@@ -1,3 +1,3 @@
-_**With the realization of one's own potential and self-confidence in one's ability, one can build a better world.**_
+_**I know not age, nor weariness nor defeat.**_
 
-Dalai Lama
+Rose Kennedy
