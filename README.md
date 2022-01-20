@@ -1,3 +1,3 @@
-_**I know not age, nor weariness nor defeat.**_
+_**It has long been an axiom of mine that the little things are infinitely the most important.**_
 
-Rose Kennedy
+Arthur Conan Doyle
