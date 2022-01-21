@@ -41,7 +41,7 @@ on:
   workflow_dispatch:
   # Lên lịch chạy hàng ngày vào lúc 00:00 UTC
   schedule:
-  - cron: "0 0 * * *"
+  - cron: "0 0,8,12 * * *"
 
 jobs:
   build:
