@@ -1,3 +1,3 @@
-_**It has long been an axiom of mine that the little things are infinitely the most important.**_
+_**A quarrel between friends, when made up, adds a new tie to friendship.**_
 
-Arthur Conan Doyle
+Francis de Sales
