@@ -1,3 +1,3 @@
-_**A quarrel between friends, when made up, adds a new tie to friendship.**_
+_**It may happen sometimes that a long debate becomes the cause of a longer friendship. Commonly, those who dispute with one another at last agree.**_
 
-Francis de Sales
+Elbert Hubbard
