@@ -1,3 +1,3 @@
-_**Science is organized knowledge. Wisdom is organized life.**_
+_**Wisdom comes alone through suffering.**_
 
-Immanuel Kant
+Aeschylus
