@@ -1,3 +1,3 @@
-_**Wisdom comes alone through suffering.**_
+_**The eye sees only what the mind is prepared to comprehend.**_
 
-Aeschylus
+Henri Bergson
