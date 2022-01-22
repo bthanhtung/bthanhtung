@@ -1,3 +1,3 @@
-_**The eye sees only what the mind is prepared to comprehend.**_
+_**Ever tried. Ever failed. No matter. Try Again. Fail again. Fail better.**_
 
-Henri Bergson
+Samuel Beckett
