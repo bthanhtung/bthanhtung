@@ -1,3 +1,3 @@
-_**Ever tried. Ever failed. No matter. Try Again. Fail again. Fail better.**_
+_**Ideals are an imaginative understanding of that which is desirable in that which is possible.**_
 
-Samuel Beckett
+Walter Lippmann
