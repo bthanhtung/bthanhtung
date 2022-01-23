@@ -1,3 +1,3 @@
-_**This is why I loved technology: if you used it right, it could give you power and privacy.**_
+_**Be glad of life because it gives you the chance to love, to work, to play, and to look up at the stars.**_
 
-Cory Doctorow
+Henry van Dyke Jr.
