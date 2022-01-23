@@ -1,3 +1,3 @@
-_**Ideals are an imaginative understanding of that which is desirable in that which is possible.**_
+_**This is why I loved technology: if you used it right, it could give you power and privacy.**_
 
-Walter Lippmann
+Cory Doctorow
