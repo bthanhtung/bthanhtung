@@ -1,3 +1,3 @@
-_**Life is really simple, but we insist on making it complicated.**_
+_**The best cure for the body is a quiet mind.**_
 
-Confucius
+Napoleon
