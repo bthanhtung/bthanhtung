@@ -1,3 +1,3 @@
-_**The best cure for the body is a quiet mind.**_
+_**Every adversity, every failure, every heartache carries with it the seed of an equal or greater benefit.**_
 
-Napoleon
+Napoleon Hill
