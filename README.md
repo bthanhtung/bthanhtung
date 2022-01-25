@@ -1,3 +1,3 @@
-_**If one advances confidently in the direction of his dream, and endeavors to live the life which he had imagines, he will meet with a success unexpected in common hours.**_
+_**Gratitude makes sense of our past, brings peace for today, and creates a vision for tomorrow.**_
 
-Henry David Thoreau
+Melody Beattie
