@@ -1,3 +1,3 @@
-_**Gratitude makes sense of our past, brings peace for today, and creates a vision for tomorrow.**_
+_**I am not bothered by the fact that I am unknown. I am bothered when I do not know others.**_
 
-Melody Beattie
+Confucius
