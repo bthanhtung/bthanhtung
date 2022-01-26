@@ -1,3 +1,3 @@
-_**I am not bothered by the fact that I am unknown. I am bothered when I do not know others.**_
+_**Decision is a risk rooted in the courage of being free.**_
 
-Confucius
+Paul Tillich
