@@ -1,3 +1,3 @@
-_**The world is round and the place which may seem like the end may also be the beginning.**_
+_**The highest stage in moral culture at which we can arrive is when we recognize that we ought to control our thoughts.**_
 
-Ivy Baker Priest
+Charles Darwin
