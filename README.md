@@ -1,3 +1,3 @@
-_**Decision is a risk rooted in the courage of being free.**_
+_**The world is round and the place which may seem like the end may also be the beginning.**_
 
-Paul Tillich
+Ivy Baker Priest
