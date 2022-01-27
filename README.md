@@ -1,3 +1,3 @@
-_**When you learn, teach. When you get, give.**_
+_**Fears are nothing more than a state of mind.**_
 
-Maya Angelou
+Napoleon Hill
