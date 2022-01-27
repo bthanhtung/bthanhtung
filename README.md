@@ -1,3 +1,3 @@
-_**The highest stage in moral culture at which we can arrive is when we recognize that we ought to control our thoughts.**_
+_**The right way is not always the popular and easy way. Standing for right when it is unpopular is a true test of moral character.**_
 
-Charles Darwin
+Margaret Chase Smith
