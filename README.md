@@ -1,3 +1,3 @@
-_**He that respects himself is safe from others; he wears a coat of mail that none can pierce.**_
+_**The greatest obstacle to discovery is not ignorance - it is the illusion of knowledge.**_
 
-Henry Wadsworth Longfellow
+Daniel J. Boorstin
