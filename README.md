@@ -1,3 +1,3 @@
-_**Fears are nothing more than a state of mind.**_
+_**He that respects himself is safe from others; he wears a coat of mail that none can pierce.**_
 
-Napoleon Hill
+Henry Wadsworth Longfellow
