@@ -1,3 +1,3 @@
-_**The greatest obstacle to discovery is not ignorance - it is the illusion of knowledge.**_
+_**The greatest gift of life is friendship, and I have received it.**_
 
-Daniel J. Boorstin
+Hubert Humphrey
