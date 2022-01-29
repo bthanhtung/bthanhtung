@@ -1,3 +1,3 @@
-_**Inspiration exists, but it has to find us working.**_
+_**A friend to all is a friend to none.**_
 
-Pablo Picasso
+Aristotle
