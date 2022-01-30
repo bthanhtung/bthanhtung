@@ -1,3 +1,3 @@
-_**A friend to all is a friend to none.**_
+_**The person born with a talent they are meant to use will find their greatest happiness in using it.**_
 
-Aristotle
+Johann Wolfgang von Goethe
