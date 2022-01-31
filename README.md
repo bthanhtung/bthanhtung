@@ -1,3 +1,3 @@
-_**The more sand that has escaped from the hourglass of our life, the clearer we should see through it.**_
+_**This is the final test of a gentleman: his respect for those who can be of no possible value to him.**_
 
-Jean-Paul Sartre
+William Lyon Phelps
