@@ -1,3 +1,3 @@
-_**If you change the way you look at things, the things you look at change.**_
+_**The invariable mark of wisdom is to see the miraculous in the common.**_
 
-Wayne Dyer
+Ralph Waldo Emerson
