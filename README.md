@@ -1,3 +1,3 @@
-_**This is the final test of a gentleman: his respect for those who can be of no possible value to him.**_
+_**If you change the way you look at things, the things you look at change.**_
 
-William Lyon Phelps
+Wayne Dyer
