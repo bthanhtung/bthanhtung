@@ -1,3 +1,3 @@
-_**I never considered a difference of opinion in politics, in religion, in philosophy, as cause for withdrawing from a friend.**_
+_**Wisdom is a kind of knowledge. It is knowledge of the nature, career, and consequences of human values.**_
 
-Thomas Jefferson
+Sidney Hook
