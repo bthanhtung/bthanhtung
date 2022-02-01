@@ -1,3 +1,3 @@
-_**The invariable mark of wisdom is to see the miraculous in the common.**_
+_**I never considered a difference of opinion in politics, in religion, in philosophy, as cause for withdrawing from a friend.**_
 
-Ralph Waldo Emerson
+Thomas Jefferson
