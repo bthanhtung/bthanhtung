@@ -1,3 +1,3 @@
-_**He who fears being conquered is sure of defeat.**_
+_**It is not so much our friends' help that helps us, as the confidence of their help.**_
 
-Napoleon
+Epicurus
