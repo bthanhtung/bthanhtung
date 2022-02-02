@@ -1,3 +1,3 @@
-_**We are stuck with technology when what we really want is just stuff that works.**_
+_**Set your goals high, and don't stop till you get there.**_
 
-Douglas Adams
+Bo Jackson
