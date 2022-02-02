@@ -1,3 +1,3 @@
-_**It is not so much our friends' help that helps us, as the confidence of their help.**_
+_**We are stuck with technology when what we really want is just stuff that works.**_
 
-Epicurus
+Douglas Adams
