@@ -1,3 +1,3 @@
-_**True friendship is a plant of slow growth, and must undergo and withstand the shocks of adversity, before it is entitled to the appellation.**_
+_**The truest greatness lies in being kind, the truest wisdom in a happy mind.**_
 
-George Washington
+Ella Wheeler Wilcox
