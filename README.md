@@ -1,3 +1,3 @@
-_**Love all, trust a few, do wrong to none.**_
+_**The highest stage in moral culture at which we can arrive is when we recognize that we ought to control our thoughts.**_
 
-William Shakespeare
+Charles Darwin
