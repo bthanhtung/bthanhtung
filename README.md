@@ -1,3 +1,3 @@
-_**The truest greatness lies in being kind, the truest wisdom in a happy mind.**_
+_**By three methods we may learn wisdom: First, by reflection, which is noblest; Second, by imitation, which is easiest; and third by experience, which is the bitterest.**_
 
-Ella Wheeler Wilcox
+Confucius
