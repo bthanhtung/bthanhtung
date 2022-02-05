@@ -1,3 +1,3 @@
-_**To acquire knowledge, one must study; but to acquire wisdom, one must observe.**_
+_**If you want things to be different, perhaps the answer is to become different yourself.**_
 
-Marilyn vos Savant
+Norman Vincent Peale
