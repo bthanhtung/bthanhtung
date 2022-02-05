@@ -1,3 +1,3 @@
-_**Intuition is the very force or activity of the soul in its experience through whatever has been the experience of the soul itself.**_
+_**To acquire knowledge, one must study; but to acquire wisdom, one must observe.**_
 
-Henry Reed
+Marilyn vos Savant
