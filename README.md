@@ -1,3 +1,3 @@
-_**The highest stage in moral culture at which we can arrive is when we recognize that we ought to control our thoughts.**_
+_**Intuition is the very force or activity of the soul in its experience through whatever has been the experience of the soul itself.**_
 
-Charles Darwin
+Henry Reed
