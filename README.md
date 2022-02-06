@@ -1,3 +1,3 @@
-_**The aim of life is self-development. To realize one's nature perfectly - that is what each of us is here for.**_
+_**Tragedy is a tool for the living to gain wisdom, not a guide by which to live.**_
 
-Oscar Wilde
+Robert F. Kennedy
