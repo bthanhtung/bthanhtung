@@ -1,3 +1,3 @@
-_**Tragedy is a tool for the living to gain wisdom, not a guide by which to live.**_
+_**He that respects himself is safe from others; he wears a coat of mail that none can pierce.**_
 
-Robert F. Kennedy
+Henry Wadsworth Longfellow
