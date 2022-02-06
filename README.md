@@ -1,3 +1,3 @@
-_**If you want things to be different, perhaps the answer is to become different yourself.**_
+_**The aim of life is self-development. To realize one's nature perfectly - that is what each of us is here for.**_
 
-Norman Vincent Peale
+Oscar Wilde
