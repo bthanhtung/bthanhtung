@@ -1,3 +1,3 @@
-_**In the end we retain from our studies only that which we practically apply.**_
+_**The aim of life is self-development. To realize one's nature perfectly - that is what each of us is here for.**_
 
-Johann Wolfgang von Goethe
+Oscar Wilde
