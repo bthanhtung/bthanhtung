@@ -1,3 +1,3 @@
-_**The aim of life is self-development. To realize one's nature perfectly - that is what each of us is here for.**_
+_**You're never a loser until you quit trying.**_
 
-Oscar Wilde
+Mike Ditka
