@@ -1,3 +1,3 @@
-_**He that respects himself is safe from others; he wears a coat of mail that none can pierce.**_
+_**In the end we retain from our studies only that which we practically apply.**_
 
-Henry Wadsworth Longfellow
+Johann Wolfgang von Goethe
