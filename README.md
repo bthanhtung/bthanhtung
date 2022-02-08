@@ -1,3 +1,3 @@
-_**You're never a loser until you quit trying.**_
+_**Technology is a word that describes something that doesn't work yet.**_
 
-Mike Ditka
+Douglas Adams
