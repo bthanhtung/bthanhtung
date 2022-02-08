@@ -1,3 +1,3 @@
-_**If you have made mistakes, there is always another chance for you. You may have a fresh start any moment you choose.**_
+_**I never considered a difference of opinion in politics, in religion, in philosophy, as cause for withdrawing from a friend.**_
 
-Mary Pickford
+Thomas Jefferson
