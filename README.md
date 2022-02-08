@@ -1,3 +1,3 @@
-_**Technology is a word that describes something that doesn't work yet.**_
+_**If you have made mistakes, there is always another chance for you. You may have a fresh start any moment you choose.**_
 
-Douglas Adams
+Mary Pickford
