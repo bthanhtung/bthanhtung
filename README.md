@@ -1,3 +1,3 @@
-_**If we learn to open our hearts, anyone, including the people who drive us crazy, can be our teacher.**_
+_**The trick is in what one emphasizes. We either make ourselves miserable, or we make ourselves happy. The amount of work is the same.**_
 
-Pema Chödrön
+Carlos Castaneda
