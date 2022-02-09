@@ -1,3 +1,3 @@
-_**The trick is in what one emphasizes. We either make ourselves miserable, or we make ourselves happy. The amount of work is the same.**_
+_**If a man does not make new acquaintances as he advances through life, he will soon find himself left alone. A man, sir, should keep his friendship in a constant repair.**_
 
-Carlos Castaneda
+Samuel Johnson
