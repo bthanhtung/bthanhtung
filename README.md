@@ -1,3 +1,3 @@
-_**I never considered a difference of opinion in politics, in religion, in philosophy, as cause for withdrawing from a friend.**_
+_**If we learn to open our hearts, anyone, including the people who drive us crazy, can be our teacher.**_
 
-Thomas Jefferson
+Pema Chödrön
