@@ -1,3 +1,3 @@
-_**Commitment is an act, not a word.**_
+_**No matter how carefully you plan your goals they will never be more that pipe dreams unless you pursue them with gusto.**_
 
-Jean-Paul Sartre
+W. Clement Stone
