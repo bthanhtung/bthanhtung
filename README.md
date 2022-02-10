@@ -1,3 +1,3 @@
-_**No matter how carefully you plan your goals they will never be more that pipe dreams unless you pursue them with gusto.**_
+_**Work out your own salvation. Do not depend on others.**_
 
-W. Clement Stone
+Buddha
