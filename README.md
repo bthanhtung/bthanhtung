@@ -1,3 +1,3 @@
-_**If a man does not make new acquaintances as he advances through life, he will soon find himself left alone. A man, sir, should keep his friendship in a constant repair.**_
+_**Commitment is an act, not a word.**_
 
-Samuel Johnson
+Jean-Paul Sartre
