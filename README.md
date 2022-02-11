@@ -1,3 +1,3 @@
-_**Knowledge rests not upon truth alone, but upon error also.**_
+_**When you learn, teach. When you get, give.**_
 
-Carl Jung
+Maya Angelou
