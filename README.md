@@ -1,3 +1,3 @@
-_**When you learn, teach. When you get, give.**_
+_**These days people seek knowledge, not wisdom. Knowledge is of the past; wisdom is of the future.**_
 
-Maya Angelou
+Vernon Cooper
