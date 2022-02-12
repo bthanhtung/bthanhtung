@@ -1,3 +1,3 @@
-_**Sustaining true friendship is a lot more challenging than we give it credit for.**_
+_**The older I get the more wisdom I find in the ancient rule of taking first things first. A process which often reduces the most complex human problem to a manageable proportion.**_
 
-Mariella Frostrup
+Dwight D. Eisenhower
