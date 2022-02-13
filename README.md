@@ -1,3 +1,3 @@
-_**Minds are like parachutes. They only function when open.**_
+_**Friendship, like the immortality of the soul, is too good to be believed.**_
 
-Thomas Dewar
+Ralph Waldo Emerson
