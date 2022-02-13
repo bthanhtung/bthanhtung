@@ -1,3 +1,3 @@
-_**Knowledge rests not upon truth alone, but upon error also.**_
+_**Time is the most valuable thing a man can spend.**_
 
-Carl Jung
+Theophrastus
