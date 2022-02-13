@@ -1,3 +1,3 @@
-_**Time is the most valuable thing a man can spend.**_
+_**Minds are like parachutes. They only function when open.**_
 
-Theophrastus
+Thomas Dewar
