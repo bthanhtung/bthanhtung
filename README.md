@@ -1,3 +1,3 @@
-_**Friendship, like the immortality of the soul, is too good to be believed.**_
+_**Great minds discuss ideas; average minds discuss events; small minds discuss people.**_
 
-Ralph Waldo Emerson
+Eleanor Roosevelt
