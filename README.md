@@ -1,3 +1,3 @@
-_**Wisdom often times consists of knowing what to do next.**_
+_**If you accept the expectations of others, especially negative ones, then you never will change the outcome.**_
 
-Herbert Hoover
+Michael Jordan
