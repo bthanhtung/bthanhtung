@@ -1,3 +1,3 @@
-_**Great minds discuss ideas; average minds discuss events; small minds discuss people.**_
+_**Wisdom often times consists of knowing what to do next.**_
 
-Eleanor Roosevelt
+Herbert Hoover
