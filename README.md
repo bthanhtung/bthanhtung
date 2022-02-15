@@ -1,3 +1,3 @@
-_**It is impossible for a man to learn what he thinks he already knows.**_
+_**You may say I'm a dreamer, but I'm not the only one, I hope someday you will join us, and the world will live as one.**_
 
-Epictetus
+John Lennon
