@@ -1,3 +1,3 @@
-_**If you accept the expectations of others, especially negative ones, then you never will change the outcome.**_
+_**Autumn is a second spring when every leaf is a flower.**_
 
-Michael Jordan
+Albert Camus
