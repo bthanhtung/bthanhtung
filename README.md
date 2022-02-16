@@ -1,3 +1,3 @@
-_**Three things cannot be long hidden: the sun, the moon, and the truth.**_
+_**Ignorant men raise questions that wise men answered a thousand years ago.**_
 
-Buddha
+Johann Wolfgang von Goethe
