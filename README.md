@@ -1,3 +1,3 @@
-_**Never idealize others. They will never live up to your expectations.**_
+_**Three things cannot be long hidden: the sun, the moon, and the truth.**_
 
-Leo Buscaglia
+Buddha
