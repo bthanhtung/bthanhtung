@@ -1,3 +1,3 @@
-_**Don't believe what your eyes are telling you. All they show is limitation. Look with your understanding, find out what you already know, and you'll see the way to fly.**_
+_**Step with care and great tact and remember that Life's a Great Balancing Act.**_
 
-Richard Bach
+Dr. Seuss
