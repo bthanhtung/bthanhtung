@@ -1,3 +1,3 @@
-_**Ignorant men raise questions that wise men answered a thousand years ago.**_
+_**Don't believe what your eyes are telling you. All they show is limitation. Look with your understanding, find out what you already know, and you'll see the way to fly.**_
 
-Johann Wolfgang von Goethe
+Richard Bach
