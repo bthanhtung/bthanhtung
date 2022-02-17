@@ -1,3 +1,3 @@
-_**Step with care and great tact and remember that Life's a Great Balancing Act.**_
+_**So long as a person is capable of self-renewal they are a living being.**_
 
-Dr. Seuss
+Henri-Frédéric Amiel
