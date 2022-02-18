@@ -1,3 +1,3 @@
-_**O, what a tangled web we weave when first we practice to deceive!**_
+_**All that we see or seem is but a dream within a dream.**_
 
-Walter Scott
+Edgar Allan Poe
