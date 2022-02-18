@@ -1,3 +1,3 @@
-_**All that we see or seem is but a dream within a dream.**_
+_**To be happy is to be able to become aware of oneself without fright.**_
 
-Edgar Allan Poe
+Walter Benjamin
