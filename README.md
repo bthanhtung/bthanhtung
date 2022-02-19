@@ -1,3 +1,3 @@
-_**To be happy is to be able to become aware of oneself without fright.**_
+_**Chaos and Order are not enemies, only opposites.**_
 
-Walter Benjamin
+Richard Garriott
