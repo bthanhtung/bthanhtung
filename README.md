@@ -1,3 +1,3 @@
-_**Chaos and Order are not enemies, only opposites.**_
+_**Blessed is the man who expects nothing, for he shall never be disappointed.**_
 
-Richard Garriott
+Alexander Pope
