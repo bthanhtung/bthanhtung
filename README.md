@@ -1,3 +1,3 @@
-_**Blessed is the man who expects nothing, for he shall never be disappointed.**_
+_**It's so simple to be wise. Just think of something stupid to say and then don't say it.**_
 
-Alexander Pope
+Sam Levenson
