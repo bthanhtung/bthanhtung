@@ -1,3 +1,3 @@
-_**It's so simple to be wise. Just think of something stupid to say and then don't say it.**_
+_**We are stuck with technology when what we really want is just stuff that works.**_
 
-Sam Levenson
+Douglas Adams
