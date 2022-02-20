@@ -1,3 +1,3 @@
-_**We are stuck with technology when what we really want is just stuff that works.**_
+_**The fall of dropping water wears away the Stone.**_
 
-Douglas Adams
+Lucretius
