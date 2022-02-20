@@ -1,3 +1,3 @@
-_**The fall of dropping water wears away the Stone.**_
+_**The amount of happiness that you have depends on the amount of freedom you have in your heart.**_
 
-Lucretius
+Thích Nhất Hạnh
