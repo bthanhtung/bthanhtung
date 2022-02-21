@@ -1,3 +1,3 @@
-_**There surely is in human nature an inherent propensity to extract all the good out of all the evil.**_
+_**It is far better to be alone, than to be in bad company.**_
 
-Benjamin Haydon
+George Washington
