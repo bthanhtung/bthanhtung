@@ -1,3 +1,3 @@
-_**The amount of happiness that you have depends on the amount of freedom you have in your heart.**_
+_**There surely is in human nature an inherent propensity to extract all the good out of all the evil.**_
 
-Thích Nhất Hạnh
+Benjamin Haydon
