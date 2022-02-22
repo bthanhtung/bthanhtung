@@ -1,3 +1,3 @@
-_**Technology is nothing. What's important is that you have a faith in people, that they're basically good and smart, and if you give them tools, they'll do wonderful things with them.**_
+_**And as we let our own light shine, we unconsciously give other people permission to do the same.**_
 
-Steve Jobs
+Nelson Mandela
