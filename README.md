@@ -1,3 +1,3 @@
-_**You will never be happy if you continue to search for what happiness consists of. You will never live if you are looking for the meaning of life.**_
+_**Do not give your attention to what others do or fail to do; give it to what you do or fail to do.**_
 
-Albert Camus
+Dhammapada
