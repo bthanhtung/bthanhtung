@@ -1,3 +1,3 @@
-_**Life is a gift, and it offers us the privilege, opportunity, and responsibility to give something back by becoming more**_
+_**Think for yourselves and let others enjoy the privilege to do so too.**_
 
-Tony Robbins
+Voltaire
