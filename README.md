@@ -1,3 +1,3 @@
-_**If only wed stop trying to be happy wed have a pretty good time.**_
+_**I want my friend to miss me as long as I miss him.**_
 
-Edith Wharton
+Augustine of Hippo
