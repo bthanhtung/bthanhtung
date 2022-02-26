@@ -1,3 +1,3 @@
-_**Friendship always benefits; love sometimes injures.**_
+_**A man who doesn't trust himself can never really trust anyone else.**_
 
-Seneca the Younger
+Jean François Paul de Gondi
