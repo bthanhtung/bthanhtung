@@ -1,3 +1,3 @@
-_**Everything you can imagine is real.**_
+_**Friendship always benefits; love sometimes injures.**_
 
-Pablo Picasso
+Seneca the Younger
