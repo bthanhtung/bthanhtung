@@ -1,3 +1,3 @@
-_**None knows the weight of another's burden.**_
+_**Science is organized knowledge. Wisdom is organized life.**_
 
-George Herbert
+Immanuel Kant
