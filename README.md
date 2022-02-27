@@ -1,3 +1,3 @@
-_**A man who doesn't trust himself can never really trust anyone else.**_
+_**The ultimate promise of technology is to make us master of a world that we command by the push of a button.**_
 
-Jean François Paul de Gondi
+Volker Grassmuck
