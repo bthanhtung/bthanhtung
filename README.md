@@ -1,3 +1,3 @@
-_**Science is organized knowledge. Wisdom is organized life.**_
+_**Accept the challenges so that you can feel the exhilaration of victory.**_
 
-Immanuel Kant
+George S. Patton
