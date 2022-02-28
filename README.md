@@ -1,3 +1,3 @@
-_**Accept the challenges so that you can feel the exhilaration of victory.**_
+_**Happiness does not come from having much, but from being attached to little.**_
 
-George S. Patton
+Cheng Yen
