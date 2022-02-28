@@ -1,3 +1,3 @@
-_**Happiness does not come from having much, but from being attached to little.**_
+_**Habit, if not resisted, soon becomes necessity.**_
 
-Cheng Yen
+Augustine of Hippo
