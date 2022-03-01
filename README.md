@@ -1,3 +1,3 @@
-_**Never interrupt someone doing what you said couldn't be done.**_
+_**The mind unlearns with difficulty what it has long learned.**_
 
-Amelia Earhart
+Seneca the Younger
