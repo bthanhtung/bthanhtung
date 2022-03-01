@@ -1,3 +1,3 @@
-_**Habit, if not resisted, soon becomes necessity.**_
+_**Never interrupt someone doing what you said couldn't be done.**_
 
-Augustine of Hippo
+Amelia Earhart
