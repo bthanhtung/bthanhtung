@@ -1,3 +1,3 @@
-_**The mind unlearns with difficulty what it has long learned.**_
+_**No man was ever wise by chance.**_
 
 Seneca the Younger
