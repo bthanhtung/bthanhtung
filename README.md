@@ -1,3 +1,3 @@
-_**No man was ever wise by chance.**_
+_**Formula for success: under promise and over deliver.**_
 
-Seneca the Younger
+Tom Peters
