@@ -1,3 +1,3 @@
-_**Friendship is the source of the greatest pleasures, and without friends even the most agreeable pursuits become tedious.**_
+_**Well done is better than well said.**_
 
-Thomas Aquinas
+Benjamin Franklin
