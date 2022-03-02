@@ -1,3 +1,3 @@
-_**Formula for success: under promise and over deliver.**_
+_**Friendship is the source of the greatest pleasures, and without friends even the most agreeable pursuits become tedious.**_
 
-Tom Peters
+Thomas Aquinas
