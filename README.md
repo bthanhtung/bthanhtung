@@ -1,3 +1,3 @@
-_**Well done is better than well said.**_
+_**No matter how hard the past, you can always begin again.**_
 
-Benjamin Franklin
+Buddha
