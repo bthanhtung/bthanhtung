@@ -1,3 +1,3 @@
-_**Learn from yesterday, live for today, hope for tomorrow.**_
+_**Never tell people how to do things. Tell them what to do and they will surprise you with their ingenuity.**_
 
-Albert Einstein
+George S. Patton
