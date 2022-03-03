@@ -1,3 +1,3 @@
-_**No matter how hard the past, you can always begin again.**_
+_**Learn from yesterday, live for today, hope for tomorrow.**_
 
-Buddha
+Albert Einstein
