@@ -1,3 +1,3 @@
-_**Every time you smile at someone, it is an action of love, a gift to that person, a beautiful thing.**_
+_**First say to yourself what you would be; and then do what you have to do.**_
 
-Mother Teresa
+Epictetus
