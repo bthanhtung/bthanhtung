@@ -1,3 +1,3 @@
-_**If you live to be a hundred, I want to live to be a hundred minus one day, so I never have to live without you.**_
+_**Every time you smile at someone, it is an action of love, a gift to that person, a beautiful thing.**_
 
-A. A. Milne
+Mother Teresa
