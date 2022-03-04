@@ -1,3 +1,3 @@
-_**Never tell people how to do things. Tell them what to do and they will surprise you with their ingenuity.**_
+_**If you live to be a hundred, I want to live to be a hundred minus one day, so I never have to live without you.**_
 
-George S. Patton
+A. A. Milne
