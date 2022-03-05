@@ -1,3 +1,3 @@
-_**First say to yourself what you would be; and then do what you have to do.**_
+_**Truth is powerful and it prevails.**_
 
-Epictetus
+Sojourner Truth
