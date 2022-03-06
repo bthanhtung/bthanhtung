@@ -1,3 +1,3 @@
-_**Dreams pass into the reality of action. From the actions stems the dream again; and this interdependence produces the highest form of living.**_
+_**Imagination disposes of everything; it creates beauty, justice, and happiness, which are everything in this world.**_
 
-Anaïs Nin
+Blaise Pascal
