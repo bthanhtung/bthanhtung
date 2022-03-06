@@ -1,3 +1,3 @@
-_**The world makes way for the man who knows where he is going.**_
+_**Dreams pass into the reality of action. From the actions stems the dream again; and this interdependence produces the highest form of living.**_
 
-Ralph Waldo Emerson
+Anaïs Nin
