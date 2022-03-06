@@ -1,3 +1,3 @@
-_**Whoever is happy will make others happy, too.**_
+_**The world makes way for the man who knows where he is going.**_
 
-Mark Twain
+Ralph Waldo Emerson
