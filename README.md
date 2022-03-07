@@ -1,3 +1,3 @@
-_**Everyone thinks of changing the world, but no one thinks of changing himself.**_
+_**A poem begins in delight and ends in wisdom.**_
 
-Leo Tolstoy
+Robert Frost
