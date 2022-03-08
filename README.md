@@ -1,3 +1,3 @@
-_**It is better to travel well than to arrive.**_
+_**The three great essentials to achieve anything worthwhile are: Hard work, Stick-to-itiveness, and Common sense.**_
 
-Buddha
+Thomas Edison
