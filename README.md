@@ -1,3 +1,3 @@
-_**A poem begins in delight and ends in wisdom.**_
+_**A long habit of not thinking a thing wrong gives it a superficial appearance of being right.**_
 
-Robert Frost
+Thomas Paine
