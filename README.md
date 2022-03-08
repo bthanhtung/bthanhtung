@@ -1,3 +1,3 @@
-_**A long habit of not thinking a thing wrong gives it a superficial appearance of being right.**_
+_**It is better to travel well than to arrive.**_
 
-Thomas Paine
+Buddha
