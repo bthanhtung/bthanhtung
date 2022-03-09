@@ -1,3 +1,3 @@
-_**The three great essentials to achieve anything worthwhile are: Hard work, Stick-to-itiveness, and Common sense.**_
+_**If A is success in life, then A equals x plus y plus z. Work is x; y is play; and z is keeping your mouth shut.**_
 
-Thomas Edison
+Albert Einstein
