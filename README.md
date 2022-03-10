@@ -1,3 +1,3 @@
-_**It's not what you look at that matters, it's what you see.**_
+_**When your desires are strong enough you will appear to possess superhuman powers to achieve.**_
 
-Henry David Thoreau
+Napoleon Hill
