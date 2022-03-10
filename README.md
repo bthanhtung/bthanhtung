@@ -1,3 +1,3 @@
-_**Constant kindness can accomplish much. As the sun makes ice melt, kindness causes misunderstanding, mistrust, and hostility to evaporate.**_
+_**Nothing great was ever achieved without enthusiasm.**_
 
-Albert Schweitzer
+Ralph Waldo Emerson
