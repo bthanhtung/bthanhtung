@@ -1,3 +1,3 @@
-_**Just because something doesn't do what you planned it to do doesn't mean it's useless.**_
+_**I think somehow, we learn who we really are and then live with that decision.**_
 
-Thomas Edison
+Eleanor Roosevelt
