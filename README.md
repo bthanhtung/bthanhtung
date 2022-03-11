@@ -1,3 +1,3 @@
-_**When your desires are strong enough you will appear to possess superhuman powers to achieve.**_
+_**Decision is a risk rooted in the courage of being free.**_
 
-Napoleon Hill
+Paul Tillich
