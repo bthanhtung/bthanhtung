@@ -1,3 +1,3 @@
-_**Decision is a risk rooted in the courage of being free.**_
+_**Just because something doesn't do what you planned it to do doesn't mean it's useless.**_
 
-Paul Tillich
+Thomas Edison
