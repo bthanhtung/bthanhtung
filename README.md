@@ -1,3 +1,3 @@
-_**I think somehow, we learn who we really are and then live with that decision.**_
+_**Rock n' roll as a genre is different from pop and hip hop: it is about bands, and that for me suggests brotherhood, family, friendship and community.**_
 
-Eleanor Roosevelt
+Steven Van Zandt
