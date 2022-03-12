@@ -1,3 +1,3 @@
-_**Never accept ultimatums, conventional wisdom, or absolutes.**_
+_**Correction does much, but encouragement does more.**_
 
-Christopher Reeve
+Johann Wolfgang von Goethe
