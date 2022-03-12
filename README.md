@@ -1,3 +1,3 @@
-_**Rock n' roll as a genre is different from pop and hip hop: it is about bands, and that for me suggests brotherhood, family, friendship and community.**_
+_**Never accept ultimatums, conventional wisdom, or absolutes.**_
 
-Steven Van Zandt
+Christopher Reeve
