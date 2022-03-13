@@ -1,3 +1,3 @@
-_**Ask yourself the secret of your success. Listen to your answer and practice it.**_
+_**Wisdom has never made a bigot, but learning has.**_
 
-Richard Bach
+Josh Billings
