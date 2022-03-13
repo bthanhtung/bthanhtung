@@ -1,3 +1,3 @@
-_**One machine can do the work of fifty ordinary men. No machine can do the work of one extraordinary man.**_
+_**Ask yourself the secret of your success. Listen to your answer and practice it.**_
 
-Elbert Hubbard
+Richard Bach
