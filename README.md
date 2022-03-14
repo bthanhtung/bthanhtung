@@ -1,3 +1,3 @@
-_**Wisdom has never made a bigot, but learning has.**_
+_**I love you the more in that I believe you had liked me for my own sake and for nothing else.**_
 
-Josh Billings
+John Keats
