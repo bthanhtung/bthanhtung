@@ -1,3 +1,3 @@
-_**I love you the more in that I believe you had liked me for my own sake and for nothing else.**_
+_**The foolish man seeks happiness in the distance, the wise grows it under his feet.**_
 
-John Keats
+James Oppenheim
