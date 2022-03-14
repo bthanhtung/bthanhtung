@@ -1,3 +1,3 @@
-_**The foolish man seeks happiness in the distance, the wise grows it under his feet.**_
+_**Nothing in life is to be feared, it is only to be understood. Now is the time to understand more, so that we may fear less.**_
 
-James Oppenheim
+Marie Curie
