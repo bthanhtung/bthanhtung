@@ -1,3 +1,3 @@
-_**Programs must be written for people to read, and only incidentally for machines to execute.**_
+_**In the end we retain from our studies only that which we practically apply.**_
 
-Hal Abelson
+Johann Wolfgang von Goethe
