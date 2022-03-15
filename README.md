@@ -1,3 +1,3 @@
-_**Nothing in life is to be feared, it is only to be understood. Now is the time to understand more, so that we may fear less.**_
+_**One friend in a lifetime is much; two are many; three are hardly possible. Friendship needs a certain parallelism of life, a community of thought, a rivalry of aim.**_
 
-Marie Curie
+Brooks Adams
