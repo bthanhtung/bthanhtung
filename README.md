@@ -1,3 +1,3 @@
-_**In the end we retain from our studies only that which we practically apply.**_
+_**If you spend too much time thinking about a thing, you'll never get it done.**_
 
-Johann Wolfgang von Goethe
+Bruce Lee
