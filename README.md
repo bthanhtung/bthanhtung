@@ -1,3 +1,3 @@
-_**Whoso loves, believes the impossible.**_
+_**Trust only movement. Life happens at the level of events, not of words. Trust movement.**_
 
-Elizabeth Browning
+Alfred Adler
