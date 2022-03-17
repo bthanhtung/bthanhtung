@@ -1,3 +1,3 @@
-_**Excellence is to do a common thing in an uncommon way.**_
+_**Stay away from what might have been and look at what will be.**_
 
-Booker T. Washington
+Marsha Petrie Sue
