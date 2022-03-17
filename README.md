@@ -1,3 +1,3 @@
-_**Trust only movement. Life happens at the level of events, not of words. Trust movement.**_
+_**Excellence is to do a common thing in an uncommon way.**_
 
-Alfred Adler
+Booker T. Washington
