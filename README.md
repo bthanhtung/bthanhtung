@@ -1,3 +1,3 @@
-_**Stay away from what might have been and look at what will be.**_
+_**I'd rather regret the things I've done than regret the things I haven't done.**_
 
-Marsha Petrie Sue
+Lucille Ball
