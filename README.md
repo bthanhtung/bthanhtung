@@ -1,3 +1,3 @@
-_**I'd rather regret the things I've done than regret the things I haven't done.**_
+_**There are two kinds of failures: those who thought and never did, and those who did and never thought.**_
 
-Lucille Ball
+Laurence J. Peter
