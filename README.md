@@ -1,3 +1,3 @@
-_**If it turns out that there is a God, I don't think that he's evil. But the worst that you can say about him is that basically he's an underachiever.**_
+_**It is important to our friends to believe that we are unreservedly frank with them, and important to friendship that we are not.**_
 
-Woody Allen
+Mignon McLaughlin
