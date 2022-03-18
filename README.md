@@ -1,3 +1,3 @@
-_**There are two kinds of failures: those who thought and never did, and those who did and never thought.**_
+_**If it turns out that there is a God, I don't think that he's evil. But the worst that you can say about him is that basically he's an underachiever.**_
 
-Laurence J. Peter
+Woody Allen
