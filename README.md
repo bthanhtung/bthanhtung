@@ -1,3 +1,3 @@
-_**Always remember that you are absolutely unique. Just like everyone else.**_
+_**If you don't know where you are going, any road will get you there.**_
 
-Margaret Mead
+Lewis Carroll
