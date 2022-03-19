@@ -1,3 +1,3 @@
-_**The weak can never forgive. Forgiveness is the attribute of the strong.**_
+_**Always remember that you are absolutely unique. Just like everyone else.**_
 
-Mahatma Gandhi
+Margaret Mead
