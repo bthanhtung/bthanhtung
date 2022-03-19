@@ -1,3 +1,3 @@
-_**It is important to our friends to believe that we are unreservedly frank with them, and important to friendship that we are not.**_
+_**The weak can never forgive. Forgiveness is the attribute of the strong.**_
 
-Mignon McLaughlin
+Mahatma Gandhi
