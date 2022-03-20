@@ -1,3 +1,3 @@
-_**It is unwise to be too sure of one's own wisdom. It is healthy to be reminded that the strongest might weaken and the wisest might err.**_
+_**Great acts are made up of small deeds.**_
 
-Mahatma Gandhi
+Laozi
