@@ -1,3 +1,3 @@
-_**If you don't know where you are going, any road will get you there.**_
+_**Set your goals high, and don't stop till you get there.**_
 
-Lewis Carroll
+Bo Jackson
