@@ -1,3 +1,3 @@
-_**You win the victory when you yield to friends.**_
+_**Bad things are not the worst things that can happen to us. Nothing is the worst thing that can happen to us!**_
 
-Sophocles
+Richard Bach
