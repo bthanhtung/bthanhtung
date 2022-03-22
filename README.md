@@ -1,3 +1,3 @@
-_**Bad things are not the worst things that can happen to us. Nothing is the worst thing that can happen to us!**_
+_**Don't cry because it's over. Smile because it happened.**_
 
-Richard Bach
+Dr. Seuss
