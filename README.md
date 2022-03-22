@@ -1,3 +1,3 @@
-_**On every thorn, delightful wisdom grows, in every rill a sweet instruction flows.**_
+_**Adversity causes some men to break, others to break records.**_
 
-Edward Young
+William Arthur Ward
