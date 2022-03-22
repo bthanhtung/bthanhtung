@@ -1,3 +1,3 @@
-_**Don't cry because it's over. Smile because it happened.**_
+_**On every thorn, delightful wisdom grows, in every rill a sweet instruction flows.**_
 
-Dr. Seuss
+Edward Young
