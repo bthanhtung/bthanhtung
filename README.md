@@ -1,3 +1,3 @@
-_**Adversity causes some men to break, others to break records.**_
+_**With age comes wisdom and a high sex drive. And the wisdom to enjoy it.**_
 
-William Arthur Ward
+Amber Valletta
