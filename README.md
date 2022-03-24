@@ -1,3 +1,3 @@
-_**A person who never made a mistake never tried anything new.**_
+_**I am like a falling star who has finally found her place next to another in a lovely constellation, where we will sparkle in the heavens forever.**_
 
-Albert Einstein
+Amy Tan
