@@ -1,3 +1,3 @@
-_**I am like a falling star who has finally found her place next to another in a lovely constellation, where we will sparkle in the heavens forever.**_
+_**An ounce of emotion is equal to a ton of facts.**_
 
-Amy Tan
+John Junor
