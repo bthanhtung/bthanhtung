@@ -1,3 +1,3 @@
-_**If you want a thing done well, do it yourself.**_
+_**A person who never made a mistake never tried anything new.**_
 
-Napoleon
+Albert Einstein
