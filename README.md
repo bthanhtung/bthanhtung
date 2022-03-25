@@ -1,3 +1,3 @@
-_**Ethics change with technology.**_
+_**Mediocrity knows nothing higher than itself, but talent instantly recognizes genius.**_
 
-Larry Niven
+Arthur Conan Doyle
