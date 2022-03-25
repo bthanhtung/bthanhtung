@@ -1,3 +1,3 @@
-_**Mediocrity knows nothing higher than itself, but talent instantly recognizes genius.**_
+_**What we think, we become.**_
 
-Arthur Conan Doyle
+Buddha
