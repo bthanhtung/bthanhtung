@@ -1,3 +1,3 @@
-_**An ounce of emotion is equal to a ton of facts.**_
+_**Ethics change with technology.**_
 
-John Junor
+Larry Niven
