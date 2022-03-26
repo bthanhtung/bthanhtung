@@ -1,3 +1,3 @@
-_**All love that has not friendship for its base, is like a mansion built upon the sand.**_
+_**There is only one success: to be able to spend your life in your own way.**_
 
-Ella Wheeler Wilcox
+Christopher Morley
