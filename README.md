@@ -1,3 +1,3 @@
-_**What we think, we become.**_
+_**All love that has not friendship for its base, is like a mansion built upon the sand.**_
 
-Buddha
+Ella Wheeler Wilcox
