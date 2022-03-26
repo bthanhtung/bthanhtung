@@ -1,3 +1,3 @@
-_**There is only one success: to be able to spend your life in your own way.**_
+_**Happiness is when what you think, what you say, and what you do are in harmony.**_
 
-Christopher Morley
+Mahatma Gandhi
