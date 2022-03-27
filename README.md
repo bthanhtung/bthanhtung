@@ -1,3 +1,3 @@
-_**Happiness is when what you think, what you say, and what you do are in harmony.**_
+_**Failure doesn't mean you are a failure it just means you haven't succeeded yet.**_
 
-Mahatma Gandhi
+Robert Schuller
