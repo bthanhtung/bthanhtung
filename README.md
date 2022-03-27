@@ -1,3 +1,3 @@
-_**Failure doesn't mean you are a failure it just means you haven't succeeded yet.**_
+_**Never put off till tomorrow what you can do today.**_
 
-Robert Schuller
+Thomas Jefferson
