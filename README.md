@@ -1,3 +1,3 @@
-_**Never put off till tomorrow what you can do today.**_
+_**You were not born a winner, and you were not born a loser. You are what you make yourself be.**_
 
-Thomas Jefferson
+Lou Holtz
