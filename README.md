@@ -1,3 +1,3 @@
-_**You were not born a winner, and you were not born a loser. You are what you make yourself be.**_
+_**If only wed stop trying to be happy wed have a pretty good time.**_
 
-Lou Holtz
+Edith Wharton
