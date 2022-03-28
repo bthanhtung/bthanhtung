@@ -1,3 +1,3 @@
-_**If only wed stop trying to be happy wed have a pretty good time.**_
+_**Kindness is the language which the deaf can hear and the blind can see.**_
 
-Edith Wharton
+Mark Twain
