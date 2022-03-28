@@ -1,3 +1,3 @@
-_**Kindness is the language which the deaf can hear and the blind can see.**_
+_**Good actions give strength to ourselves and inspire good actions in others.**_
 
-Mark Twain
+Plato
