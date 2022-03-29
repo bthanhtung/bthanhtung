@@ -1,3 +1,3 @@
-_**You cannot be lonely if you like the person you're alone with.**_
+_**There is nothing in a caterpillar that tells you it's going to be a butterfly.**_
 
-Wayne Dyer
+Buckminster Fuller
