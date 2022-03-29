@@ -1,3 +1,3 @@
-_**Good actions give strength to ourselves and inspire good actions in others.**_
+_**You cannot be lonely if you like the person you're alone with.**_
 
-Plato
+Wayne Dyer
