@@ -1,3 +1,3 @@
-_**There is nothing in a caterpillar that tells you it's going to be a butterfly.**_
+_**Wisdom consists of the anticipation of consequences.**_
 
-Buckminster Fuller
+Norman Cousins
