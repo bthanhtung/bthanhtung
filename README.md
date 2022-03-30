@@ -1,3 +1,3 @@
-_**Wisdom consists of the anticipation of consequences.**_
+_**The wisdom of the wise, and the experience of ages, may be preserved by quotation.**_
 
-Norman Cousins
+Isaac D'Israeli
