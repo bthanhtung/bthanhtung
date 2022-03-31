@@ -1,3 +1,3 @@
-_**You really can change the world if you care enough.**_
+_**You only lose what you cling to.**_
 
-Marian Wright Edelman
+Buddha
