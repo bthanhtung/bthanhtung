@@ -1,3 +1,3 @@
-_**You only lose what you cling to.**_
+_**Do something wonderful, people may imitate it.**_
 
-Buddha
+Albert Schweitzer
