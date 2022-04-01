@@ -1,3 +1,3 @@
-_**Do something wonderful, people may imitate it.**_
+_**The first requisite for success is the ability to apply your physical and mental energies to one problem incessantly without growing weary.**_
 
-Albert Schweitzer
+Thomas Edison
