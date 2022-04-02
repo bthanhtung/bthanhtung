@@ -1,3 +1,3 @@
-_**If we could see the miracle of a single flower clearly, our whole life would change.**_
+_**Formula for success: under promise and over deliver.**_
 
-Buddha
+Tom Peters
