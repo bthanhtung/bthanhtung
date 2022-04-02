@@ -1,3 +1,3 @@
-_**Our intention creates our reality.**_
+_**Always be yourself, express yourself, have faith in yourself, do not go out and look for a successful personality and duplicate it.**_
 
-Wayne Dyer
+Bruce Lee
