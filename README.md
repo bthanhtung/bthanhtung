@@ -1,3 +1,3 @@
-_**Always be yourself, express yourself, have faith in yourself, do not go out and look for a successful personality and duplicate it.**_
+_**If we could see the miracle of a single flower clearly, our whole life would change.**_
 
-Bruce Lee
+Buddha
