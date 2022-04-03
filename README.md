@@ -1,3 +1,3 @@
-_**All difficult things have their origin in that which is easy, and great things in that which is small.**_
+_**The final wisdom of life requires not the annulment of incongruity but the achievement of serenity within and above it.**_
 
-Laozi
+Reinhold Niebuhr
