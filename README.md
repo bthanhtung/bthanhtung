@@ -1,3 +1,3 @@
-_**Formula for success: under promise and over deliver.**_
+_**All difficult things have their origin in that which is easy, and great things in that which is small.**_
 
-Tom Peters
+Laozi
