@@ -1,3 +1,3 @@
-_**The final wisdom of life requires not the annulment of incongruity but the achievement of serenity within and above it.**_
+_**Strong beliefs win strong men, and then make them stronger.**_
 
-Reinhold Niebuhr
+Richard Bach
