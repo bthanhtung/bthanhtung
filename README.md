@@ -1,3 +1,3 @@
-_**You need chaos in your soul to give birth to a dancing star.**_
+_**An ounce of emotion is equal to a ton of facts.**_
 
-Friedrich Nietzsche
+John Junor
