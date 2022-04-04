@@ -1,3 +1,3 @@
-_**Strong beliefs win strong men, and then make them stronger.**_
+_**You need chaos in your soul to give birth to a dancing star.**_
 
-Richard Bach
+Friedrich Nietzsche
