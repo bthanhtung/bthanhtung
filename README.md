@@ -1,3 +1,3 @@
-_**If you can't explain it simply, you don't understand it well enough.**_
+_**The beginning of knowledge is the discovery of something we do not understand.**_
 
-Albert Einstein
+Frank Herbert
