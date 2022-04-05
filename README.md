@@ -1,3 +1,3 @@
-_**When a thing is done, it's done. Don't look back. Look forward to your next objective.**_
+_**Avoid having your ego so close to your position that when your position falls, your ego goes with it.**_
 
-George Marshall
+Colin Powell
