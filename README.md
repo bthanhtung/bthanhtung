@@ -1,3 +1,3 @@
-_**The beginning of knowledge is the discovery of something we do not understand.**_
+_**When a thing is done, it's done. Don't look back. Look forward to your next objective.**_
 
-Frank Herbert
+George Marshall
