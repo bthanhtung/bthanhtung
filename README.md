@@ -1,3 +1,3 @@
-_**You only lose what you cling to.**_
+_**Friends show their love in times of trouble, not in happiness.**_
 
-Buddha
+Euripides
