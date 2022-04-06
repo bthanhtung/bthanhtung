@@ -1,3 +1,3 @@
-_**Friends show their love in times of trouble, not in happiness.**_
+_**If you spend too much time thinking about a thing, you'll never get it done.**_
 
-Euripides
+Bruce Lee
