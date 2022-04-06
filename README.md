@@ -1,3 +1,3 @@
-_**Avoid having your ego so close to your position that when your position falls, your ego goes with it.**_
+_**You only lose what you cling to.**_
 
-Colin Powell
+Buddha
