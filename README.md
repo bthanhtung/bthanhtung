@@ -1,3 +1,3 @@
-_**If you spend too much time thinking about a thing, you'll never get it done.**_
+_**If you have one true friend, you have more than your share.**_
 
-Bruce Lee
+Thomas Fuller
