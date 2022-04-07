@@ -1,3 +1,3 @@
-_**The best way to predict your future is to create it.**_
+_**It is the mark of an educated mind to be able to entertain a thought without accepting it.**_
 
-Peter Drucker
+Aristotle
