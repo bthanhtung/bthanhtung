@@ -1,3 +1,3 @@
-_**If you have one true friend, you have more than your share.**_
+_**The best way to predict your future is to create it.**_
 
-Thomas Fuller
+Peter Drucker
