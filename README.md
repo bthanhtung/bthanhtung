@@ -1,3 +1,3 @@
-_**It is the mark of an educated mind to be able to entertain a thought without accepting it.**_
+_**Take rest; a field that has rested gives a bountiful crop.**_
 
-Aristotle
+Ovid
