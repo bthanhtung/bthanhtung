@@ -1,3 +1,3 @@
-_**Take rest; a field that has rested gives a bountiful crop.**_
+_**Mistakes are always forgivable, if one has the courage to admit them.**_
 
-Ovid
+Bruce Lee
