@@ -1,3 +1,3 @@
-_**Mistakes are always forgivable, if one has the courage to admit them.**_
+_**Love doesn't make the world go round; love is what makes the ride worthwhile.**_
 
-Bruce Lee
+Elizabeth Browning
