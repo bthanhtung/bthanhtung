@@ -1,3 +1,3 @@
-_**Sometimes I am happy and sometimes not. I am, after all, a human being, you know. And I am glad that we are sometimes happy and sometimes not. You get your wisdom working by having different emotions.**_
+_**What matters is the value we've created in our lives, the people we've made happy and how much we've grown as people.**_
 
-Yoko Ono
+Daisaku Ikeda
