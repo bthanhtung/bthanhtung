@@ -1,3 +1,3 @@
-_**Love doesn't make the world go round; love is what makes the ride worthwhile.**_
+_**Sometimes I am happy and sometimes not. I am, after all, a human being, you know. And I am glad that we are sometimes happy and sometimes not. You get your wisdom working by having different emotions.**_
 
-Elizabeth Browning
+Yoko Ono
