@@ -1,3 +1,3 @@
-_**Friendship brings in a lot of honesty and trust into any relationship, especially a marriage.**_
+_**Friendship, like love, is destroyed by long absence, though it may be increased by short intermissions.**_
 
-Farhan Akhtar
+Samuel Johnson
