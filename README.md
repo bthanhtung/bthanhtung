@@ -1,3 +1,3 @@
-_**Numberless are the worlds wonders, but none more wonderful than man.**_
+_**Friendship brings in a lot of honesty and trust into any relationship, especially a marriage.**_
 
-Sophocles
+Farhan Akhtar
