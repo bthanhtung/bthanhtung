@@ -1,3 +1,3 @@
-_**Friendship, like love, is destroyed by long absence, though it may be increased by short intermissions.**_
+_**Not every difficult and dangerous thing is suitable for training, but only that which is conducive to success in achieving the object of our effort.**_
 
-Samuel Johnson
+Epictetus
