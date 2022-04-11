@@ -1,3 +1,3 @@
-_**Good thoughts are no better than good dreams, unless they be executed.**_
+_**You can observe a lot just by watching.**_
 
-Ralph Waldo Emerson
+Yogi Berra
