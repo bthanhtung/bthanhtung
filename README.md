@@ -1,3 +1,3 @@
-_**You can observe a lot just by watching.**_
+_**If you wish to be a writer, write.**_
 
-Yogi Berra
+Epictetus
