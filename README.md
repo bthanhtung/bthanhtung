@@ -1,3 +1,3 @@
-_**Can you imagine what I would do if I could do all I can?**_
+_**May our hearts garden of awakening bloom with hundreds of flowers.**_
 
-Sun Tzu
+Thích Nhất Hạnh
