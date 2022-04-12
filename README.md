@@ -1,3 +1,3 @@
-_**If you wish to be a writer, write.**_
+_**A failure is a man who has blundered but is not capable of cashing in on the experience.**_
 
-Epictetus
+Elbert Hubbard
