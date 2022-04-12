@@ -1,3 +1,3 @@
-_**A failure is a man who has blundered but is not capable of cashing in on the experience.**_
+_**Can you imagine what I would do if I could do all I can?**_
 
-Elbert Hubbard
+Sun Tzu
