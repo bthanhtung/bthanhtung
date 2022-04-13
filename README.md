@@ -1,3 +1,3 @@
-_**Lord, make me an instrument of thy peace. Where there is hatred, let me sow love.**_
+_**To make no mistakes is not in the power of man; but from their errors and mistakes the wise and good learn wisdom for the future.**_
 
-Francis of Assisi
+Plutarch
