@@ -1,3 +1,3 @@
-_**The man who trusts men will make fewer mistakes than he who distrusts them.**_
+_**Lord, make me an instrument of thy peace. Where there is hatred, let me sow love.**_
 
-Camillo Benso, Count of Cavour
+Francis of Assisi
