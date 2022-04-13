@@ -1,3 +1,3 @@
-_**May our hearts garden of awakening bloom with hundreds of flowers.**_
+_**The man who trusts men will make fewer mistakes than he who distrusts them.**_
 
-Thích Nhất Hạnh
+Camillo Benso, Count of Cavour
