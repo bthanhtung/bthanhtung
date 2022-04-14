@@ -1,3 +1,3 @@
-_**A true friend is one who overlooks your failures and tolerates your success!**_
+_**Happiness is a perfume you cannot pour on others without getting a few drops on yourself.**_
 
-Doug Larson
+Ralph Waldo Emerson
