@@ -1,3 +1,3 @@
-_**To make no mistakes is not in the power of man; but from their errors and mistakes the wise and good learn wisdom for the future.**_
+_**A true friend is one who overlooks your failures and tolerates your success!**_
 
-Plutarch
+Doug Larson
