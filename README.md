@@ -1,3 +1,3 @@
-_**Happiness is a perfume you cannot pour on others without getting a few drops on yourself.**_
+_**Love is blind; friendship closes its eyes.**_
 
-Ralph Waldo Emerson
+Friedrich Nietzsche
