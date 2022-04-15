@@ -1,3 +1,3 @@
-_**Practice yourself, for heaven's sake in little things, and then proceed to greater.**_
+_**I'd rather regret the things that I have done than the things that I have not done.**_
 
-Epictetus
+Lucille Ball
