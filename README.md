@@ -1,3 +1,3 @@
-_**Love is blind; friendship closes its eyes.**_
+_**People are not lazy. They simply have impotent goals - that is, goals that do not inspire them.**_
 
-Friedrich Nietzsche
+Tony Robbins
