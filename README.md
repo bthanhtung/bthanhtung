@@ -1,3 +1,3 @@
-_**False friendship, like the ivy, decays and ruins the walls it embraces; but true friendship gives new life and animation to the object it supports.**_
+_**We lost because we told ourselves we lost.**_
 
-Richard Burton
+Leo Tolstoy
