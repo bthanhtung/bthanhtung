@@ -1,3 +1,3 @@
-_**I'd rather regret the things that I have done than the things that I have not done.**_
+_**False friendship, like the ivy, decays and ruins the walls it embraces; but true friendship gives new life and animation to the object it supports.**_
 
-Lucille Ball
+Richard Burton
