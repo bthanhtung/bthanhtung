@@ -1,3 +1,3 @@
-_**Men of perverse opinion do not know the excellence of what is in their hands, till someone dash it from them.**_
+_**It is not fair to ask of others what you are unwilling to do yourself.**_
 
-Sophocles
+Eleanor Roosevelt
