@@ -1,3 +1,3 @@
-_**It is not fair to ask of others what you are unwilling to do yourself.**_
+_**A leader is one who knows the way, goes the way, and shows the way.**_
 
-Eleanor Roosevelt
+John C. Maxwell
