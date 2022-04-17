@@ -1,3 +1,3 @@
-_**It is very easy to forgive others their mistakes; it takes more grit to forgive them for having witnessed your own.**_
+_**Men of perverse opinion do not know the excellence of what is in their hands, till someone dash it from them.**_
 
-Jessamyn West
+Sophocles
