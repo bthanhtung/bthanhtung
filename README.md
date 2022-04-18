@@ -1,3 +1,3 @@
-_**Anyone who doesn't take truth seriously in small matters cannot be trusted in large ones either.**_
+_**He that respects himself is safe from others; he wears a coat of mail that none can pierce.**_
 
-Albert Einstein
+Henry Wadsworth Longfellow
