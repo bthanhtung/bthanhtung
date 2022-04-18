@@ -1,3 +1,3 @@
-_**A leader is one who knows the way, goes the way, and shows the way.**_
+_**Anyone who doesn't take truth seriously in small matters cannot be trusted in large ones either.**_
 
-John C. Maxwell
+Albert Einstein
