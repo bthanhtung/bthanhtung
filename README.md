@@ -1,3 +1,3 @@
-_**He that respects himself is safe from others; he wears a coat of mail that none can pierce.**_
+_**Spectacular achievement is always preceded by unspectacular preparation.**_
 
-Henry Wadsworth Longfellow
+Robert Schuller
