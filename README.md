@@ -1,3 +1,3 @@
-_**Cherish your visions and your dreams as they are the children of your soul; the blueprints of your ultimate achievements.**_
+_**Genuine sincerity opens people's hearts, while manipulation causes them to close.**_
 
-Napoleon Hill
+Daisaku Ikeda
