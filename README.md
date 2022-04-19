@@ -1,3 +1,3 @@
-_**Spectacular achievement is always preceded by unspectacular preparation.**_
+_**Cherish your visions and your dreams as they are the children of your soul; the blueprints of your ultimate achievements.**_
 
-Robert Schuller
+Napoleon Hill
