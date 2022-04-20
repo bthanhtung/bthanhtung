@@ -1,3 +1,3 @@
-_**The key to transforming our hearts and minds is to have an understanding of how our thoughts and emotions work.**_
+_**When fate hands us a lemon, let's try to make lemonade.**_
 
-Dalai Lama
+Dale Carnegie
