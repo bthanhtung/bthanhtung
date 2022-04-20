@@ -1,3 +1,3 @@
-_**When fate hands us a lemon, let's try to make lemonade.**_
+_**Technology is a word that describes something that doesn't work yet.**_
 
-Dale Carnegie
+Douglas Adams
