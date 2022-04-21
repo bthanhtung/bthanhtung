@@ -1,3 +1,3 @@
-_**Technology is a word that describes something that doesn't work yet.**_
+_**He who has imagination without learning has wings but no feet.**_
 
-Douglas Adams
+Joseph Joubert
