@@ -1,3 +1,3 @@
-_**He who has imagination without learning has wings but no feet.**_
+_**You won't skid if you stay in a rut.**_
 
-Joseph Joubert
+Kin Hubbard
