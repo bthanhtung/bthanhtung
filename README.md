@@ -1,3 +1,3 @@
-_**You won't skid if you stay in a rut.**_
+_**Always be mindful of the kindness and not the faults of others.**_
 
-Kin Hubbard
+Buddha
