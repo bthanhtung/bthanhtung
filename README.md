@@ -1,3 +1,3 @@
-_**Always be mindful of the kindness and not the faults of others.**_
+_**To be beautiful means to be yourself. You don't need to be accepted by others. You need to accept yourself.**_
 
-Buddha
+Thích Nhất Hạnh
