@@ -1,3 +1,3 @@
-_**You do not become good by trying to be good, but by finding the goodness that is already within you.**_
+_**If your actions inspire others to dream more, learn more, do more and become more, you are a leader.**_
 
-Eckhart Tolle
+John Quincy Adams
