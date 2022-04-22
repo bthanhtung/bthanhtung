@@ -1,3 +1,3 @@
-_**To be beautiful means to be yourself. You don't need to be accepted by others. You need to accept yourself.**_
+_**You do not become good by trying to be good, but by finding the goodness that is already within you.**_
 
-Thích Nhất Hạnh
+Eckhart Tolle
