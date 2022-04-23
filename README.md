@@ -1,3 +1,3 @@
-_**Be yourself; everyone else is already taken.**_
+_**Our most intimate friend is not he to whom we show the worst, but the best of our nature.**_
 
-Oscar Wilde
+Nathaniel Hawthorne
