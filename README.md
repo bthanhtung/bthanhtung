@@ -1,3 +1,3 @@
-_**If your actions inspire others to dream more, learn more, do more and become more, you are a leader.**_
+_**Man is not sum of what he has already, but rather the sum of what he does not yet have, of what he could have.**_
 
-John Quincy Adams
+Jean-Paul Sartre
