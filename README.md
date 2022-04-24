@@ -1,3 +1,3 @@
-_**Just because something doesn't do what you planned it to do doesn't mean it's useless.**_
+_**The way a woman carries herself and the way she dresses ought to promote the following types of words: modesty, discretion, wisdom, beauty, elegance and refinement, but not sensuality, luxury, extravagance.**_
 
-Thomas Edison
+Paul Washer
