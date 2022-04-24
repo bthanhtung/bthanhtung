@@ -1,3 +1,3 @@
-_**If you do what you've always done, you'll get what you've always gotten.**_
+_**Just because something doesn't do what you planned it to do doesn't mean it's useless.**_
 
-Tony Robbins
+Thomas Edison
