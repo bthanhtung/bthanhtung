@@ -1,3 +1,3 @@
-_**Learning without reflection is a waste, reflection without learning is dangerous.**_
+_**Not what we have but what we enjoy constitutes our abundance.**_
 
-Confucius
+Jean Antoine Petit-Senn
