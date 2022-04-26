@@ -1,3 +1,3 @@
-_**He who experiences the unity of life sees his own Self in all beings, and all beings in his own Self, and looks on everything with an impartial eye.**_
+_**Sometimes our fate resembles a fruit tree in winter. Who would think that those branches would turn green again and blossom, but we hope it, we know it.**_
 
-Buddha
+Johann Wolfgang von Goethe
