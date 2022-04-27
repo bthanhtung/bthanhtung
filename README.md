@@ -1,3 +1,3 @@
-_**All wisdom does not reside in Delhi.**_
+_**Never idealize others. They will never live up to your expectations.**_
 
-P. Chidambaram
+Leo Buscaglia
