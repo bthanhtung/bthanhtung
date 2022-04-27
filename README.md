@@ -1,3 +1,3 @@
-_**Never idealize others. They will never live up to your expectations.**_
+_**The bird of paradise alights only upon the hand that does not grasp.**_
 
-Leo Buscaglia
+John Berry
