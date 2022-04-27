@@ -1,3 +1,3 @@
-_**Not what we have but what we enjoy constitutes our abundance.**_
+_**All wisdom does not reside in Delhi.**_
 
-Jean Antoine Petit-Senn
+P. Chidambaram
