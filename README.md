@@ -1,3 +1,3 @@
-_**The bird of paradise alights only upon the hand that does not grasp.**_
+_**Be miserable. Or motivate yourself. Whatever has to be done, it's always your choice.**_
 
-John Berry
+Wayne Dyer
