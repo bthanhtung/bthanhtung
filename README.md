@@ -1,3 +1,3 @@
-_**Waste no more time arguing about what a good man should be. Be one.**_
+_**Gratitude is not only the greatest of virtues, but the parent of all the others.**_
 
-Marcus Aurelius
+Cicero
