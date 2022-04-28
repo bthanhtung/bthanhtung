@@ -1,3 +1,3 @@
-_**Be miserable. Or motivate yourself. Whatever has to be done, it's always your choice.**_
+_**Waste no more time arguing about what a good man should be. Be one.**_
 
-Wayne Dyer
+Marcus Aurelius
