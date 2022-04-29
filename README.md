@@ -1,3 +1,3 @@
-_**Everything that exists is in a manner the seed of that which will be.**_
+_**Friendship always benefits; love sometimes injures.**_
 
-Marcus Aurelius
+Seneca the Younger
