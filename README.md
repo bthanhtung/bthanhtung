@@ -1,3 +1,3 @@
-_**Gratitude is not only the greatest of virtues, but the parent of all the others.**_
+_**Very little is needed to make a happy life; it is all within yourself, in your way of thinking.**_
 
-Cicero
+Marcus Aurelius
