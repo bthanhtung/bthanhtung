@@ -1,3 +1,3 @@
-_**Wise kings generally have wise counselors; and he must be a wise man himself who is capable of distinguishing one.**_
+_**Each friend represents a world in us, a world not born until they arrive, and it is only by this meeting that a new world is born.**_
 
-Diogenes
+Anaïs Nin
