@@ -1,3 +1,3 @@
-_**Each friend represents a world in us, a world not born until they arrive, and it is only by this meeting that a new world is born.**_
+_**Be not afraid of greatness: some are born great, some achieve greatness, and some have greatness thrust upon them.**_
 
-Anaïs Nin
+William Shakespeare
