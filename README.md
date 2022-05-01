@@ -1,3 +1,3 @@
-_**Everything that exists is in a manner the seed of that which will be.**_
+_**Everything we hear is an opinion, not a fact. Everything we see is a perspective, not the truth.**_
 
 Marcus Aurelius
