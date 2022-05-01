@@ -1,3 +1,3 @@
-_**Be not afraid of greatness: some are born great, some achieve greatness, and some have greatness thrust upon them.**_
+_**Everything that exists is in a manner the seed of that which will be.**_
 
-William Shakespeare
+Marcus Aurelius
