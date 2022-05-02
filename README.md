@@ -1,3 +1,3 @@
-_**To exist is to change, to change is to mature, to mature is to go on creating oneself endlessly.**_
+_**We have committed the Golden Rule to memory; let us now commit it to life.**_
 
-Henri Bergson
+Edwin Markham
