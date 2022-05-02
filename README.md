@@ -1,3 +1,3 @@
-_**Life is divided into the horrible and the miserable.**_
+_**To exist is to change, to change is to mature, to mature is to go on creating oneself endlessly.**_
 
-Woody Allen
+Henri Bergson
