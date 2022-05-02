@@ -1,3 +1,3 @@
-_**We have committed the Golden Rule to memory; let us now commit it to life.**_
+_**We lost because we told ourselves we lost.**_
 
-Edwin Markham
+Leo Tolstoy
