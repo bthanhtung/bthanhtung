@@ -1,3 +1,3 @@
-_**Being entirely honest with oneself is a good exercise.**_
+_**To conquer fear is the beginning of wisdom.**_
 
-Sigmund Freud
+Bertrand Russell
