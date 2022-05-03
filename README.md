@@ -1,3 +1,3 @@
-_**We lost because we told ourselves we lost.**_
+_**If you do not change direction, you may end up where you are heading.**_
 
-Leo Tolstoy
+Laozi
