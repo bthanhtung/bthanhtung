@@ -1,3 +1,3 @@
-_**If you're trying to achieve, there will be roadblocks. I've had them; everybody has had them. But obstacles don't have to stop you. If you run into a wall, don't turn around and give up. Figure out how to climb it, go through it, or work around it.**_
+_**I'm a great believer in luck and I find the harder I work, the more I have of it.**_
 
-Michael Jordan
+Thomas Jefferson
