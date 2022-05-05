@@ -1,3 +1,3 @@
-_**Tell me and I forget. Teach me and I remember. Involve me and I learn.**_
+_**The most difficult thing is the decision to act, the rest is merely tenacity. The fears are paper tigers. You can do anything you decide to do. You can act to change and control your life; and the procedure, the process is its own reward.**_
 
-Benjamin Franklin
+Amelia Earhart
