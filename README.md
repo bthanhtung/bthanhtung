@@ -1,3 +1,3 @@
-_**If we learn to open our hearts, anyone, including the people who drive us crazy, can be our teacher.**_
+_**Tell me and I forget. Teach me and I remember. Involve me and I learn.**_
 
-Pema Chödrön
+Benjamin Franklin
