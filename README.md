@@ -1,3 +1,3 @@
-_**No alibi will save you from accepting the responsibility.**_
+_**I have done my best: that is about all the philosophy of living one needs.**_
 
-Napoleon Hill
+Lin Yutang
