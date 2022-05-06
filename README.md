@@ -1,3 +1,3 @@
-_**A garden is always a series of losses set against a few triumphs, like life itself.**_
+_**The greatest way to live with honor in this world is to be what we pretend to be.**_
 
-May Sarton
+Socrates
