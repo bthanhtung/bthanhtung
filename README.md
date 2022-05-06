@@ -1,3 +1,3 @@
-_**I have done my best: that is about all the philosophy of living one needs.**_
+_**A garden is always a series of losses set against a few triumphs, like life itself.**_
 
-Lin Yutang
+May Sarton
