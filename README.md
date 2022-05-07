@@ -1,3 +1,3 @@
-_**The greatest way to live with honor in this world is to be what we pretend to be.**_
+_**Change will not come if we wait for some other person or some other time. We are the ones we've been waiting for. We are the change that we seek.**_
 
-Socrates
+Barack Obama
