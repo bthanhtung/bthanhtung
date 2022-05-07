@@ -1,3 +1,3 @@
-_**Those who are blessed with the most talent don't necessarily outperform everyone else. It's the people with follow-through who excel.**_
+_**I'd rather regret the things I've done than regret the things I haven't done.**_
 
-Mary Kay Ash
+Lucille Ball
