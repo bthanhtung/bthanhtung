@@ -1,3 +1,3 @@
-_**Change will not come if we wait for some other person or some other time. We are the ones we've been waiting for. We are the change that we seek.**_
+_**Those who are blessed with the most talent don't necessarily outperform everyone else. It's the people with follow-through who excel.**_
 
-Barack Obama
+Mary Kay Ash
