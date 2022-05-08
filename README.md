@@ -1,3 +1,3 @@
-_**Never mistake activity for achievement.**_
+_**The biggest room in the world is room for improvement.**_
 
-John Wooden
+Helmut Schmidt
