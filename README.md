@@ -1,3 +1,3 @@
-_**Rare as is true love, true friendship is rarer.**_
+_**Do all things with love.**_
 
-Jean de La Fontaine
+Og Mandino
