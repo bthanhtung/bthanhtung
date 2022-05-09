@@ -1,3 +1,3 @@
-_**The biggest room in the world is room for improvement.**_
+_**Rare as is true love, true friendship is rarer.**_
 
-Helmut Schmidt
+Jean de La Fontaine
