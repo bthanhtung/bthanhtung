@@ -1,3 +1,3 @@
-_**Do all things with love.**_
+_**Learn from yesterday, live for today, hope for tomorrow.**_
 
-Og Mandino
+Albert Einstein
