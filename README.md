@@ -1,3 +1,3 @@
-_**Learn from yesterday, live for today, hope for tomorrow.**_
+_**The greatest way to live with honor in this world is to be what we pretend to be.**_
 
-Albert Einstein
+Socrates
