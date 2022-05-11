@@ -1,3 +1,3 @@
-_**He that respects himself is safe from others; he wears a coat of mail that none can pierce.**_
+_**We must overcome the notion that we must be regular. It robs you of the chance to be extraordinary and leads you to the mediocre.**_
 
-Henry Wadsworth Longfellow
+Uta Hagen
