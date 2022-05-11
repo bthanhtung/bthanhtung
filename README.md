@@ -1,3 +1,3 @@
-_**Life is what happens while you are making other plans.**_
+_**He that respects himself is safe from others; he wears a coat of mail that none can pierce.**_
 
-John Lennon
+Henry Wadsworth Longfellow
