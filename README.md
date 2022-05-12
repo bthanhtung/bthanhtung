@@ -1,3 +1,3 @@
-_**Silence is the sleep that nourishes wisdom.**_
+_**You are the only person on earth who can use your ability.**_
 
-Francis Bacon
+Zig Ziglar
