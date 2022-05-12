@@ -1,3 +1,3 @@
-_**We must overcome the notion that we must be regular. It robs you of the chance to be extraordinary and leads you to the mediocre.**_
+_**Every man is a damn fool for at least five minutes every day; wisdom consists in not exceeding the limit.**_
 
-Uta Hagen
+Elbert Hubbard
