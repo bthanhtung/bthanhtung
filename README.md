@@ -1,3 +1,3 @@
-_**You are the only person on earth who can use your ability.**_
+_**True friendship is like sound health; the value of it is seldom known until it is lost.**_
 
-Zig Ziglar
+Charles Caleb Colton
