@@ -1,3 +1,3 @@
-_**There's power in looking silly and not caring that you do.**_
+_**The only limit to your impact is your imagination and commitment.**_
 
-Amy Poehler
+Tony Robbins
