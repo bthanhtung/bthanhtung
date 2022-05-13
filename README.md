@@ -1,3 +1,3 @@
-_**True friendship is like sound health; the value of it is seldom known until it is lost.**_
+_**There's power in looking silly and not caring that you do.**_
 
-Charles Caleb Colton
+Amy Poehler
