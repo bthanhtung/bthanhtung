@@ -1,3 +1,3 @@
-_**I can't imagine a person becoming a success who doesn't give this game of life everything he's got.**_
+_**Believe deep down in your heart that you're destined to do great things.**_
 
-Walter Cronkite
+Joe Paterno
