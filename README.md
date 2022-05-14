@@ -1,3 +1,3 @@
-_**The only limit to your impact is your imagination and commitment.**_
+_**I can't imagine a person becoming a success who doesn't give this game of life everything he's got.**_
 
-Tony Robbins
+Walter Cronkite
