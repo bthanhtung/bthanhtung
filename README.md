@@ -1,3 +1,3 @@
-_**Believe deep down in your heart that you're destined to do great things.**_
+_**One secret of success in life is for a man to be ready for his opportunity when it comes.**_
 
-Joe Paterno
+Benjamin Disraeli
