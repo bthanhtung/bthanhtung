@@ -1,3 +1,3 @@
-_**One secret of success in life is for a man to be ready for his opportunity when it comes.**_
+_**All know the way; few actually walk it.**_
 
-Benjamin Disraeli
+Bodhidharma
