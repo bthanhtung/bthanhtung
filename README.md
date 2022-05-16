@@ -1,3 +1,3 @@
-_**I always wanted to be somebody, but I should have been more specific.**_
+_**We cannot solve our problems with the same thinking we used when we created them.**_
 
-Lily Tomlin
+Albert Einstein
