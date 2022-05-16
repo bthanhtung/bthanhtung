@@ -1,3 +1,3 @@
-_**Miracles come in moments. Be ready and willing.**_
+_**I always wanted to be somebody, but I should have been more specific.**_
 
-Wayne Dyer
+Lily Tomlin
