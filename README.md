@@ -1,3 +1,3 @@
-_**The place to improve the world is first in one's own heart and head and hands.**_
+_**Always tell the truth. That way, you don't have to remember what you said.**_
 
-Robert M. Pirsig
+Mark Twain
