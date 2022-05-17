@@ -1,3 +1,3 @@
-_**There surely is in human nature an inherent propensity to extract all the good out of all the evil.**_
+_**The place to improve the world is first in one's own heart and head and hands.**_
 
-Benjamin Haydon
+Robert M. Pirsig
