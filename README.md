@@ -1,3 +1,3 @@
-_**Follow your instincts. That is where true wisdom manifests itself.**_
+_**I'm not in this world to live up to your expectations and you're not in this world to live up to mine.**_
 
-Oprah Winfrey
+Bruce Lee
