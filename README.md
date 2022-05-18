@@ -1,3 +1,3 @@
-_**I'm not in this world to live up to your expectations and you're not in this world to live up to mine.**_
+_**Where is the Life we have lost in living? Where is the wisdom we have lost in knowledge? Where is the knowledge we have lost in information?**_
 
-Bruce Lee
+George Eliot
