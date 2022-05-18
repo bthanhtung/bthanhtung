@@ -1,3 +1,3 @@
-_**Always tell the truth. That way, you don't have to remember what you said.**_
+_**Follow your instincts. That is where true wisdom manifests itself.**_
 
-Mark Twain
+Oprah Winfrey
