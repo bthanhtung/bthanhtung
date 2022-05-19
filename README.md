@@ -1,3 +1,3 @@
-_**Living at risk is jumping off the cliff and building your wings on the way down.**_
+_**The greatest obstacle to discovery is not ignorance - it is the illusion of knowledge.**_
 
-Ray Bradbury
+Daniel J. Boorstin
