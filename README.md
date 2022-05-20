@@ -1,3 +1,3 @@
-_**The greatest obstacle to discovery is not ignorance - it is the illusion of knowledge.**_
+_**I will prepare and someday my chance will come.**_
 
-Daniel J. Boorstin
+Abraham Lincoln
