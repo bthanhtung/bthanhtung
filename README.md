@@ -1,3 +1,3 @@
-_**An ant on the move does more than a dozing ox**_
+_**I will give you a definition of a proud man: he is a man who has neither vanity nor wisdom one filled with hatreds cannot be vain, neither can he be wise.**_
 
-Laozi
+John Keats
