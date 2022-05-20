@@ -1,3 +1,3 @@
-_**I will prepare and someday my chance will come.**_
+_**An ant on the move does more than a dozing ox**_
 
-Abraham Lincoln
+Laozi
