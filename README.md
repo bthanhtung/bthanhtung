@@ -1,3 +1,3 @@
-_**Mistakes are always forgivable, if one has the courage to admit them.**_
+_**Forgiveness is that subtle thread that binds both love and friendship. Without forgiveness, you may not even have a child one day.**_
 
-Bruce Lee
+George Foreman
