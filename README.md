@@ -1,3 +1,3 @@
-_**I will give you a definition of a proud man: he is a man who has neither vanity nor wisdom one filled with hatreds cannot be vain, neither can he be wise.**_
+_**Mistakes are always forgivable, if one has the courage to admit them.**_
 
-John Keats
+Bruce Lee
