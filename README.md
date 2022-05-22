@@ -1,3 +1,3 @@
-_**There is no way to prosperity, prosperity is the way.**_
+_**The winner ain't the one with the fastest car it's the one who refuses to lose.**_
 
-Wayne Dyer
+Dale Earnhardt
