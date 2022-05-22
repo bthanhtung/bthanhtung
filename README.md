@@ -1,3 +1,3 @@
-_**The winner ain't the one with the fastest car it's the one who refuses to lose.**_
+_**True happiness arises, in the first place, from the enjoyment of oneself, and in the next, from the friendship and conversation of a few select companions.**_
 
-Dale Earnhardt
+Joseph Addison
