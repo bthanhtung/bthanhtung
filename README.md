@@ -1,3 +1,3 @@
-_**Good judgment comes from experience, and a lot of that comes from bad judgment.**_
+_**There is no way to prosperity, prosperity is the way.**_
 
-Will Rogers
+Wayne Dyer
