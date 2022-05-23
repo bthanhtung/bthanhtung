@@ -1,3 +1,3 @@
-_**A man must be big enough to admit his mistakes, smart enough to profit from them, and strong enough to correct them.**_
+_**We know what we are but know not what we may be.**_
 
-John C. Maxwell
+William Shakespeare
