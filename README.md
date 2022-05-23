@@ -1,3 +1,3 @@
-_**True happiness arises, in the first place, from the enjoyment of oneself, and in the next, from the friendship and conversation of a few select companions.**_
+_**I will not be concerned at other men's not knowing me; I will be concerned at my own want of ability.**_
 
-Joseph Addison
+Confucius
