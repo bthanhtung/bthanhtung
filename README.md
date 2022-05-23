@@ -1,3 +1,3 @@
-_**I will not be concerned at other men's not knowing me; I will be concerned at my own want of ability.**_
+_**A man must be big enough to admit his mistakes, smart enough to profit from them, and strong enough to correct them.**_
 
-Confucius
+John C. Maxwell
