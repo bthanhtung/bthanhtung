@@ -1,3 +1,3 @@
-_**The aim of life is self-development. To realize one's nature perfectly - that is what each of us is here for.**_
+_**Imagination is the living power and prime agent of all human perception.**_
 
-Oscar Wilde
+Samuel Taylor Coleridge
