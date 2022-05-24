@@ -1,3 +1,3 @@
-_**Learning is finding out what you already know.**_
+_**The aim of life is self-development. To realize one's nature perfectly - that is what each of us is here for.**_
 
-Richard Bach
+Oscar Wilde
