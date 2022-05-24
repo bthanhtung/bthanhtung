@@ -1,3 +1,3 @@
-_**We know what we are but know not what we may be.**_
+_**Learning is finding out what you already know.**_
 
-William Shakespeare
+Richard Bach
