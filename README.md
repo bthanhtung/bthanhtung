@@ -1,3 +1,3 @@
-_**Imagination is the living power and prime agent of all human perception.**_
+_**I think that we have a great opportunity to impart our wisdom and our knowledge and our experience to this younger generation. It may be different times, but experience transcends time, and wisdom transcends time.**_
 
-Samuel Taylor Coleridge
+Victoria Osteen
