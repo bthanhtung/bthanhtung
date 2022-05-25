@@ -1,3 +1,3 @@
-_**Imagination rules the world.**_
+_**We aim above the mark to hit the mark.**_
 
-Napoleon
+Ralph Waldo Emerson
