@@ -1,3 +1,3 @@
-_**We aim above the mark to hit the mark.**_
+_**A good decision is based on knowledge and not on numbers.**_
 
-Ralph Waldo Emerson
+Plato
