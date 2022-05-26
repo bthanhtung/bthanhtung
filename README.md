@@ -1,3 +1,3 @@
-_**A good decision is based on knowledge and not on numbers.**_
+_**I have an everyday religion that works for me. Love yourself first, and everything else falls into line.**_
 
-Plato
+Lucille Ball
