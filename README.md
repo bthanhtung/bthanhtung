@@ -1,3 +1,3 @@
-_**I have an everyday religion that works for me. Love yourself first, and everything else falls into line.**_
+_**Mind is everything: muscle, pieces of rubber. All that I am, I am because of my mind.**_
 
-Lucille Ball
+Paavo Nurmi
