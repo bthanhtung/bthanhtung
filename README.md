@@ -1,3 +1,3 @@
-_**Be true to yourself, help others, make each day your masterpiece, make friendship a fine art, drink deeply from good books - especially the Bible, build a shelter against a rainy day, give thanks for your blessings and pray for guidance every day.**_
+_**All great men are gifted with intuition. They know without reasoning or analysis, what they need to know.**_
 
-John Wooden
+Alexis Carrel
