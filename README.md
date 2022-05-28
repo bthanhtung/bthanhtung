@@ -1,3 +1,3 @@
-_**Courage is not the absence of fear, but simply moving on with dignity despite that fear.**_
+_**You only lose what you cling to.**_
 
-Pat Riley
+Buddha
