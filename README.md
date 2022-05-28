@@ -1,3 +1,3 @@
-_**You only lose what you cling to.**_
+_**All I required to be happy was friendship and people I could admire.**_
 
-Buddha
+Christian Dior
