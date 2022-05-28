@@ -1,3 +1,3 @@
-_**All I required to be happy was friendship and people I could admire.**_
+_**I think and that is all that I am.**_
 
-Christian Dior
+Wayne Dyer
