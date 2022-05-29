@@ -1,3 +1,3 @@
-_**I think and that is all that I am.**_
+_**The heart has eyes which the brain knows nothing of.**_
 
-Wayne Dyer
+Charles Henry Parkhurst
