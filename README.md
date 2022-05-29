@@ -1,3 +1,3 @@
-_**The heart has eyes which the brain knows nothing of.**_
+_**Take things as they are. Punch when you have to punch. Kick when you have to kick.**_
 
-Charles Henry Parkhurst
+Bruce Lee
