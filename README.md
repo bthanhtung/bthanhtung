@@ -1,3 +1,3 @@
-_**Love is never lost. If not reciprocated, it will flow back and soften and purify the heart.**_
+_**Your friends will know you better in the first minute you meet than your acquaintances will know you in a thousand years.**_
 
-Washington Irving
+Richard Bach
