@@ -1,3 +1,3 @@
-_**Don't turn away from possible futures before you're certain you don't have anything to learn from them.**_
+_**Do not mind anything that anyone tells you about anyone else. Judge everyone and everything for yourself.**_
 
-Richard Bach
+Henry James
