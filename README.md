@@ -1,3 +1,3 @@
-_**I think that novels that leave out technology misrepresent life as badly as Victorians misrepresented life by leaving out sex.**_
+_**You will never be happy if you continue to search for what happiness consists of. You will never live if you are looking for the meaning of life.**_
 
-Kurt Vonnegut
+Albert Camus
