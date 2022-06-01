@@ -1,3 +1,3 @@
-_**You will never be happy if you continue to search for what happiness consists of. You will never live if you are looking for the meaning of life.**_
+_**The things that one most wants to do are the things that are probably most worth doing.**_
 
-Albert Camus
+Winifred Holtby
