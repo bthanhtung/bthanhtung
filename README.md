@@ -1,3 +1,3 @@
-_**Do not mind anything that anyone tells you about anyone else. Judge everyone and everything for yourself.**_
+_**I think that novels that leave out technology misrepresent life as badly as Victorians misrepresented life by leaving out sex.**_
 
-Henry James
+Kurt Vonnegut
