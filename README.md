@@ -1,3 +1,3 @@
-_**The final proof of greatness lies in being able to endure criticism without resentment.**_
+_**You cannot have what you do not want.**_
 
-Elbert Hubbard
+John Acosta
