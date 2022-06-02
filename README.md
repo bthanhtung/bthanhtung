@@ -1,3 +1,3 @@
-_**The things that one most wants to do are the things that are probably most worth doing.**_
+_**Coming together is a beginning; keeping together is progress; working together is success.**_
 
-Winifred Holtby
+Edward Everett Hale
