@@ -1,3 +1,3 @@
-_**Coming together is a beginning; keeping together is progress; working together is success.**_
+_**The final proof of greatness lies in being able to endure criticism without resentment.**_
 
-Edward Everett Hale
+Elbert Hubbard
