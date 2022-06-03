@@ -1,3 +1,3 @@
-_**The more light you allow within you, the brighter the world you live in will be.**_
+_**Where there is love there is life.**_
 
-Shakti Gawain
+Mahatma Gandhi
