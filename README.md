@@ -1,3 +1,3 @@
-_**You cannot have what you do not want.**_
+_**The more light you allow within you, the brighter the world you live in will be.**_
 
-John Acosta
+Shakti Gawain
