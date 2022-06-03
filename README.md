@@ -1,3 +1,3 @@
-_**Where there is love there is life.**_
+_**The smallest deed is better than the greatest intention.**_
 
-Mahatma Gandhi
+John Burroughs
