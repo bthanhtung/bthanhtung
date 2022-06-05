@@ -1,3 +1,3 @@
-_**I don't need a friend who changes when I change and who nods when I nod; my shadow does that much better.**_
+_**To be tested is good. The challenged life may be the best therapist.**_
 
-Plutarch
+Gail Sheehy
