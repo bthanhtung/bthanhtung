@@ -1,3 +1,3 @@
-_**Real success is finding your lifework in the work that you love.**_
+_**You cannot travel the path until you have become the path itself.**_
 
-David McCullough
+Buddha
