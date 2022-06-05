@@ -1,3 +1,3 @@
-_**To be tested is good. The challenged life may be the best therapist.**_
+_**Real success is finding your lifework in the work that you love.**_
 
-Gail Sheehy
+David McCullough
