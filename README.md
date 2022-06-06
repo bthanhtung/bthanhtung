@@ -1,3 +1,3 @@
-_**You cannot travel the path until you have become the path itself.**_
+_**It is more shameful to distrust our friends than to be deceived by them.**_
 
-Buddha
+Confucius
