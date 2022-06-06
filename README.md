@@ -1,3 +1,3 @@
-_**All this worldly wisdom was once the unamiable heresy of some wise man.**_
+_**The World is my country, all mankind are my brethren, and to do good is my religion.**_
 
-Henry David Thoreau
+Thomas Paine
