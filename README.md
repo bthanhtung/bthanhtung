@@ -1,3 +1,3 @@
-_**It is more shameful to distrust our friends than to be deceived by them.**_
+_**All this worldly wisdom was once the unamiable heresy of some wise man.**_
 
-Confucius
+Henry David Thoreau
