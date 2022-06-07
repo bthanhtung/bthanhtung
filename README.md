@@ -1,3 +1,3 @@
-_**The World is my country, all mankind are my brethren, and to do good is my religion.**_
+_**You might well remember that nothing can bring you success but yourself.**_
 
-Thomas Paine
+Napoleon Hill
