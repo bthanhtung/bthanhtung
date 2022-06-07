@@ -1,3 +1,3 @@
-_**Success is getting what you want. Happiness is wanting what you get.**_
+_**I always wanted to be somebody, but I should have been more specific.**_
 
-Dale Carnegie
+Lily Tomlin
