@@ -1,3 +1,3 @@
-_**You might well remember that nothing can bring you success but yourself.**_
+_**Success is getting what you want. Happiness is wanting what you get.**_
 
-Napoleon Hill
+Dale Carnegie
