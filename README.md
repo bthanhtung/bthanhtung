@@ -1,3 +1,3 @@
-_**I always wanted to be somebody, but I should have been more specific.**_
+_**Kindness is the golden chain by which society is bound together.**_
 
-Lily Tomlin
+Johann Wolfgang von Goethe
