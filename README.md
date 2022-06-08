@@ -1,3 +1,3 @@
-_**Kindness is the golden chain by which society is bound together.**_
+_**Love doesn't make the world go round; love is what makes the ride worthwhile.**_
 
-Johann Wolfgang von Goethe
+Elizabeth Browning
