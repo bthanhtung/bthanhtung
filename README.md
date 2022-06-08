@@ -1,3 +1,3 @@
-_**Love doesn't make the world go round; love is what makes the ride worthwhile.**_
+_**Kind words do not cost much. Yet they accomplish much.**_
 
-Elizabeth Browning
+Blaise Pascal
