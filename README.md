@@ -1,3 +1,3 @@
-_**Short words are best and the old words when short are best of all.**_
+_**Sweet is the memory of distant friends! Like the mellow rays of the departing sun, it falls tenderly, yet sadly, on the heart.**_
 
-Winston Churchill
+Washington Irving
