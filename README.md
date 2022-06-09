@@ -1,3 +1,3 @@
-_**A true friend is one who overlooks your failures and tolerates your success!**_
+_**Short words are best and the old words when short are best of all.**_
 
-Doug Larson
+Winston Churchill
