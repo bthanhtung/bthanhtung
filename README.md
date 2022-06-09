@@ -1,3 +1,3 @@
-_**Kind words do not cost much. Yet they accomplish much.**_
+_**A true friend is one who overlooks your failures and tolerates your success!**_
 
-Blaise Pascal
+Doug Larson
