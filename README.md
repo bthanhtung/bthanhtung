@@ -1,3 +1,3 @@
-_**To be wrong is nothing unless you continue to remember it.**_
+_**Sadness flies away on the wings of time.**_
 
-Confucius
+Jean de La Fontaine
