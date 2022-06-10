@@ -1,3 +1,3 @@
-_**Sweet is the memory of distant friends! Like the mellow rays of the departing sun, it falls tenderly, yet sadly, on the heart.**_
+_**You are never given a wish without also being given the power to make it come true. You may have to work for it, however.**_
 
-Washington Irving
+Richard Bach
