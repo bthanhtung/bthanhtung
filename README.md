@@ -1,3 +1,3 @@
-_**He who has imagination without learning has wings but no feet.**_
+_**For every failure, there's an alternative course of action. You just have to find it. When you come to a roadblock, take a detour.**_
 
-Joseph Joubert
+Mary Kay Ash
