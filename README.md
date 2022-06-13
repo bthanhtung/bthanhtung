@@ -1,3 +1,3 @@
-_**The wise man does not lay up his own treasures. The more he gives to others, the more he has for his own.**_
+_**In friendship as well as love, ignorance very often contributes more to our happiness than knowledge.**_
 
-Laozi
+François de La Rochefoucauld
