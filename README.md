@@ -1,3 +1,3 @@
-_**In friendship as well as love, ignorance very often contributes more to our happiness than knowledge.**_
+_**The world is but a canvas to the imagination.**_
 
-François de La Rochefoucauld
+Henry David Thoreau
