@@ -1,3 +1,3 @@
-_**We love life, not because we are used to living but because we are used to loving.**_
+_**We are either progressing or retrograding all the while. There is no such thing as remaining stationary in this life.**_
 
-Friedrich Nietzsche
+James Freeman Clarke
