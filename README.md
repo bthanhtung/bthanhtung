@@ -1,3 +1,3 @@
-_**First say to yourself what you would be; and then do what you have to do.**_
+_**Promises are the uniquely human way of ordering the future, making it predictable and reliable to the extent that this is humanly possible.**_
 
-Epictetus
+Hannah Arendt
