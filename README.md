@@ -1,3 +1,3 @@
-_**We are either progressing or retrograding all the while. There is no such thing as remaining stationary in this life.**_
+_**First say to yourself what you would be; and then do what you have to do.**_
 
-James Freeman Clarke
+Epictetus
