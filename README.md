@@ -1,3 +1,3 @@
-_**The greatest gift of life is friendship, and I have received it.**_
+_**Do not mind anything that anyone tells you about anyone else. Judge everyone and everything for yourself.**_
 
-Hubert Humphrey
+Henry James
