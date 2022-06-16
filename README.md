@@ -1,3 +1,3 @@
-_**Friendship, like credit, is highest when it is not used.**_
+_**How wonderful it is that nobody need wait a single moment before starting to improve the world.**_
 
-Elbert Hubbard
+Anne Frank
