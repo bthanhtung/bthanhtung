@@ -1,3 +1,3 @@
-_**Do not mind anything that anyone tells you about anyone else. Judge everyone and everything for yourself.**_
+_**Friendship, like credit, is highest when it is not used.**_
 
-Henry James
+Elbert Hubbard
