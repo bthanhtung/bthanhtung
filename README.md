@@ -1,3 +1,3 @@
-_**It is with words as with sunbeams. The more they are condensed, the deeper they burn.**_
+_**If you're walking down the right path and you're willing to keep walking, eventually you'll make progress.**_
 
-Robert Southey
+Barack Obama
