@@ -1,3 +1,3 @@
-_**How wonderful it is that nobody need wait a single moment before starting to improve the world.**_
+_**It is with words as with sunbeams. The more they are condensed, the deeper they burn.**_
 
-Anne Frank
+Robert Southey
