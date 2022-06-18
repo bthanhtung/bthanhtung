@@ -1,3 +1,3 @@
-_**Always tell the truth. That way, you don't have to remember what you said.**_
+_**Learn from yesterday, live for today, hope for tomorrow.**_
 
-Mark Twain
+Albert Einstein
