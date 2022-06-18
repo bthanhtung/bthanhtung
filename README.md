@@ -1,3 +1,3 @@
-_**If you're walking down the right path and you're willing to keep walking, eventually you'll make progress.**_
+_**Always tell the truth. That way, you don't have to remember what you said.**_
 
-Barack Obama
+Mark Twain
