@@ -1,3 +1,3 @@
-_**Learn from yesterday, live for today, hope for tomorrow.**_
+_**He who conquers others is strong; He who conquers himself is mighty.**_
 
-Albert Einstein
+Laozi
