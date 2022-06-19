@@ -1,3 +1,3 @@
-_**Love demands infinitely less than friendship.**_
+_**Work while you have the light. You are responsible for the talent that has been entrusted to you.**_
 
-George Jean Nathan
+Henri-Frédéric Amiel
