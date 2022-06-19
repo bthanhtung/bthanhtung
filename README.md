@@ -1,3 +1,3 @@
-_**He who conquers others is strong; He who conquers himself is mighty.**_
+_**Time is the most valuable thing a man can spend.**_
 
-Laozi
+Theophrastus
