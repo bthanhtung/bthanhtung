@@ -1,3 +1,3 @@
-_**Time is the most valuable thing a man can spend.**_
+_**Love demands infinitely less than friendship.**_
 
-Theophrastus
+George Jean Nathan
