@@ -1,3 +1,3 @@
-_**Work while you have the light. You are responsible for the talent that has been entrusted to you.**_
+_**Each friend represents a world in us, a world not born until they arrive, and it is only by this meeting that a new world is born.**_
 
-Henri-Frédéric Amiel
+Anaïs Nin
