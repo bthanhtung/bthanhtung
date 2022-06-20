@@ -1,3 +1,3 @@
-_**Skill to do comes of doing.**_
+_**We must never forget that it is through our actions, words, and thoughts that we have a choice.**_
 
-Ralph Waldo Emerson
+Sogyal Rinpoche
