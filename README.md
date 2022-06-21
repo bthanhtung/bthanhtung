@@ -1,3 +1,3 @@
-_**We must never forget that it is through our actions, words, and thoughts that we have a choice.**_
+_**Promises are the uniquely human way of ordering the future, making it predictable and reliable to the extent that this is humanly possible.**_
 
-Sogyal Rinpoche
+Hannah Arendt
