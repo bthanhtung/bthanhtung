@@ -1,3 +1,3 @@
-_**It's easier to resist at the beginning than at the end.**_
+_**If I am not for myself, who will be for me? If I am not for others, what am I? And if not now, when?**_
 
-Leonardo da Vinci
+Rabbi Hillel
