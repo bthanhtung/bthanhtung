@@ -1,3 +1,3 @@
-_**Accept challenges, so that you may feel the exhilaration of victory.**_
+_**It's easier to resist at the beginning than at the end.**_
 
-George S. Patton
+Leonardo da Vinci
