@@ -1,3 +1,3 @@
-_**If I am not for myself, who will be for me? If I am not for others, what am I? And if not now, when?**_
+_**No day in which you learn something is a complete loss.**_
 
-Rabbi Hillel
+David Eddings
