@@ -1,3 +1,3 @@
-_**No day in which you learn something is a complete loss.**_
+_**When written in Chinese, the word 'crisis' is composed of two characters. One represents danger and the other represents opportunity.**_
 
-David Eddings
+John F. Kennedy
