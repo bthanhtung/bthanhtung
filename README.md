@@ -1,3 +1,3 @@
-_**When written in Chinese, the word 'crisis' is composed of two characters. One represents danger and the other represents opportunity.**_
+_**It is the nature of the wise to resist pleasures, but the foolish to be a slave to them.**_
 
-John F. Kennedy
+Epictetus
