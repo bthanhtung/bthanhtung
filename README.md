@@ -1,3 +1,3 @@
-_**He who knows, does not speak. He who speaks, does not know.**_
+_**We may encounter many defeats, but we must not be defeated.**_
 
-Laozi
+Maya Angelou
