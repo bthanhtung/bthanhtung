@@ -1,3 +1,3 @@
-_**Even if you're on the right track, you'll get run over if you just sit there.**_
+_**He who knows, does not speak. He who speaks, does not know.**_
 
-Will Rogers
+Laozi
