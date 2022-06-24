@@ -1,3 +1,3 @@
-_**It is the nature of the wise to resist pleasures, but the foolish to be a slave to them.**_
+_**Even if you're on the right track, you'll get run over if you just sit there.**_
 
-Epictetus
+Will Rogers
