@@ -1,3 +1,3 @@
-_**The essence of true friendship is to make allowance for another's little lapses.**_
+_**A man may fulfil the object of his existence by asking a question he cannot answer and attempting a task he cannot achieve.**_
 
-Ovid
+Oliver Wendell Holmes Jr.
