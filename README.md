@@ -1,3 +1,3 @@
-_**We may encounter many defeats, but we must not be defeated.**_
+_**The essence of true friendship is to make allowance for another's little lapses.**_
 
-Maya Angelou
+Ovid
