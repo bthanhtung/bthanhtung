@@ -1,3 +1,3 @@
-_**Difficulties are things that show a person what they are.**_
+_**Blessed is the man who expects nothing, for he shall never be disappointed.**_
 
-Epictetus
+Alexander Pope
