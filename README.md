@@ -1,3 +1,3 @@
-_**How wonderful that we have met with a paradox. Now we have some hope of making progress.**_
+_**Difficulties are things that show a person what they are.**_
 
-Niels Bohr
+Epictetus
