@@ -1,3 +1,3 @@
-_**If you set out to be liked, you would be prepared to compromise on anything at any time, and you would achieve nothing.**_
+_**Avoid having your ego so close to your position that when your position falls, your ego goes with it.**_
 
-Margaret Thatcher
+Colin Powell
