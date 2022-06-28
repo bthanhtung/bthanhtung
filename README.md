@@ -1,3 +1,3 @@
-_**We are all something, but none of us are everything.**_
+_**Remember that failure is an event, not a person.**_
 
-Blaise Pascal
+Zig Ziglar
