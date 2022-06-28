@@ -1,3 +1,3 @@
-_**Remember that failure is an event, not a person.**_
+_**If you break your neck, if you have nothing to eat, if your house is on fire, then you got a problem. Everything else is inconvenience.**_
 
-Zig Ziglar
+Robert Fulghum
