@@ -1,3 +1,3 @@
-_**Avoid having your ego so close to your position that when your position falls, your ego goes with it.**_
+_**We are all something, but none of us are everything.**_
 
-Colin Powell
+Blaise Pascal
