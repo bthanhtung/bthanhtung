@@ -1,3 +1,3 @@
-_**Happiness cannot be travelled to, owned, earned, worn or consumed. Happiness is the spiritual experience of living every minute with love, grace and gratitude.**_
+_**Who looks outside, dreams, who looks inside, awakes.**_
 
-Denis Waitley
+Carl Jung
