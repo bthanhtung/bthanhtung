@@ -1,3 +1,3 @@
-_**If you break your neck, if you have nothing to eat, if your house is on fire, then you got a problem. Everything else is inconvenience.**_
+_**Happiness cannot be travelled to, owned, earned, worn or consumed. Happiness is the spiritual experience of living every minute with love, grace and gratitude.**_
 
-Robert Fulghum
+Denis Waitley
