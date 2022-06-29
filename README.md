@@ -1,3 +1,3 @@
-_**Who looks outside, dreams, who looks inside, awakes.**_
+_**Chaos is inherent in all compounded things. Strive on with diligence.**_
 
-Carl Jung
+Buddha
