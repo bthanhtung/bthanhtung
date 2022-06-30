@@ -1,3 +1,3 @@
-_**Chaos is inherent in all compounded things. Strive on with diligence.**_
+_**Stay away from what might have been and look at what will be.**_
 
-Buddha
+Marsha Petrie Sue
