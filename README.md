@@ -1,3 +1,3 @@
-_**Stay away from what might have been and look at what will be.**_
+_**These days people seek knowledge, not wisdom. Knowledge is of the past; wisdom is of the future.**_
 
-Marsha Petrie Sue
+Vernon Cooper
