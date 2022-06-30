@@ -1,3 +1,3 @@
-_**These days people seek knowledge, not wisdom. Knowledge is of the past; wisdom is of the future.**_
+_**A successful person is one who can lay a firm foundation with the bricks that others throw at him or her.**_
 
-Vernon Cooper
+David Brinkley
