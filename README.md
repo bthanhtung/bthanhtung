@@ -1,3 +1,3 @@
-_**Whoso loves, believes the impossible.**_
+_**Love cures people - both the ones who give it and the ones who receive it.**_
 
-Elizabeth Browning
+Karl Menninger
