@@ -1,3 +1,3 @@
-_**Love cures people - both the ones who give it and the ones who receive it.**_
+_**Divide each difficulty into as many parts as is feasible and necessary to resolve it.**_
 
-Karl Menninger
+René Descartes
