@@ -1,3 +1,3 @@
-_**Knowledge rests not upon truth alone, but upon error also.**_
+_**There is only one corner of the universe you can be certain of improving, and that's your own self.**_
 
-Carl Jung
+Aldous Huxley
