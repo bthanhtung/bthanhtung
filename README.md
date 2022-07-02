@@ -1,3 +1,3 @@
-_**If I know what love is, it is because of you.**_
+_**Knowledge rests not upon truth alone, but upon error also.**_
 
-Hermann Hesse
+Carl Jung
