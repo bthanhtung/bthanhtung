@@ -1,3 +1,3 @@
-_**Divide each difficulty into as many parts as is feasible and necessary to resolve it.**_
+_**If I know what love is, it is because of you.**_
 
-René Descartes
+Hermann Hesse
