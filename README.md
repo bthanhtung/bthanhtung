@@ -1,3 +1,3 @@
-_**Courage is what it takes to stand up and speak; courage is also what it takes to sit down and listen.**_
+_**Music in the soul can be heard by the universe.**_
 
-Winston Churchill
+Laozi
