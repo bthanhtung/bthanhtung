@@ -1,3 +1,3 @@
-_**There is only one corner of the universe you can be certain of improving, and that's your own self.**_
+_**Courage is what it takes to stand up and speak; courage is also what it takes to sit down and listen.**_
 
-Aldous Huxley
+Winston Churchill
