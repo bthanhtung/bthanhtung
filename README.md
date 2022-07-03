@@ -1,3 +1,3 @@
-_**Music in the soul can be heard by the universe.**_
+_**Wisdom comes alone through suffering.**_
 
-Laozi
+Aeschylus
