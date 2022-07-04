@@ -1,3 +1,3 @@
-_**Wisdom comes alone through suffering.**_
+_**Wisdom is the power to put our time and our knowledge to the proper use.**_
 
-Aeschylus
+Thomas J. Watson
