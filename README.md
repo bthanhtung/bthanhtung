@@ -1,3 +1,3 @@
-_**Wisdom is the power to put our time and our knowledge to the proper use.**_
+_**Give a man a fish and you feed him for a day. Teach him how to fish and you feed him for a lifetime.**_
 
-Thomas J. Watson
+Laozi
