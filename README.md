@@ -1,3 +1,3 @@
-_**Give a man a fish and you feed him for a day. Teach him how to fish and you feed him for a lifetime.**_
+_**Most of our pocket wisdom is conceived for the use of mediocre people, to discourage them from ambitious attempts, and generally console them in their mediocrity.**_
 
-Laozi
+Robert Louis Stevenson
