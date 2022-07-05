@@ -1,3 +1,3 @@
-_**Our distrust is very expensive.**_
+_**Friends are those rare people who ask how we are and then wait to hear the answer.**_
 
-Ralph Waldo Emerson
+Ed Cunningham
