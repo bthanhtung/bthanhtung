@@ -1,3 +1,3 @@
-_**Most of our pocket wisdom is conceived for the use of mediocre people, to discourage them from ambitious attempts, and generally console them in their mediocrity.**_
+_**Our distrust is very expensive.**_
 
-Robert Louis Stevenson
+Ralph Waldo Emerson
