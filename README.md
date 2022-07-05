@@ -1,3 +1,3 @@
-_**Friends are those rare people who ask how we are and then wait to hear the answer.**_
+_**All this modern technology just makes people try to do everything at once.**_
 
-Ed Cunningham
+Bill Watterson
