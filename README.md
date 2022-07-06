@@ -1,3 +1,3 @@
-_**Gratitude is riches. Complaint is poverty.**_
+_**You're never a loser until you quit trying.**_
 
-Doris Day
+Mike Ditka
