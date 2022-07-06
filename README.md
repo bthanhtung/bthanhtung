@@ -1,3 +1,3 @@
-_**You're never a loser until you quit trying.**_
+_**God has given you one face, and you make yourself another.**_
 
-Mike Ditka
+William Shakespeare
