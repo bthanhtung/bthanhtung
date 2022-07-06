@@ -1,3 +1,3 @@
-_**All this modern technology just makes people try to do everything at once.**_
+_**Gratitude is riches. Complaint is poverty.**_
 
-Bill Watterson
+Doris Day
