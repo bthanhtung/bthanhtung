@@ -1,3 +1,3 @@
-_**God has given you one face, and you make yourself another.**_
+_**Trust your hunches. They're usually based on facts filed away just below the conscious level.**_
 
-William Shakespeare
+Joyce Brothers
