@@ -1,3 +1,3 @@
-_**Trust your hunches. They're usually based on facts filed away just below the conscious level.**_
+_**In friendship as well as love, ignorance very often contributes more to our happiness than knowledge.**_
 
-Joyce Brothers
+François de La Rochefoucauld
