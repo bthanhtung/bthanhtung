@@ -1,3 +1,3 @@
-_**If you propose to speak, always ask yourself, is it true, is it necessary, is it kind.**_
+_**The past has no power to stop you from being present now. Only your grievance about the past can do that.**_
 
-Buddha
+Eckhart Tolle
