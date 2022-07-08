@@ -1,3 +1,3 @@
-_**We never understand how little we need in this world until we know the loss of it.**_
+_**If you propose to speak, always ask yourself, is it true, is it necessary, is it kind.**_
 
-J. M. Barrie
+Buddha
