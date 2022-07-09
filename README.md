@@ -1,3 +1,3 @@
-_**The past has no power to stop you from being present now. Only your grievance about the past can do that.**_
+_**Only I can change my life. No one can do it for me.**_
 
-Eckhart Tolle
+Carol Burnett
