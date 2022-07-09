@@ -1,3 +1,3 @@
-_**Only I can change my life. No one can do it for me.**_
+_**Thousands of candles can be lit from a single, and the life of the candle will not be shortened. Happiness never decreases by being shared.**_
 
-Carol Burnett
+Buddha
