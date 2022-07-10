@@ -1,3 +1,3 @@
-_**No man was ever wise by chance.**_
+_**I do not believe in a fate that falls on men however they act; but I do believe in a fate that falls on them unless they act.**_
 
-Seneca the Younger
+Buddha
