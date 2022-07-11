@@ -1,3 +1,3 @@
-_**With every experience, you alone are painting your own canvas, thought by thought, choice by choice.**_
+_**Friends... they cherish one another's hopes. They are kind to one another's dreams.**_
 
-Oprah Winfrey
+Henry David Thoreau
