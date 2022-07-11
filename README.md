@@ -1,3 +1,3 @@
-_**Friends... they cherish one another's hopes. They are kind to one another's dreams.**_
+_**We have two ears and one mouth so that we can listen twice as much as we speak.**_
 
-Henry David Thoreau
+Epictetus
