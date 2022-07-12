@@ -1,3 +1,3 @@
-_**It takes courage to grow up and become who you really are.**_
+_**Trust your own instinct. Your mistakes might as well be your own, instead of someone else's.**_
 
-E. E. Cummings
+Billy Wilder
