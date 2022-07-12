@@ -1,3 +1,3 @@
-_**Trust your own instinct. Your mistakes might as well be your own, instead of someone else's.**_
+_**Gratitude makes sense of our past, brings peace for today, and creates a vision for tomorrow.**_
 
-Billy Wilder
+Melody Beattie
