@@ -1,3 +1,3 @@
-_**Life is like a sewer. What you get out of it depends on what you put into it.**_
+_**There are no failures. Just experiences and your reactions to them.**_
 
-Tom Lehrer
+Tom Krause
