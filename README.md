@@ -1,3 +1,3 @@
-_**I'm astounded by people who want to 'know' the universe when it's hard enough to find your way around Chinatown.**_
+_**Life is like a sewer. What you get out of it depends on what you put into it.**_
 
-Woody Allen
+Tom Lehrer
