@@ -1,3 +1,3 @@
-_**Gratitude makes sense of our past, brings peace for today, and creates a vision for tomorrow.**_
+_**I'm astounded by people who want to 'know' the universe when it's hard enough to find your way around Chinatown.**_
 
-Melody Beattie
+Woody Allen
