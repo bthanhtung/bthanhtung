@@ -1,3 +1,3 @@
-_**The only real valuable thing is intuition.**_
+_**Honesty is the first chapter in the book of wisdom.**_
 
-Albert Einstein
+Thomas Jefferson
