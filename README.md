@@ -1,3 +1,3 @@
-_**There are no failures. Just experiences and your reactions to them.**_
+_**The only real valuable thing is intuition.**_
 
-Tom Krause
+Albert Einstein
