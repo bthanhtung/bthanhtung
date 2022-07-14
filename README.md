@@ -1,3 +1,3 @@
-_**Honesty is the first chapter in the book of wisdom.**_
+_**Believe you can and you're halfway there.**_
 
-Thomas Jefferson
+Theodore Roosevelt
