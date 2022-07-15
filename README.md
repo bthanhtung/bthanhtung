@@ -1,3 +1,3 @@
-_**There are two ways to slide easily through life: to believe everything or to doubt everything; both ways save us from thinking.**_
+_**Opportunity does not knock, it presents itself when you beat down the door.**_
 
-Alfred Korzybski
+Kyle Chandler
