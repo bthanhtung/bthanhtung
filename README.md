@@ -1,3 +1,3 @@
-_**Opportunity does not knock, it presents itself when you beat down the door.**_
+_**Life is the only real counselor; wisdom unfiltered through personal experience does not become a part of the moral tissue.**_
 
-Kyle Chandler
+Edith Wharton
