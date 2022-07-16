@@ -1,3 +1,3 @@
-_**Bodily exercise, when compulsory, does no harm to the body; but knowledge which is acquired under compulsion obtains no hold on the mind.**_
+_**Happiness is the reward we get for living to the highest right we know.**_
 
-Plato
+Richard Bach
