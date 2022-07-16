@@ -1,3 +1,3 @@
-_**Two persons cannot long be friends if they cannot forgive each other's little failings.**_
+_**Bodily exercise, when compulsory, does no harm to the body; but knowledge which is acquired under compulsion obtains no hold on the mind.**_
 
-Jean de La Bruyère
+Plato
