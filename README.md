@@ -1,3 +1,3 @@
-_**Life is the only real counselor; wisdom unfiltered through personal experience does not become a part of the moral tissue.**_
+_**Two persons cannot long be friends if they cannot forgive each other's little failings.**_
 
-Edith Wharton
+Jean de La Bruyère
