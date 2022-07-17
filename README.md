@@ -1,3 +1,3 @@
-_**Were here for a reason. I believe a bit of the reason is to throw little torches out to lead people through the dark.**_
+_**You're not obligated to win. You're obligated to keep trying to do the best you can every day.**_
 
-Whoopi Goldberg
+Marian Wright Edelman
