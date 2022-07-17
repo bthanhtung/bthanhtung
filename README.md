@@ -1,3 +1,3 @@
-_**Happiness is the reward we get for living to the highest right we know.**_
+_**Were here for a reason. I believe a bit of the reason is to throw little torches out to lead people through the dark.**_
 
-Richard Bach
+Whoopi Goldberg
