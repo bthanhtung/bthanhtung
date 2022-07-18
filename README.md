@@ -1,3 +1,3 @@
-_**The less effort, the faster and more powerful you will be.**_
+_**Everyone has been made for some particular work, and the desire for that work has been put in every heart.**_
 
-Bruce Lee
+Rumi
