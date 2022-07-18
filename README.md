@@ -1,3 +1,3 @@
-_**Everyone has been made for some particular work, and the desire for that work has been put in every heart.**_
+_**The beginning of knowledge is the discovery of something we do not understand.**_
 
-Rumi
+Frank Herbert
