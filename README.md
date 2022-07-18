@@ -1,3 +1,3 @@
-_**From error to error one discovers the entire truth.**_
+_**The less effort, the faster and more powerful you will be.**_
 
-Sigmund Freud
+Bruce Lee
