@@ -1,3 +1,3 @@
-_**The universe is transformation; our life is what our thoughts make it.**_
+_**However rare true love may be, it is less so than true friendship.**_
 
-Marcus Aurelius
+François de La Rochefoucauld
