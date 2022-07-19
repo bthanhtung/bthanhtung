@@ -1,3 +1,3 @@
-_**The beginning of knowledge is the discovery of something we do not understand.**_
+_**If one does not know to which port is sailing, no wind is favorable.**_
 
-Frank Herbert
+Seneca the Younger
