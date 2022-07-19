@@ -1,3 +1,3 @@
-_**If one does not know to which port is sailing, no wind is favorable.**_
+_**The universe is transformation; our life is what our thoughts make it.**_
 
-Seneca the Younger
+Marcus Aurelius
