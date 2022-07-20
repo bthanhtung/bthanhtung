@@ -1,3 +1,3 @@
-_**However rare true love may be, it is less so than true friendship.**_
+_**Just trust yourself, then you will know how to live.**_
 
-François de La Rochefoucauld
+Johann Wolfgang von Goethe
