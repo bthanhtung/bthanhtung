@@ -1,3 +1,3 @@
-_**The cause is hidden. The effect is visible to all.**_
+_**The best thing in every noble dream is the dreamer...**_
 
-Ovid
+Moncure D. Conway
