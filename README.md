@@ -1,3 +1,3 @@
-_**Just trust yourself, then you will know how to live.**_
+_**The cause is hidden. The effect is visible to all.**_
 
-Johann Wolfgang von Goethe
+Ovid
