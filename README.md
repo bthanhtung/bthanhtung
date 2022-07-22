@@ -1,3 +1,3 @@
-_**One's life has value so long as one attributes value to the life of others, by means of love, friendship, indignation and compassion.**_
+_**All great men are gifted with intuition. They know without reasoning or analysis, what they need to know.**_
 
-Simone de Beauvoir
+Alexis Carrel
