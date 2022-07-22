@@ -1,3 +1,3 @@
-_**The world is round so that friendship may encircle it.**_
+_**Sustaining true friendship is a lot more challenging than we give it credit for.**_
 
-Pierre Teilhard de Chardin
+Mariella Frostrup
