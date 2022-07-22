@@ -1,3 +1,3 @@
-_**Sustaining true friendship is a lot more challenging than we give it credit for.**_
+_**One's life has value so long as one attributes value to the life of others, by means of love, friendship, indignation and compassion.**_
 
-Mariella Frostrup
+Simone de Beauvoir
