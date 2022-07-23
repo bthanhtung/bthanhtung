@@ -1,3 +1,3 @@
-_**Autumn is a second spring when every leaf is a flower.**_
+_**Friendship is almost always the union of a part of one mind with the part of another; people are friends in spots.**_
 
-Albert Camus
+George Santayana
