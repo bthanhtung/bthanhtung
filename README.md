@@ -1,3 +1,3 @@
-_**Life is the flower for which love is the honey.**_
+_**Autumn is a second spring when every leaf is a flower.**_
 
-Victor Hugo
+Albert Camus
