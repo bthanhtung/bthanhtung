@@ -1,3 +1,3 @@
-_**All our dreams can come true, if we have the courage to pursue them.**_
+_**No enterprise is more likely to succeed than one concealed from the enemy until it is ripe for execution.**_
 
-Walt Disney
+Niccolò Machiavelli
