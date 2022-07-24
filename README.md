@@ -1,3 +1,3 @@
-_**The wisest men follow their own direction.**_
+_**All our dreams can come true, if we have the courage to pursue them.**_
 
-Euripides
+Walt Disney
