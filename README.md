@@ -1,3 +1,3 @@
-_**Friendship is almost always the union of a part of one mind with the part of another; people are friends in spots.**_
+_**The wisest men follow their own direction.**_
 
-George Santayana
+Euripides
