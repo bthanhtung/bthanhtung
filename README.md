@@ -1,3 +1,3 @@
-_**To study and not think is a waste. To think and not study is dangerous.**_
+_**Three things cannot be long hidden: the sun, the moon, and the truth.**_
 
-Confucius
+Buddha
