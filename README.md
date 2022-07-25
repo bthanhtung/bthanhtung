@@ -1,3 +1,3 @@
-_**No enterprise is more likely to succeed than one concealed from the enemy until it is ripe for execution.**_
+_**Moral excellence comes about as a result of habit. We become just by doing just acts, temperate by doing temperate acts, brave by doing brave acts.**_
 
-Niccolò Machiavelli
+Aristotle
