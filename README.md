@@ -1,3 +1,3 @@
-_**First say to yourself what you would be; and then do what you have to do.**_
+_**Just as much as we see in others, we have in ourselves.**_
 
-Epictetus
+William Hazlitt
