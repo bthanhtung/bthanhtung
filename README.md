@@ -1,3 +1,3 @@
-_**No man can succeed in a line of endeavor which he does not like.**_
+_**The only journey is the one within.**_
 
-Napoleon Hill
+Rainer Maria Rilke
