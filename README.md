@@ -1,3 +1,3 @@
-_**Just as much as we see in others, we have in ourselves.**_
+_**Friendship is an arrangement by which we undertake to exchange small favors for big ones.**_
 
-William Hazlitt
+Montesquieu
