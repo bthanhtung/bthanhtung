@@ -1,3 +1,3 @@
-_**Friendship is an arrangement by which we undertake to exchange small favors for big ones.**_
+_**No man can succeed in a line of endeavor which he does not like.**_
 
-Montesquieu
+Napoleon Hill
