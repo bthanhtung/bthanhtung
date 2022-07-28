@@ -1,3 +1,3 @@
-_**All our dreams can come true, if we have the courage to pursue them.**_
+_**To study and not think is a waste. To think and not study is dangerous.**_
 
-Walt Disney
+Confucius
