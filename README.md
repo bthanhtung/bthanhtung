@@ -1,3 +1,3 @@
-_**The only journey is the one within.**_
+_**All our dreams can come true, if we have the courage to pursue them.**_
 
-Rainer Maria Rilke
+Walt Disney
