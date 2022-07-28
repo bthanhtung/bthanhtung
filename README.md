@@ -1,3 +1,3 @@
-_**To study and not think is a waste. To think and not study is dangerous.**_
+_**If one advances confidently in the direction of his dream, and endeavors to live the life which he had imagines, he will meet with a success unexpected in common hours.**_
 
-Confucius
+Henry David Thoreau
