@@ -1,3 +1,3 @@
-_**We shall never know all the good that a simple smile can do.**_
+_**Do not be too timid and squeamish about your reactions. All life is an experiment. The more experiments you make the better.**_
 
-Mother Teresa
+Ralph Waldo Emerson
