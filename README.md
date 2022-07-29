@@ -1,3 +1,3 @@
-_**Do not be too timid and squeamish about your reactions. All life is an experiment. The more experiments you make the better.**_
+_**Sometimes our fate resembles a fruit tree in winter. Who would think that those branches would turn green again and blossom, but we hope it, we know it.**_
 
-Ralph Waldo Emerson
+Johann Wolfgang von Goethe
