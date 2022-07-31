@@ -1,3 +1,3 @@
-_**The journey of a thousand miles begins with one step.**_
+_**The more you know yourself, the more you forgive yourself.**_
 
-Laozi
+Confucius
