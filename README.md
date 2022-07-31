@@ -1,3 +1,3 @@
-_**There are many ways of going forward, but only one way of standing still.**_
+_**The journey of a thousand miles begins with one step.**_
 
-Franklin D. Roosevelt
+Laozi
