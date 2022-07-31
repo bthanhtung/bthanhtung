@@ -1,3 +1,3 @@
-_**The more you know yourself, the more you forgive yourself.**_
+_**The virtue of justice consists in moderation, as regulated by wisdom.**_
 
-Confucius
+Aristotle
