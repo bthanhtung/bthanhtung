@@ -1,3 +1,3 @@
-_**The virtue of justice consists in moderation, as regulated by wisdom.**_
+_**The friendship that can cease has never been real.**_
 
-Aristotle
+Jerome
