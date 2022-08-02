@@ -1,3 +1,3 @@
-_**When we seek to discover the best in others, we somehow bring out the best in ourselves.**_
+_**Be not afraid of greatness: some are born great, some achieve greatness, and some have greatness thrust upon them.**_
 
-William Arthur Ward
+William Shakespeare
