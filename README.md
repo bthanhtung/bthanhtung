@@ -1,3 +1,3 @@
-_**Life is a gift, and it offers us the privilege, opportunity, and responsibility to give something back by becoming more**_
+_**When we seek to discover the best in others, we somehow bring out the best in ourselves.**_
 
-Tony Robbins
+William Arthur Ward
