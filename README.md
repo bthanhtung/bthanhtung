@@ -1,3 +1,3 @@
-_**It is never too late to be what you might have been.**_
+_**Life is a gift, and it offers us the privilege, opportunity, and responsibility to give something back by becoming more**_
 
-George Eliot
+Tony Robbins
