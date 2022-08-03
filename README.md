@@ -1,3 +1,3 @@
-_**The fall of dropping water wears away the Stone.**_
+_**Wherever you go, go with all your heart.**_
 
-Lucretius
+Confucius
