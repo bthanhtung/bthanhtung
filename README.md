@@ -1,3 +1,3 @@
-_**Be not afraid of greatness: some are born great, some achieve greatness, and some have greatness thrust upon them.**_
+_**The fall of dropping water wears away the Stone.**_
 
-William Shakespeare
+Lucretius
