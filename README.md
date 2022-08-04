@@ -1,3 +1,3 @@
-_**I hope our wisdom will grow with our power, and teach us, that the less we use our power the greater it will be.**_
+_**Sunshine is delicious, rain is refreshing, wind braces us up, snow is exhilarating; there is really no such thing as bad weather, only different kinds of good weather.**_
 
-Thomas Jefferson
+John Ruskin
