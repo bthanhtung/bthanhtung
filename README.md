@@ -1,3 +1,3 @@
-_**It is not only for what we do that we are held responsible, but also for what we do not do.**_
+_**If you seek truth, you will not seek victory by dishonorable means, and if you find truth you will become invincible.**_
 
-Molière
+Epictetus
