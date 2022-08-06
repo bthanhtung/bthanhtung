@@ -1,3 +1,3 @@
-_**Everything in the universe goes by indirection. There are no straight lines.**_
+_**The more you know yourself, the more you forgive yourself.**_
 
-Ralph Waldo Emerson
+Confucius
