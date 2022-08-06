@@ -1,3 +1,3 @@
-_**An appeaser is one who feeds a crocodile, hoping it will eat him last.**_
+_**Our strength grows out of our weaknesses.**_
 
-Winston Churchill
+Ralph Waldo Emerson
