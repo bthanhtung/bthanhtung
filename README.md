@@ -1,3 +1,3 @@
-_**The more you know yourself, the more you forgive yourself.**_
+_**An appeaser is one who feeds a crocodile, hoping it will eat him last.**_
 
-Confucius
+Winston Churchill
