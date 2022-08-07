@@ -1,3 +1,3 @@
-_**Our strength grows out of our weaknesses.**_
+_**Using the power of decision gives you the capacity to get past any excuse to change any and every part of your life in an instant.**_
 
-Ralph Waldo Emerson
+Tony Robbins
