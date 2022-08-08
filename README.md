@@ -1,3 +1,3 @@
-_**Everything you are against weakens you. Everything you are for empowers you.**_
+_**Always seek out the seed of triumph in every adversity.**_
 
-Wayne Dyer
+Og Mandino
