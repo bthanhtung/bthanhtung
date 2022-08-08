@@ -1,3 +1,3 @@
-_**Always seek out the seed of triumph in every adversity.**_
+_**Trust is the lubrication that makes it possible for organizations to work.**_
 
-Og Mandino
+Warren Bennis
