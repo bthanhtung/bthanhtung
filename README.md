@@ -1,3 +1,3 @@
-_**God gave us the gift of life; it is up to us to give ourselves the gift of living well.**_
+_**Everything you are against weakens you. Everything you are for empowers you.**_
 
-Voltaire
+Wayne Dyer
