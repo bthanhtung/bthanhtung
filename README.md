@@ -1,3 +1,3 @@
-_**He who fears being conquered is sure of defeat.**_
+_**Men in general judge more from appearances than from reality. All men have eyes, but few have the gift of penetration.**_
 
-Napoleon
+Niccolò Machiavelli
