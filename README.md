@@ -1,3 +1,3 @@
-_**How is it possible that a being with such sensitive jewels as the eyes, such enchanted musical instruments as the ears, and such fabulous arabesque of nerves as the brain can experience itself anything less than a god.**_
+_**The world is round and the place which may seem like the end may also be the beginning.**_
 
-Alan Watts
+Ivy Baker Priest
