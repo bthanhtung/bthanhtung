@@ -1,3 +1,3 @@
-_**The best way out is always through.**_
+_**Beauty is not in the face; beauty is a light in the heart.**_
 
-Robert Frost
+Kahlil Gibran
