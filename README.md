@@ -1,3 +1,3 @@
-_**What lies behind us and what lies before us are small matters compared to what lies within us.**_
+_**The best way out is always through.**_
 
-Oliver Wendell Holmes Jr.
+Robert Frost
