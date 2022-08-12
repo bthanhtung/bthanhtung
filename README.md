@@ -1,3 +1,3 @@
-_**The world is round and the place which may seem like the end may also be the beginning.**_
+_**What lies behind us and what lies before us are small matters compared to what lies within us.**_
 
-Ivy Baker Priest
+Oliver Wendell Holmes Jr.
