@@ -1,3 +1,3 @@
-_**The truth is incontrovertible. Malice may attack it, ignorance may deride it, but in the end, there it is.**_
+_**The three great essentials to achieve anything worthwhile are: Hard work, Stick-to-itiveness, and Common sense.**_
 
-Winston Churchill
+Thomas Edison
