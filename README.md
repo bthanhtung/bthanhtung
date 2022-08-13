@@ -1,3 +1,3 @@
-_**Beauty is not in the face; beauty is a light in the heart.**_
+_**The most formidable weapon against errors of every kind is reason.**_
 
-Kahlil Gibran
+Thomas Paine
