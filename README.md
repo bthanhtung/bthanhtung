@@ -1,3 +1,3 @@
-_**The most formidable weapon against errors of every kind is reason.**_
+_**The truth is incontrovertible. Malice may attack it, ignorance may deride it, but in the end, there it is.**_
 
-Thomas Paine
+Winston Churchill
