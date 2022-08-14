@@ -1,3 +1,3 @@
-_**We respect our elders. There is wisdom that comes from experience, and I am not going to stop learning from wise counsel.**_
+_**No man is free who is not master of himself.**_
 
-Marcia Fudge
+Epictetus
