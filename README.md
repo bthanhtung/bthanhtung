@@ -1,3 +1,3 @@
-_**No man is free who is not master of himself.**_
+_**Without hard work, nothing grows but weeds.**_
 
-Epictetus
+Gordon Hinckley
