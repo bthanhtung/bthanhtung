@@ -1,3 +1,3 @@
-_**My motto was always to keep swinging. Whether I was in a slump or feeling badly or having trouble off the field, the only thing to do was keep swinging.**_
+_**The superior man is modest in his speech but exceeds in his actions.**_
 
-Hank Aaron
+Confucius
