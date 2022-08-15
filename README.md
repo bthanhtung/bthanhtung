@@ -1,3 +1,3 @@
-_**Without hard work, nothing grows but weeds.**_
+_**My motto was always to keep swinging. Whether I was in a slump or feeling badly or having trouble off the field, the only thing to do was keep swinging.**_
 
-Gordon Hinckley
+Hank Aaron
