@@ -1,3 +1,3 @@
-_**The superior man is modest in his speech but exceeds in his actions.**_
+_**Silence is a source of great strength.**_
 
-Confucius
+Laozi
