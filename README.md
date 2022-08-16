@@ -1,3 +1,3 @@
-_**Silence is a source of great strength.**_
+_**Well done is better than well said.**_
 
-Laozi
+Benjamin Franklin
