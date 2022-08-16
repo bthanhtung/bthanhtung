@@ -1,3 +1,3 @@
-_**Well done is better than well said.**_
+_**If you cannot do great things, do small things in a great way.**_
 
-Benjamin Franklin
+Napoleon Hill
