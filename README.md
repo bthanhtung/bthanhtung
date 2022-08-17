@@ -1,3 +1,3 @@
-_**When you judge another, you do not define them, you define yourself.**_
+_**If you can dream it, you can do it.**_
 
-Wayne Dyer
+Walt Disney
