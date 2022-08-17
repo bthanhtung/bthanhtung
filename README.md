@@ -1,3 +1,3 @@
-_**If you cannot do great things, do small things in a great way.**_
+_**When you judge another, you do not define them, you define yourself.**_
 
-Napoleon Hill
+Wayne Dyer
