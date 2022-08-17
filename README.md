@@ -1,3 +1,3 @@
-_**If you can dream it, you can do it.**_
+_**Action may not always bring happiness; but there is no happiness without action.**_
 
-Walt Disney
+Benjamin Disraeli
