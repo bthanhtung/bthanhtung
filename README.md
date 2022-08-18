@@ -1,3 +1,3 @@
-_**Action may not always bring happiness; but there is no happiness without action.**_
+_**No yesterdays are ever wasted for those who give themselves to today.**_
 
-Benjamin Disraeli
+Brendan Behan
