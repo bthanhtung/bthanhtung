@@ -1,3 +1,3 @@
-_**Pick battles big enough to matter, small enough to win.**_
+_**In wartime, truth is so precious that she should always be attended by a bodyguard of lies.**_
 
-Jonathan Kozol
+Winston Churchill
