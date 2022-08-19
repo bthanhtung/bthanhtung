@@ -1,3 +1,3 @@
-_**In wartime, truth is so precious that she should always be attended by a bodyguard of lies.**_
+_**To accomplish great things, we must not only act, but also dream; not only plan, but also believe.**_
 
-Winston Churchill
+Anatole France
