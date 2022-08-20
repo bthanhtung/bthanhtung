@@ -1,3 +1,3 @@
-_**Obstacles are those frightful things you see when you take your eyes off your goal.**_
+_**Kindness is more important than wisdom, and the recognition of this is the beginning of wisdom.**_
 
-Henry Ford
+Theodore Isaac Rubin
