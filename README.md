@@ -1,3 +1,3 @@
-_**We are not animals. We are not a product of what has happened to us in our past. We have the power of choice.**_
+_**Obstacles are those frightful things you see when you take your eyes off your goal.**_
 
-Stephen Covey
+Henry Ford
