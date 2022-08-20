@@ -1,3 +1,3 @@
-_**Fortune befriends the bold.**_
+_**We are not animals. We are not a product of what has happened to us in our past. We have the power of choice.**_
 
-John Dryden
+Stephen Covey
