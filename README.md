@@ -1,3 +1,3 @@
-_**Rare as is true love, true friendship is rarer.**_
+_**Honesty is the best policy.**_
 
-Jean de La Fontaine
+Benjamin Franklin
