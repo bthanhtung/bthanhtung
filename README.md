@@ -1,3 +1,3 @@
-_**Sir, my concern is not whether God is on our side; my greatest concern is to be on God's side, for God is always right.**_
+_**We all grow up. Hopefully, we get wiser. Age brings wisdom, and fatherhood changes one's life completely.**_
 
-Abraham Lincoln
+Frank Abagnale
