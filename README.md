@@ -1,3 +1,3 @@
-_**Important principles may, and must, be inflexible.**_
+_**Those who are free of resentful thoughts surely find peace.**_
 
-Abraham Lincoln
+Buddha
