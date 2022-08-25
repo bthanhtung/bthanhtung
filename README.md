@@ -1,3 +1,3 @@
-_**Argue for your limitations, and sure enough they're yours.**_
+_**It may happen sometimes that a long debate becomes the cause of a longer friendship. Commonly, those who dispute with one another at last agree.**_
 
-Richard Bach
+Elbert Hubbard
