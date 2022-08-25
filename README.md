@@ -1,3 +1,3 @@
-_**It may happen sometimes that a long debate becomes the cause of a longer friendship. Commonly, those who dispute with one another at last agree.**_
+_**Wisdom cannot come by railroad or automobile or airplane or be hurried up by telegraph or telephone.**_
 
-Elbert Hubbard
+John Burroughs
