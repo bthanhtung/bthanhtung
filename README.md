@@ -1,3 +1,3 @@
-_**Wisdom cannot come by railroad or automobile or airplane or be hurried up by telegraph or telephone.**_
+_**Fine words and an insinuating appearance are seldom associated with true virtue**_
 
-John Burroughs
+Confucius
