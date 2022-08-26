@@ -1,3 +1,3 @@
-_**Most powerful is he who has himself in his own power.**_
+_**Do all things with love.**_
 
-Seneca the Younger
+Og Mandino
