@@ -1,3 +1,3 @@
-_**Fine words and an insinuating appearance are seldom associated with true virtue**_
+_**So long as a person is capable of self-renewal they are a living being.**_
 
-Confucius
+Henri-Frédéric Amiel
