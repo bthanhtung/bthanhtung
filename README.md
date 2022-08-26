@@ -1,3 +1,3 @@
-_**So long as a person is capable of self-renewal they are a living being.**_
+_**Most powerful is he who has himself in his own power.**_
 
-Henri-Frédéric Amiel
+Seneca the Younger
