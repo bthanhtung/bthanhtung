@@ -1,3 +1,3 @@
-_**Do all things with love.**_
+_**It seemed the world was divided into good and bad people. The good ones slept better... while the bad ones seemed to enjoy the waking hours much more.**_
 
-Og Mandino
+Woody Allen
