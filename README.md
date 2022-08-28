@@ -1,3 +1,3 @@
-_**Holding on to anger is like grasping a hot coal with the intent of throwing it at someone else; you are the one who gets burned.**_
+_**If you seek truth, you will not seek victory by dishonorable means, and if you find truth you will become invincible.**_
 
-Buddha
+Epictetus
