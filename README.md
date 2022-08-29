@@ -1,3 +1,3 @@
-_**In every walk with nature, one receives far more than he seeks.**_
+_**If you're going through hell, keep going.**_
 
-John Muir
+Winston Churchill
