@@ -1,3 +1,3 @@
-_**It is not fair to ask of others what you are unwilling to do yourself.**_
+_**Those who will play with cats must expect to be scratched.**_
 
-Eleanor Roosevelt
+Miguel de Cervantes
