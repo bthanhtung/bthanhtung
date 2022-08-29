@@ -1,3 +1,3 @@
-_**Those who will play with cats must expect to be scratched.**_
+_**In every walk with nature, one receives far more than he seeks.**_
 
-Miguel de Cervantes
+John Muir
