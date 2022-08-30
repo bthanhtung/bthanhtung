@@ -1,3 +1,3 @@
-_**If you're going through hell, keep going.**_
+_**Most of the important things in the world have been accomplished by people who have kept on trying when there seemed to be no hope at all.**_
 
-Winston Churchill
+Dale Carnegie
