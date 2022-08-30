@@ -1,3 +1,3 @@
-_**Most of the important things in the world have been accomplished by people who have kept on trying when there seemed to be no hope at all.**_
+_**If you set out to be liked, you would be prepared to compromise on anything at any time, and you would achieve nothing.**_
 
-Dale Carnegie
+Margaret Thatcher
