@@ -1,3 +1,3 @@
-_**TV and the Internet are good because they keep stupid people from spending too much time out in public.**_
+_**To keep your secret is wisdom; but to expect others to keep it is folly.**_
 
-Douglas Coupland
+Samuel Johnson
