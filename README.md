@@ -1,3 +1,3 @@
-_**Follow your instincts. That is where true wisdom manifests itself.**_
+_**Never mistake motion for action.**_
 
-Oprah Winfrey
+Ernest Hemingway
