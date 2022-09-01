@@ -1,3 +1,3 @@
-_**To keep your secret is wisdom; but to expect others to keep it is folly.**_
+_**It is the nature of the wise to resist pleasures, but the foolish to be a slave to them.**_
 
-Samuel Johnson
+Epictetus
