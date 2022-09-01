@@ -1,3 +1,3 @@
-_**Be here now. Be someplace else later. Is that so complicated?**_
+_**Give me six hours to chop down a tree and I will spend the first four sharpening the axe.**_
 
-David Bader
+Abraham Lincoln
