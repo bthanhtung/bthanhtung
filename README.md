@@ -1,3 +1,3 @@
-_**Give me six hours to chop down a tree and I will spend the first four sharpening the axe.**_
+_**To succeed, we must first believe that we can.**_
 
-Abraham Lincoln
+Michael Korda
