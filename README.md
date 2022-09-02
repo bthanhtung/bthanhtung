@@ -1,3 +1,3 @@
-_**Even youngish men can acquire wisdom as time goes by.**_
+_**Courage is rightly esteemed the first of human qualities... because it is the quality which guarantees all others.**_
 
-John Bercow
+Winston Churchill
