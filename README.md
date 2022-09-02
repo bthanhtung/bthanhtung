@@ -1,3 +1,3 @@
-_**To succeed, we must first believe that we can.**_
+_**Even youngish men can acquire wisdom as time goes by.**_
 
-Michael Korda
+John Bercow
