@@ -1,3 +1,3 @@
-_**The greatest gift of life is friendship, and I have received it.**_
+_**Don't look back. Something might be gaining on you.**_
 
-Hubert Humphrey
+Satchel Paige
