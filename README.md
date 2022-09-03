@@ -1,3 +1,3 @@
-_**Don't look back. Something might be gaining on you.**_
+_**Do not wait; the time will never be 'just right.' Start where you stand, and work with whatever tools you may have at your command, and better tools will be found as you go along.**_
 
-Satchel Paige
+George Herbert
