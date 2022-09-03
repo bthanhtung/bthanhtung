@@ -1,3 +1,3 @@
-_**Courage is rightly esteemed the first of human qualities... because it is the quality which guarantees all others.**_
+_**The greatest gift of life is friendship, and I have received it.**_
 
-Winston Churchill
+Hubert Humphrey
