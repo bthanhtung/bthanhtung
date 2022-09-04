@@ -1,3 +1,3 @@
-_**Wisdom alone is the science of other sciences.**_
+_**Think in the morning. Act in the noon. Eat in the evening. Sleep in the night.**_
 
-Plato
+William Blake
