@@ -1,3 +1,3 @@
-_**Do not wait; the time will never be 'just right.' Start where you stand, and work with whatever tools you may have at your command, and better tools will be found as you go along.**_
+_**The most formidable weapon against errors of every kind is reason.**_
 
-George Herbert
+Thomas Paine
