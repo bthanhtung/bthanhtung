@@ -1,3 +1,3 @@
-_**The most formidable weapon against errors of every kind is reason.**_
+_**Wisdom alone is the science of other sciences.**_
 
-Thomas Paine
+Plato
