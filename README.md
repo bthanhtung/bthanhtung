@@ -1,3 +1,3 @@
-_**Silence is a source of great strength.**_
+_**Positive thinking will let you do everything better than negative thinking will.**_
 
-Laozi
+Zig Ziglar
