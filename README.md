@@ -1,3 +1,3 @@
-_**Positive thinking will let you do everything better than negative thinking will.**_
+_**Fear makes strangers of people who would be friends.**_
 
-Zig Ziglar
+Shirley MacLaine
