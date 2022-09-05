@@ -1,3 +1,3 @@
-_**Think in the morning. Act in the noon. Eat in the evening. Sleep in the night.**_
+_**Silence is a source of great strength.**_
 
-William Blake
+Laozi
