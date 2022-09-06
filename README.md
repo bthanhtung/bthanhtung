@@ -1,3 +1,3 @@
-_**When you realize there is nothing lacking, the whole world belongs to you.**_
+_**Be slow of tongue and quick of eye.**_
 
-Laozi
+Miguel de Cervantes
