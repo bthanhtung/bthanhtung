@@ -1,3 +1,3 @@
-_**Fear makes strangers of people who would be friends.**_
+_**When you realize there is nothing lacking, the whole world belongs to you.**_
 
-Shirley MacLaine
+Laozi
