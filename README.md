@@ -1,3 +1,3 @@
-_**Be slow of tongue and quick of eye.**_
+_**Time stays long enough for anyone who will use it.**_
 
-Miguel de Cervantes
+Leonardo da Vinci
