@@ -1,3 +1,3 @@
-_**Time stays long enough for anyone who will use it.**_
+_**It is far better to be alone, than to be in bad company.**_
 
-Leonardo da Vinci
+George Washington
