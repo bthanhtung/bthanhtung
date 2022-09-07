@@ -1,3 +1,3 @@
-_**Does wisdom perhaps appear on the earth as a raven which is inspired by the smell of carrion?**_
+_**Be true to yourself, help others, make each day your masterpiece, make friendship a fine art, drink deeply from good books - especially the Bible, build a shelter against a rainy day, give thanks for your blessings and pray for guidance every day.**_
 
-Friedrich Nietzsche
+John Wooden
