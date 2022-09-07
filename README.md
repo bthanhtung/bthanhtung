@@ -1,3 +1,3 @@
-_**It is far better to be alone, than to be in bad company.**_
+_**Does wisdom perhaps appear on the earth as a raven which is inspired by the smell of carrion?**_
 
-George Washington
+Friedrich Nietzsche
