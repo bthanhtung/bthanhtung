@@ -1,3 +1,3 @@
-_**The possession of knowledge does not kill the sense of wonder and mystery. There is always more mystery.**_
+_**We must become the change we want to see.**_
 
-Anaïs Nin
+Mahatma Gandhi
