@@ -1,3 +1,3 @@
-_**We must become the change we want to see.**_
+_**A quarrel between friends, when made up, adds a new tie to friendship.**_
 
-Mahatma Gandhi
+Francis de Sales
