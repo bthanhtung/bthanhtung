@@ -1,3 +1,3 @@
-_**A quarrel between friends, when made up, adds a new tie to friendship.**_
+_**Give me six hours to chop down a tree and I will spend the first four sharpening the axe.**_
 
-Francis de Sales
+Abraham Lincoln
