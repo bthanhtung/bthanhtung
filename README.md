@@ -1,3 +1,3 @@
-_**The greatest discovery of our generation is that human beings can alter their lives by altering their attitudes of mind. As you think, so shall you be.**_
+_**I was thrown out of college for cheating on the metaphysics exam; I looked into the soul of the boy sitting next to me.**_
 
-William James
+Woody Allen
