@@ -1,3 +1,3 @@
-_**The secret of getting ahead is getting started.**_
+_**Be great in act, as you have been in thought.**_
 
-Mark Twain
+William Shakespeare
