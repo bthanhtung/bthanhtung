@@ -1,3 +1,3 @@
-_**Make it your habit not to be critical about small things.**_
+_**Problems are not stop signs, they are guidelines.**_
 
-Edward Everett Hale
+Robert Schuller
