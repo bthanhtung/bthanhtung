@@ -1,3 +1,3 @@
-_**Be great in act, as you have been in thought.**_
+_**Do not be too timid and squeamish about your reactions. All life is an experiment. The more experiments you make the better.**_
 
-William Shakespeare
+Ralph Waldo Emerson
