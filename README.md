@@ -1,3 +1,3 @@
-_**The word philosophy sounds high-minded, but it simply means the love of wisdom. If you love something, you don't just read about it; you hug it, you mess with it, you play with it, you argue with it.**_
+_**If you are bitter, you are like a dry leaf that you can just squash, and you can get blown away by the wind. There is much more wisdom in forgiveness.**_
 
-Hugh Jackman
+Vusi Mahlasela
