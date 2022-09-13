@@ -1,3 +1,3 @@
-_**Wrinkles should merely indicate where smiles have been.**_
+_**There are many ways of going forward, but only one way of standing still.**_
 
-Mark Twain
+Franklin D. Roosevelt
