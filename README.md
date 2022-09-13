@@ -1,3 +1,3 @@
-_**There are many ways of going forward, but only one way of standing still.**_
+_**Ideas pull the trigger, but instinct loads the gun.**_
 
-Franklin D. Roosevelt
+Don Marquis
