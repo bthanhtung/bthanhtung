@@ -1,3 +1,3 @@
-_**Ideas pull the trigger, but instinct loads the gun.**_
+_**Nothing but heaven itself is better than a friend who is really a friend.**_
 
-Don Marquis
+Plautus
