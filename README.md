@@ -1,3 +1,3 @@
-_**Just as a flower, which seems beautiful has color but no perfume, so are the fruitless words of a man who speaks them but does them not.**_
+_**There is a magnet in your heart that will attract true friends. That magnet is unselfishness, thinking of others first; when you learn to live for others, they will live for you.**_
 
-Dhammapada
+Paramahansa Yogananda
