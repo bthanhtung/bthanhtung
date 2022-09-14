@@ -1,3 +1,3 @@
-_**Nothing but heaven itself is better than a friend who is really a friend.**_
+_**Just as a flower, which seems beautiful has color but no perfume, so are the fruitless words of a man who speaks them but does them not.**_
 
-Plautus
+Dhammapada
