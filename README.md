@@ -1,3 +1,3 @@
-_**You can't stop the waves, but you can learn to surf.**_
+_**If you light a lamp for somebody, it will also brighten your path.**_
 
-Jon Kabat-Zinn
+Buddha
