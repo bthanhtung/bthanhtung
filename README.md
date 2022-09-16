@@ -1,3 +1,3 @@
-_**A friend is someone who gives you total freedom to be yourself.**_
+_**What other people may find in poetry or art museums, I find in the flight of a good drive.**_
 
-Jim Morrison
+Arnold Palmer
