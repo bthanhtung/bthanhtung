@@ -1,3 +1,3 @@
-_**If you light a lamp for somebody, it will also brighten your path.**_
+_**A friend is someone who gives you total freedom to be yourself.**_
 
-Buddha
+Jim Morrison
