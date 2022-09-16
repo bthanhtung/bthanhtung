@@ -1,3 +1,3 @@
-_**What other people may find in poetry or art museums, I find in the flight of a good drive.**_
+_**How wonderful that we have met with a paradox. Now we have some hope of making progress.**_
 
-Arnold Palmer
+Niels Bohr
