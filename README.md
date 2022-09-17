@@ -1,3 +1,3 @@
-_**The only way to tell the truth is to speak with kindness. Only the words of a loving man can be heard.**_
+_**I'm not in this world to live up to your expectations and you're not in this world to live up to mine.**_
 
-Henry David Thoreau
+Bruce Lee
