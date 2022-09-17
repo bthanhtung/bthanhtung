@@ -1,3 +1,3 @@
-_**How wonderful that we have met with a paradox. Now we have some hope of making progress.**_
+_**Set your goals high, and don't stop till you get there.**_
 
-Niels Bohr
+Bo Jackson
