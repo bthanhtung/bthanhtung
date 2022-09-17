@@ -1,3 +1,3 @@
-_**Set your goals high, and don't stop till you get there.**_
+_**The only way to tell the truth is to speak with kindness. Only the words of a loving man can be heard.**_
 
-Bo Jackson
+Henry David Thoreau
