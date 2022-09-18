@@ -1,3 +1,3 @@
-_**Most people never run far enough on their first wind to find out they've got a second.**_
+_**If you'll not settle for anything less than your best, you will be amazed at what you can accomplish in your lives.**_
 
-William James
+Vince Lombardi
