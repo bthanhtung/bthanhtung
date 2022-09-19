@@ -1,3 +1,3 @@
-_**If you'll not settle for anything less than your best, you will be amazed at what you can accomplish in your lives.**_
+_**Be Impeccable with Your Word. Speak with integrity. Say only what you mean. Avoid using the word to speak against yourself or to gossip about others. Use the power of your word in the direction of truth and love.**_
 
-Vince Lombardi
+Don Miguel Ruiz
