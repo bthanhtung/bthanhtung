@@ -1,3 +1,3 @@
-_**Having nothing, nothing can he lose.**_
+_**Change in all things is sweet.**_
 
-William Shakespeare
+Aristotle
