@@ -1,3 +1,3 @@
-_**But friendship is precious, not only in the shade, but in the sunshine of life, and thanks to a benevolent arrangement the greater part of life is sunshine.**_
+_**Always do your best. What you plant now, you will harvest later.**_
 
-Thomas Jefferson
+Og Mandino
