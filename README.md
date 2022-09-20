@@ -1,3 +1,3 @@
-_**A friend is what the heart needs all the time.**_
+_**But friendship is precious, not only in the shade, but in the sunshine of life, and thanks to a benevolent arrangement the greater part of life is sunshine.**_
 
-Henry van Dyke Jr.
+Thomas Jefferson
