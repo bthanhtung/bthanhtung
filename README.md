@@ -1,3 +1,3 @@
-_**Change in all things is sweet.**_
+_**A friend is what the heart needs all the time.**_
 
-Aristotle
+Henry van Dyke Jr.
