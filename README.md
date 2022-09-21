@@ -1,3 +1,3 @@
-_**Every problem has a gift for you in its hands.**_
+_**The attempt to combine wisdom and power has only rarely been successful and then only for a short while.**_
 
-Richard Bach
+Albert Einstein
