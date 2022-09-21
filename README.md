@@ -1,3 +1,3 @@
-_**The attempt to combine wisdom and power has only rarely been successful and then only for a short while.**_
+_**As an organizer I start from where the world is, as it is, not as I would like it to be.**_
 
-Albert Einstein
+Saul Alinsky
