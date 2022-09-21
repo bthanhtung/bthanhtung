@@ -1,3 +1,3 @@
-_**Always do your best. What you plant now, you will harvest later.**_
+_**Every problem has a gift for you in its hands.**_
 
-Og Mandino
+Richard Bach
