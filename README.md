@@ -1,3 +1,3 @@
-_**Half the lies they tell about me aren't true.**_
+_**Thousands of candles can be lit from a single, and the life of the candle will not be shortened. Happiness never decreases by being shared.**_
 
-Yogi Berra
+Buddha
