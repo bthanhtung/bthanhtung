@@ -1,3 +1,3 @@
-_**Thousands of candles can be lit from a single, and the life of the candle will not be shortened. Happiness never decreases by being shared.**_
+_**A day of worry is more exhausting than a day of work.**_
 
-Buddha
+John Lubbock
