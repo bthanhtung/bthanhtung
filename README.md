@@ -1,3 +1,3 @@
-_**A day of worry is more exhausting than a day of work.**_
+_**Nothing diminishes anxiety faster than action.**_
 
-John Lubbock
+Walter Inglis Anderson
