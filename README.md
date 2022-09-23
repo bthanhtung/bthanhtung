@@ -1,3 +1,3 @@
-_**Nothing diminishes anxiety faster than action.**_
+_**Pick battles big enough to matter, small enough to win.**_
 
-Walter Inglis Anderson
+Jonathan Kozol
