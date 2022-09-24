@@ -1,3 +1,3 @@
-_**To get the full value of joy you must have someone to divide it with.**_
+_**It is better to have enough ideas for some of them to be wrong, than to be always right by having no ideas at all.**_
 
-Mark Twain
+Edward de Bono
