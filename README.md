@@ -1,3 +1,3 @@
-_**Without hard work, nothing grows but weeds.**_
+_**Hope arouses, as nothing else can arouse, a passion for the possible.**_
 
-Gordon Hinckley
+William Sloane Coffin
