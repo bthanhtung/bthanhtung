@@ -1,3 +1,3 @@
-_**You have to believe in yourself.**_
+_**Without hard work, nothing grows but weeds.**_
 
-Sun Tzu
+Gordon Hinckley
