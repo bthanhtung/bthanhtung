@@ -1,3 +1,3 @@
-_**Gratitude makes sense of our past, brings peace for today, and creates a vision for tomorrow.**_
+_**You have to believe in yourself.**_
 
-Melody Beattie
+Sun Tzu
