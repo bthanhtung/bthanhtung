@@ -1,3 +1,3 @@
-_**Hope arouses, as nothing else can arouse, a passion for the possible.**_
+_**The doors of wisdom are never shut.**_
 
-William Sloane Coffin
+Benjamin Franklin
