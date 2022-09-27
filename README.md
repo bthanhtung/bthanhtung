@@ -1,3 +1,3 @@
-_**The doors of wisdom are never shut.**_
+_**Wherever a man turns he can find someone who needs him.**_
 
-Benjamin Franklin
+Albert Schweitzer
