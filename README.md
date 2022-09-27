@@ -1,3 +1,3 @@
-_**Wherever a man turns he can find someone who needs him.**_
+_**The way is not in the sky. The way is in the heart.**_
 
-Albert Schweitzer
+Buddha
