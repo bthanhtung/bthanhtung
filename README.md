@@ -1,3 +1,3 @@
-_**A passion for politics stems usually from an insatiable need, either for power, or for friendship and adulation, or a combination of both.**_
+_**The more light you allow within you, the brighter the world you live in will be.**_
 
-Fawn M. Brodie
+Shakti Gawain
