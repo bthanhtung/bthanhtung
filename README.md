@@ -1,3 +1,3 @@
-_**The more light you allow within you, the brighter the world you live in will be.**_
+_**A little knowledge that acts is worth infinitely more than much knowledge that is idle.**_
 
-Shakti Gawain
+Kahlil Gibran
