@@ -1,3 +1,3 @@
-_**We may encounter many defeats, but we must not be defeated.**_
+_**A friend to all is a friend to none.**_
 
-Maya Angelou
+Aristotle
