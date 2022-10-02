@@ -1,3 +1,3 @@
-_**A friend to all is a friend to none.**_
+_**Spectacular achievement is always preceded by unspectacular preparation.**_
 
-Aristotle
+Robert Schuller
