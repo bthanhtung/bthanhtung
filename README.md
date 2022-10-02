@@ -1,3 +1,3 @@
-_**You can only learn so much from books. You can only learn so much from education. Ultimately, it is the wisdom of God that will carry you through in the toughest situations of life.**_
+_**Where there is love there is life.**_
 
-Ravi Zacharias
+Mahatma Gandhi
