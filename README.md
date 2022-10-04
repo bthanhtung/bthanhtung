@@ -1,3 +1,3 @@
-_**Criticism is something you can easily avoid by saying nothing, doing nothing, and being nothing.**_
+_**Miracles come in moments. Be ready and willing.**_
 
-Aristotle
+Wayne Dyer
