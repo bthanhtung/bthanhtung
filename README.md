@@ -1,3 +1,3 @@
-_**If you want to succeed you should strike out on new paths, rather than travel the worn paths of accepted success.**_
+_**Criticism is something you can easily avoid by saying nothing, doing nothing, and being nothing.**_
 
-John Locke
+Aristotle
