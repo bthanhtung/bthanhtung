@@ -1,3 +1,3 @@
-_**Miracles come in moments. Be ready and willing.**_
+_**Trust yourself. You know more than you think you do.**_
 
-Wayne Dyer
+Benjamin Spock
