@@ -1,3 +1,3 @@
-_**Trust yourself. You know more than you think you do.**_
+_**When you see a good person, think of becoming like him. When you see someone not so good, reflect on your own weak points.**_
 
-Benjamin Spock
+Confucius
