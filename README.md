@@ -1,3 +1,3 @@
-_**When you see a good person, think of becoming like him. When you see someone not so good, reflect on your own weak points.**_
+_**There is nothing so useless as doing efficiently that which should not be done at all.**_
 
-Confucius
+Peter Drucker
