@@ -1,3 +1,3 @@
-_**To be wronged is nothing unless you continue to remember it.**_
+_**Character is like a tree and reputation like a shadow. The shadow is what we think of it; the tree is the real thing.**_
 
-Confucius
+Abraham Lincoln
