@@ -1,3 +1,3 @@
-_**Genius is one percent inspiration and ninety-nine percent perspiration.**_
+_**When you begin to touch your heart or let your heart be touched, you begin to discover that it's bottomless.**_
 
-Thomas Edison
+Pema Chödrön
