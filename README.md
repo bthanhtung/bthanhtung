@@ -1,3 +1,3 @@
-_**The conditions of conquest are always easy. We have but to toil awhile, endure awhile, believe always, and never turn back.**_
+_**Of course there is no formula for success except perhaps an unconditional acceptance of life and what it brings.**_
 
-Seneca the Younger
+Arthur Rubinstein
