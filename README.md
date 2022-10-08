@@ -1,3 +1,3 @@
-_**Of course there is no formula for success except perhaps an unconditional acceptance of life and what it brings.**_
+_**Reality does not conform to the ideal but confirms it.**_
 
-Arthur Rubinstein
+Gustave Flaubert
