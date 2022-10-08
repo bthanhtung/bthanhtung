@@ -1,3 +1,3 @@
-_**Reality does not conform to the ideal but confirms it.**_
+_**And the attitude of faith is the very opposite of clinging to belief, of holding on.**_
 
-Gustave Flaubert
+Alan Watts
