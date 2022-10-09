@@ -1,3 +1,3 @@
-_**All love that has not friendship for its base, is like a mansion built upon the sand.**_
+_**However many holy words you read, however many you speak, what good will they do you if you do not act on upon them?**_
 
-Ella Wheeler Wilcox
+Buddha
