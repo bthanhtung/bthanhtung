@@ -1,3 +1,3 @@
-_**However many holy words you read, however many you speak, what good will they do you if you do not act on upon them?**_
+_**If you're trying to achieve, there will be roadblocks. I've had them; everybody has had them. But obstacles don't have to stop you. If you run into a wall, don't turn around and give up. Figure out how to climb it, go through it, or work around it.**_
 
-Buddha
+Michael Jordan
