@@ -1,3 +1,3 @@
-_**When an opponent comes forward, move in and greet him; if he wants to pull back, send him on his way.**_
+_**We must be as courteous to a man as we are to a picture, which we are willing to give the advantage of a good light.**_
 
-Morihei Ueshiba
+Ralph Waldo Emerson
