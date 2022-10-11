@@ -1,3 +1,3 @@
-_**We must be as courteous to a man as we are to a picture, which we are willing to give the advantage of a good light.**_
+_**Let us revere, let us worship, but erect and open-eyed, the highest, not the lowest; the future, not the past!**_
 
-Ralph Waldo Emerson
+Charlotte Perkins Gilman
