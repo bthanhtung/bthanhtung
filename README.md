@@ -1,3 +1,3 @@
-_**If you don't know where you are going, you will probably end up somewhere else.**_
+_**One must be fond of people and trust them if one is not to make a mess of life.**_
 
-Laurence J. Peter
+E. M. Forster
