@@ -1,3 +1,3 @@
-_**One must be fond of people and trust them if one is not to make a mess of life.**_
+_**There are three faithful friends - an old wife, an old dog, and ready money.**_
 
-E. M. Forster
+Benjamin Franklin
