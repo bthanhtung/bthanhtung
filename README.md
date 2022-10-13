@@ -1,3 +1,3 @@
-_**I find hope in the darkest of days, and focus in the brightest. I do not judge the universe.**_
+_**The only real valuable thing is intuition.**_
 
-Dalai Lama
+Albert Einstein
