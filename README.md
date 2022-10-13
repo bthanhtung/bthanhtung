@@ -1,3 +1,3 @@
-_**There are three faithful friends - an old wife, an old dog, and ready money.**_
+_**I find hope in the darkest of days, and focus in the brightest. I do not judge the universe.**_
 
-Benjamin Franklin
+Dalai Lama
