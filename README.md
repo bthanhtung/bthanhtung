@@ -1,3 +1,3 @@
-_**The only real valuable thing is intuition.**_
+_**I have never been hurt by anything I didn't say.**_
 
-Albert Einstein
+Calvin Coolidge
