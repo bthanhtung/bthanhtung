@@ -1,3 +1,3 @@
-_**God gave us the gift of life; it is up to us to give ourselves the gift of living well.**_
+_**People usually compare the computer to the head of the human being. I would say that hardware is the bone of the head, the skull. The semiconductor is the brain within the head. The software is the wisdom. And data is the knowledge.**_
 
-Voltaire
+Masayoshi Son
