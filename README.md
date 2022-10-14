@@ -1,3 +1,3 @@
-_**I have never been hurt by anything I didn't say.**_
+_**God gave us the gift of life; it is up to us to give ourselves the gift of living well.**_
 
-Calvin Coolidge
+Voltaire
