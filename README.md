@@ -1,3 +1,3 @@
-_**Music is a higher revelation than all wisdom and philosophy.**_
+_**Everything that irritates us about others can lead us to an understanding of ourselves.**_
 
-Ludwig van Beethoven
+Carl Jung
