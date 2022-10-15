@@ -1,3 +1,3 @@
-_**So then, the relationship of self to other is the complete realization that loving yourself is impossible without loving everything defined as other than yourself.**_
+_**The World is my country, all mankind are my brethren, and to do good is my religion.**_
 
-Alan Watts
+Thomas Paine
