@@ -1,3 +1,3 @@
-_**Everything that irritates us about others can lead us to an understanding of ourselves.**_
+_**So then, the relationship of self to other is the complete realization that loving yourself is impossible without loving everything defined as other than yourself.**_
 
-Carl Jung
+Alan Watts
