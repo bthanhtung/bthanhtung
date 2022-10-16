@@ -1,3 +1,3 @@
-_**Love is the only force capable of transforming an enemy into a friend.**_
+_**Correction does much, but encouragement does more.**_
 
-Martin Luther King Jr.
+Johann Wolfgang von Goethe
