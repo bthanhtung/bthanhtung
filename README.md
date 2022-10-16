@@ -1,3 +1,3 @@
-_**He who is fixed to a star does not change his mind.**_
+_**Love is the only force capable of transforming an enemy into a friend.**_
 
-Leonardo da Vinci
+Martin Luther King Jr.
