@@ -1,3 +1,3 @@
-_**The World is my country, all mankind are my brethren, and to do good is my religion.**_
+_**He who is fixed to a star does not change his mind.**_
 
-Thomas Paine
+Leonardo da Vinci
