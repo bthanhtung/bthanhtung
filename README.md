@@ -1,3 +1,3 @@
-_**Correction does much, but encouragement does more.**_
+_**Accept the challenges so that you can feel the exhilaration of victory.**_
 
-Johann Wolfgang von Goethe
+George S. Patton
