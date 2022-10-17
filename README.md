@@ -1,3 +1,3 @@
-_**Accept the challenges so that you can feel the exhilaration of victory.**_
+_**The only way to tell the truth is to speak with kindness. Only the words of a loving man can be heard.**_
 
-George S. Patton
+Henry David Thoreau
