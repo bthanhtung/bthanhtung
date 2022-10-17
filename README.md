@@ -1,3 +1,3 @@
-_**The only way to tell the truth is to speak with kindness. Only the words of a loving man can be heard.**_
+_**Happiness often sneaks in through a door you didn't know you left open.**_
 
-Henry David Thoreau
+John Barrymore
