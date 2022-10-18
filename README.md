@@ -1,3 +1,3 @@
-_**What happens is not as important as how you react to what happens.**_
+_**As we express our gratitude, we must never forget that the highest appreciation is not to utter words, but to live by them.**_
 
-Ellen Glasgow
+John F. Kennedy
