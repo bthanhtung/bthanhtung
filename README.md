@@ -1,3 +1,3 @@
-_**Happiness often sneaks in through a door you didn't know you left open.**_
+_**What happens is not as important as how you react to what happens.**_
 
-John Barrymore
+Ellen Glasgow
