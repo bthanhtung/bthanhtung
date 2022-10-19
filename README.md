@@ -1,3 +1,3 @@
-_**Opportunity often comes disguised in the form of misfortune, or temporary defeat.**_
+_**If you would take, you must first give, this is the beginning of intelligence.**_
 
-Napoleon Hill
+Laozi
