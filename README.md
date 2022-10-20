@@ -1,3 +1,3 @@
-_**Sports do not build character. They reveal it.**_
+_**Keep silence for the most part, and speak only when you must, and then briefly.**_
 
-Heywood Broun
+Epictetus
