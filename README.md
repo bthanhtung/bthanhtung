@@ -1,3 +1,3 @@
-_**Nothing is softer or more flexible than water, yet nothing can resist it.**_
+_**It's just a job. Grass grows, birds fly, waves pound the sand. I beat people up.**_
 
-Laozi
+Muhammad Ali
