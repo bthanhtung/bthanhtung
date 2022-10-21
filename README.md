@@ -1,3 +1,3 @@
-_**It's just a job. Grass grows, birds fly, waves pound the sand. I beat people up.**_
+_**Think big thoughts but relish small pleasures.**_
 
-Muhammad Ali
+H. Jackson Brown Jr.
