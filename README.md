@@ -1,3 +1,3 @@
-_**Think big thoughts but relish small pleasures.**_
+_**Knowing others is wisdom, knowing yourself is Enlightenment.**_
 
-H. Jackson Brown Jr.
+Laozi
