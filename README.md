@@ -1,3 +1,3 @@
-_**Knowing others is wisdom, knowing yourself is Enlightenment.**_
+_**In seed time learn, in harvest teach, in winter enjoy.**_
 
-Laozi
+William Blake
