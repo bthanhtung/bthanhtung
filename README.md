@@ -1,3 +1,3 @@
-_**The possession of knowledge does not kill the sense of wonder and mystery. There is always more mystery.**_
+_**Our greatness lies not so much in being able to remake the world as being able to remake ourselves.**_
 
-Anaïs Nin
+Mahatma Gandhi
