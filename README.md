@@ -1,3 +1,3 @@
-_**In seed time learn, in harvest teach, in winter enjoy.**_
+_**The possession of knowledge does not kill the sense of wonder and mystery. There is always more mystery.**_
 
-William Blake
+Anaïs Nin
