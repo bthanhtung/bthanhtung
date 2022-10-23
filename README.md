@@ -1,3 +1,3 @@
-_**The personal life deeply lived always expands into truths beyond itself.**_
+_**The differences between friends cannot but reinforce their friendship.**_
 
-Anaïs Nin
+Mao Zedong
