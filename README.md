@@ -1,3 +1,3 @@
-_**Success is not final; failure is not fatal: it is the courage to continue that counts.**_
+_**The personal life deeply lived always expands into truths beyond itself.**_
 
-Winston Churchill
+Anaïs Nin
