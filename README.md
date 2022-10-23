@@ -1,3 +1,3 @@
-_**Our greatness lies not so much in being able to remake the world as being able to remake ourselves.**_
+_**Success is not final; failure is not fatal: it is the courage to continue that counts.**_
 
-Mahatma Gandhi
+Winston Churchill
