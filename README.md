@@ -1,3 +1,3 @@
-_**The differences between friends cannot but reinforce their friendship.**_
+_**If one advances confidently in the direction of his dream, and endeavors to live the life which he had imagines, he will meet with a success unexpected in common hours.**_
 
-Mao Zedong
+Henry David Thoreau
