@@ -1,3 +1,3 @@
-_**Your worst enemy cannot harm you as much as your own unguarded thoughts.**_
+_**Those who are free of resentful thoughts surely find peace.**_
 
 Buddha
