@@ -1,3 +1,3 @@
-_**Those who are free of resentful thoughts surely find peace.**_
+_**Friendship is but another name for an alliance with the follies and the misfortunes of others. Our own share of miseries is sufficient: why enter then as volunteers into those of another?**_
 
-Buddha
+Thomas Jefferson
