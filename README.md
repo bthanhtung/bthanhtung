@@ -1,3 +1,3 @@
-_**Work out your own salvation. Do not depend on others.**_
+_**Music in the soul can be heard by the universe.**_
 
-Buddha
+Laozi
