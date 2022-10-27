@@ -1,3 +1,3 @@
-_**The essence of true friendship is to make allowance for another's little lapses.**_
+_**Rejoicing in our joy, not suffering over our suffering, makes someone a friend.**_
 
-Ovid
+Friedrich Nietzsche
