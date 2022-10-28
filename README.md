@@ -1,3 +1,3 @@
-_**Rejoicing in our joy, not suffering over our suffering, makes someone a friend.**_
+_**Friendship is certainly the finest balm for the pangs of disappointed love.**_
 
-Friedrich Nietzsche
+Jane Austen
