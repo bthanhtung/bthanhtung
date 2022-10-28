@@ -1,3 +1,3 @@
-_**Friendship is certainly the finest balm for the pangs of disappointed love.**_
+_**The path to success is to take massive, determined action.**_
 
-Jane Austen
+Tony Robbins
