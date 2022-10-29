@@ -1,3 +1,3 @@
-_**Pain and foolishness lead to great bliss and complete knowledge, for Eternal Wisdom created nothing under the sun in vain.**_
+_**Of all the things which wisdom provides to make us entirely happy, much the greatest is the possession of friendship.**_
 
-Kahlil Gibran
+Epicurus
