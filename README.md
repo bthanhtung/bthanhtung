@@ -1,3 +1,3 @@
-_**Technology frightens me to death. It's designed by engineers to impress other engineers. And they always come with instruction booklets that are written by engineers for other engineers — which is why almost no technology ever works.**_
+_**Pain and foolishness lead to great bliss and complete knowledge, for Eternal Wisdom created nothing under the sun in vain.**_
 
-John Cleese
+Kahlil Gibran
