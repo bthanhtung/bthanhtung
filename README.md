@@ -1,3 +1,3 @@
-_**Swim upstream. Go the other way. Ignore the conventional wisdom.**_
+_**We know what we are but know not what we may be.**_
 
-Sam Walton
+William Shakespeare
