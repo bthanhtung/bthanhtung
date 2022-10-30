@@ -1,3 +1,3 @@
-_**Appreciation is the highest form of prayer, for it acknowledges the presence of good wherever you shine the light of your thankful thoughts.**_
+_**Swim upstream. Go the other way. Ignore the conventional wisdom.**_
 
-Alan Cohen
+Sam Walton
