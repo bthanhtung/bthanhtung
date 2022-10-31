@@ -1,3 +1,3 @@
-_**Now this is not the end. It is not even the beginning of the end. But it is, perhaps, the end of the beginning.**_
+_**A failure is a man who has blundered but is not capable of cashing in on the experience.**_
 
-Winston Churchill
+Elbert Hubbard
