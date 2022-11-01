@@ -1,3 +1,3 @@
-_**We all grow up. Hopefully, we get wiser. Age brings wisdom, and fatherhood changes one's life completely.**_
+_**Watch the little things; a small leak will sink a great ship.**_
 
-Frank Abagnale
+Benjamin Franklin
