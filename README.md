@@ -1,3 +1,3 @@
-_**There is no failure except in no longer trying.**_
+_**We all grow up. Hopefully, we get wiser. Age brings wisdom, and fatherhood changes one's life completely.**_
 
-Elbert Hubbard
+Frank Abagnale
