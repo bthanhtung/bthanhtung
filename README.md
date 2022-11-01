@@ -1,3 +1,3 @@
-_**Watch the little things; a small leak will sink a great ship.**_
+_**There is no friendship, no love, like that of the parent for the child.**_
 
-Benjamin Franklin
+Henry Ward Beecher
