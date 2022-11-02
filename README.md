@@ -1,3 +1,3 @@
-_**There is no friendship, no love, like that of the parent for the child.**_
+_**To wear your heart on your sleeve isn't a very good plan; you should wear it inside, where it functions best.**_
 
-Henry Ward Beecher
+Margaret Thatcher
