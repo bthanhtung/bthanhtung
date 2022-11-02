@@ -1,3 +1,3 @@
-_**Fear grows in darkness; if you think there's a bogeyman around, turn on the light.**_
+_**I can, therefore I am.**_
 
-Dorothy Thompson
+Simone Weil
