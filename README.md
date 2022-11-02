@@ -1,3 +1,3 @@
-_**To wear your heart on your sleeve isn't a very good plan; you should wear it inside, where it functions best.**_
+_**Fear grows in darkness; if you think there's a bogeyman around, turn on the light.**_
 
-Margaret Thatcher
+Dorothy Thompson
