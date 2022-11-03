@@ -1,3 +1,3 @@
-_**I cannot always control what goes on outside. But I can always control what goes on inside.**_
+_**Friendship is essentially a partnership.**_
 
-Wayne Dyer
+Aristotle
