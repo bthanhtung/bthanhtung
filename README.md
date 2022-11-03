@@ -1,3 +1,3 @@
-_**A leader or a man of action in a crisis almost always acts subconsciously and then thinks of the reasons for his action.**_
+_**I cannot always control what goes on outside. But I can always control what goes on inside.**_
 
-Jawaharlal Nehru
+Wayne Dyer
