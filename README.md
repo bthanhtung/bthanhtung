@@ -1,3 +1,3 @@
-_**Life is movement-we breathe, we eat, we walk, we move!**_
+_**A house divided against itself cannot stand.**_
 
-John Pierrakos
+Abraham Lincoln
