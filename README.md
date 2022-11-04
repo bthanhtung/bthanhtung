@@ -1,3 +1,3 @@
-_**Friendship is essentially a partnership.**_
+_**Life is movement-we breathe, we eat, we walk, we move!**_
 
-Aristotle
+John Pierrakos
