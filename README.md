@@ -1,3 +1,3 @@
-_**Follow your instincts. That is where true wisdom manifests itself.**_
+_**Real magic in relationships means an absence of judgement of others.**_
 
-Oprah Winfrey
+Wayne Dyer
