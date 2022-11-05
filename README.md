@@ -1,3 +1,3 @@
-_**Real magic in relationships means an absence of judgement of others.**_
+_**Do all things with love.**_
 
-Wayne Dyer
+Og Mandino
