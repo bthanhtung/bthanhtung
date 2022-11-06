@@ -1,3 +1,3 @@
-_**He that is giddy thinks the world turns round.**_
+_**Happiness can exist only in acceptance.**_
 
-William Shakespeare
+George Orwell
