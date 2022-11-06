@@ -1,3 +1,3 @@
-_**Happiness can exist only in acceptance.**_
+_**Vanity can easily overtake wisdom. It usually overtakes common sense.**_
 
-George Orwell
+Julian Casablancas
