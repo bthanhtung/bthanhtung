@@ -1,3 +1,3 @@
-_**Knowledge is proud that it knows so much; wisdom is humble that it knows no more.**_
+_**Those who will play with cats must expect to be scratched.**_
 
-William Cowper
+Miguel de Cervantes
