@@ -1,3 +1,3 @@
-_**Vanity can easily overtake wisdom. It usually overtakes common sense.**_
+_**Knowledge is proud that it knows so much; wisdom is humble that it knows no more.**_
 
-Julian Casablancas
+William Cowper
