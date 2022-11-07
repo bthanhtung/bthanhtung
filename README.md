@@ -1,3 +1,3 @@
-_**Those who will play with cats must expect to be scratched.**_
+_**Music in the soul can be heard by the universe.**_
 
-Miguel de Cervantes
+Laozi
