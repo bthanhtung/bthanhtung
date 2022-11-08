@@ -1,3 +1,3 @@
-_**The most effective way to do it, is to do it.**_
+_**Rejoicing in our joy, not suffering over our suffering, makes someone a friend.**_
 
-Amelia Earhart
+Friedrich Nietzsche
