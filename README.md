@@ -1,3 +1,3 @@
-_**Music in the soul can be heard by the universe.**_
+_**The most effective way to do it, is to do it.**_
 
-Laozi
+Amelia Earhart
