@@ -1,3 +1,3 @@
-_**To give oneself earnestly to the duties due to men, and, while respecting spiritual beings, to keep aloof from them, may be called wisdom.**_
+_**I am not bothered by the fact that I am unknown. I am bothered when I do not know others.**_
 
 Confucius
