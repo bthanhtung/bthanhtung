@@ -1,3 +1,3 @@
-_**You are always free to change your mind and choose a different future, or a different past.**_
+_**Follow your instincts. That is where true wisdom manifests itself.**_
 
-Richard Bach
+Oprah Winfrey
