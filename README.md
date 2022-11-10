@@ -1,3 +1,3 @@
-_**Follow your instincts. That is where true wisdom manifests itself.**_
+_**Don't look back. Something might be gaining on you.**_
 
-Oprah Winfrey
+Satchel Paige
