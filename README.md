@@ -1,3 +1,3 @@
-_**When written in Chinese, the word 'crisis' is composed of two characters. One represents danger and the other represents opportunity.**_
+_**In friendship as well as love, ignorance very often contributes more to our happiness than knowledge.**_
 
-John F. Kennedy
+François de La Rochefoucauld
