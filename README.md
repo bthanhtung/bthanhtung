@@ -1,3 +1,3 @@
-_**Don't look back. Something might be gaining on you.**_
+_**When written in Chinese, the word 'crisis' is composed of two characters. One represents danger and the other represents opportunity.**_
 
-Satchel Paige
+John F. Kennedy
