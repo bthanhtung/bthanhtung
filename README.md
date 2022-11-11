@@ -1,3 +1,3 @@
-_**Gold medals aren't really made of gold. They're made of sweat, determination, and a hard-to-find alloy called guts.**_
+_**Perseverance is a great element of success. If you only knock long enough and loud enough at the gate, you are sure to wake up somebody.**_
 
-Dan Gable
+Henry Wadsworth Longfellow
