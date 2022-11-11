@@ -1,3 +1,3 @@
-_**In friendship as well as love, ignorance very often contributes more to our happiness than knowledge.**_
+_**Gold medals aren't really made of gold. They're made of sweat, determination, and a hard-to-find alloy called guts.**_
 
-François de La Rochefoucauld
+Dan Gable
