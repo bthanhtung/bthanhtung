@@ -1,3 +1,3 @@
-_**Do not give your attention to what others do or fail to do; give it to what you do or fail to do.**_
+_**So is cheerfulness, or a good temper, the more it is spent, the more remains.**_
 
-Dhammapada
+Ralph Waldo Emerson
