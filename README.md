@@ -1,3 +1,3 @@
-_**Sunshine is delicious, rain is refreshing, wind braces us up, snow is exhilarating; there is really no such thing as bad weather, only different kinds of good weather.**_
+_**Do not give your attention to what others do or fail to do; give it to what you do or fail to do.**_
 
-John Ruskin
+Dhammapada
