@@ -1,3 +1,3 @@
-_**So is cheerfulness, or a good temper, the more it is spent, the more remains.**_
+_**What is new in the world? Nothing. What is old in the world? Nothing. Everything has always been and will always be.**_
 
-Ralph Waldo Emerson
+Sai Baba
