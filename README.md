@@ -1,3 +1,3 @@
-_**You always succeed in producing a result.**_
+_**If you owe the bank $100 that's your problem. If you owe the bank $100 million, that's the bank's problem.**_
 
-Tony Robbins
+J. Paul Getty
