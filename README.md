@@ -1,3 +1,3 @@
-_**I will love the light for it shows me the way, yet I will endure the darkness because it shows me the stars.**_
+_**What lies behind us and what lies before us are small matters compared to what lies within us.**_
 
-Og Mandino
+Oliver Wendell Holmes Jr.
