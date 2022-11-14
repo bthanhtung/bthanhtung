@@ -1,3 +1,3 @@
-_**If you owe the bank $100 that's your problem. If you owe the bank $100 million, that's the bank's problem.**_
+_**The only true wisdom is in knowing you know nothing.**_
 
-J. Paul Getty
+Isocrates
