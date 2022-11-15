@@ -1,3 +1,3 @@
-_**What lies behind us and what lies before us are small matters compared to what lies within us.**_
+_**So long as a person is capable of self-renewal they are a living being.**_
 
-Oliver Wendell Holmes Jr.
+Henri-Frédéric Amiel
