@@ -1,3 +1,3 @@
-_**People take different roads seeking fulfilment and happiness. Just because they're not on your road doesn't mean they've gotten lost.**_
+_**I love my past. I love my present. I'm not ashamed of what I've had, and I'm not sad because I have it no longer.**_
 
-Dalai Lama
+Colette
