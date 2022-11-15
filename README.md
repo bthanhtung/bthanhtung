@@ -1,3 +1,3 @@
-_**So long as a person is capable of self-renewal they are a living being.**_
+_**People take different roads seeking fulfilment and happiness. Just because they're not on your road doesn't mean they've gotten lost.**_
 
-Henri-Frédéric Amiel
+Dalai Lama
