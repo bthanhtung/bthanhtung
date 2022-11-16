@@ -1,3 +1,3 @@
-_**The function of wisdom is to discriminate between good and evil.**_
+_**Discovery consists of seeing what everybody has seen and thinking what nobody else has thought.**_
 
-Cicero
+Jonathan Swift
