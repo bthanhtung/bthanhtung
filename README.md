@@ -1,3 +1,3 @@
-_**I love my past. I love my present. I'm not ashamed of what I've had, and I'm not sad because I have it no longer.**_
+_**When you are offended at any man's fault, turn to yourself and study your own failings. Then you will forget your anger.**_
 
-Colette
+Epictetus
