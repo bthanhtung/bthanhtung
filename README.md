@@ -1,3 +1,3 @@
-_**Discovery consists of seeing what everybody has seen and thinking what nobody else has thought.**_
+_**All our talents increase in the using, and every faculty, both good and bad, strengthen by exercise.**_
 
-Jonathan Swift
+Anne Brontë
