@@ -1,3 +1,3 @@
-_**All our talents increase in the using, and every faculty, both good and bad, strengthen by exercise.**_
+_**There are many ways of going forward, but only one way of standing still.**_
 
-Anne Brontë
+Franklin D. Roosevelt
