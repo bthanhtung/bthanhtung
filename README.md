@@ -1,3 +1,3 @@
-_**If you focus on results, you will never change. If you focus on change, you will get results.**_
+_**The real problem is not whether machines think but whether men do.**_
 
-Jack Dixon
+B. F. Skinner
