@@ -1,3 +1,3 @@
-_**The real problem is not whether machines think but whether men do.**_
+_**It is only when the mind and character slumber that the dress can be seen.**_
 
-B. F. Skinner
+Ralph Waldo Emerson
