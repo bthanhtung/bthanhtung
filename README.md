@@ -1,3 +1,3 @@
-_**It is only when the mind and character slumber that the dress can be seen.**_
+_**If it turns out that there is a God, I don't think that he's evil. But the worst that you can say about him is that basically he's an underachiever.**_
 
-Ralph Waldo Emerson
+Woody Allen
