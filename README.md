@@ -1,3 +1,3 @@
-_**If it turns out that there is a God, I don't think that he's evil. But the worst that you can say about him is that basically he's an underachiever.**_
+_**In dwelling, live close to the ground. In thinking, keep to the simple. In conflict, be fair and generous. In governing, don't try to control. In work, do what you enjoy. In family life, be completely present.**_
 
-Woody Allen
+Laozi
