@@ -1,3 +1,3 @@
-_**A day of worry is more exhausting than a day of work.**_
+_**We may encounter many defeats, but we must not be defeated.**_
 
-John Lubbock
+Maya Angelou
