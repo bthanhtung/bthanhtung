@@ -1,3 +1,3 @@
-_**He is able who thinks he is able.**_
+_**A day of worry is more exhausting than a day of work.**_
 
-Buddha
+John Lubbock
