@@ -1,3 +1,3 @@
-_**At the center of your being, you have the answer; you know who you are, and you know what you want.**_
+_**The thought manifests as the word. The word manifests as the deed. The deed develops into habit. And the habit hardens into character.**_
 
-Laozi
+Buddha
