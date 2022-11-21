@@ -1,3 +1,3 @@
-_**It is only the great hearted who can be true friends. The mean and cowardly, can never know what true friendship means.**_
+_**What we think determines what happens to us, so if we want to change our lives, we need to stretch our minds.**_
 
-Charles Kingsley
+Wayne Dyer
