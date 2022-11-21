@@ -1,3 +1,3 @@
-_**What we think determines what happens to us, so if we want to change our lives, we need to stretch our minds.**_
+_**At the center of your being, you have the answer; you know who you are, and you know what you want.**_
 
-Wayne Dyer
+Laozi
