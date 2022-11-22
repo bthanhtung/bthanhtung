@@ -1,3 +1,3 @@
-_**The thought manifests as the word. The word manifests as the deed. The deed develops into habit. And the habit hardens into character.**_
+_**Yesterday is history. Tomorrow is a mystery. And today? Today is a gift. That is why we call it the present.**_
 
-Buddha
+Babatunde Olatunji
