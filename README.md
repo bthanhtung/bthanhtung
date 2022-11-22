@@ -1,3 +1,3 @@
-_**The art of progress is to preserve order amid change, and to preserve change amid order.**_
+_**The superior man understands what is right; the inferior man understands what will sell.**_
 
-Alfred North Whitehead
+Confucius
