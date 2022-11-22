@@ -1,3 +1,3 @@
-_**Yesterday is history. Tomorrow is a mystery. And today? Today is a gift. That is why we call it the present.**_
+_**The art of progress is to preserve order amid change, and to preserve change amid order.**_
 
-Babatunde Olatunji
+Alfred North Whitehead
