@@ -1,3 +1,3 @@
-_**Education is the most powerful weapon which you can use to change the world.**_
+_**Forgiveness is that subtle thread that binds both love and friendship. Without forgiveness, you may not even have a child one day.**_
 
-Nelson Mandela
+George Foreman
