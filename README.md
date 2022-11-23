@@ -1,3 +1,3 @@
-_**Forgiveness is that subtle thread that binds both love and friendship. Without forgiveness, you may not even have a child one day.**_
+_**One may say the eternal mystery of the world is its comprehensibility.**_
 
-George Foreman
+Albert Einstein
