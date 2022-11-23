@@ -1,3 +1,3 @@
-_**The superior man understands what is right; the inferior man understands what will sell.**_
+_**Education is the most powerful weapon which you can use to change the world.**_
 
-Confucius
+Nelson Mandela
