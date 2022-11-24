@@ -1,3 +1,3 @@
-_**One may say the eternal mystery of the world is its comprehensibility.**_
+_**I find hope in the darkest of days, and focus in the brightest. I do not judge the universe.**_
 
-Albert Einstein
+Dalai Lama
