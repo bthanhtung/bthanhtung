@@ -1,3 +1,3 @@
-_**I find hope in the darkest of days, and focus in the brightest. I do not judge the universe.**_
+_**Every time you smile at someone, it is an action of love, a gift to that person, a beautiful thing.**_
 
-Dalai Lama
+Mother Teresa
