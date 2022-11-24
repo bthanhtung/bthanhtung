@@ -1,3 +1,3 @@
-_**Every time you smile at someone, it is an action of love, a gift to that person, a beautiful thing.**_
+_**God made me fast. And when I run, I feel His pleasure.**_
 
-Mother Teresa
+Eric Liddell
