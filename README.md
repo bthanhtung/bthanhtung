@@ -1,3 +1,3 @@
-_**God made me fast. And when I run, I feel His pleasure.**_
+_**He is no fool who gives what he cannot keep to gain what he cannot lose.**_
 
-Eric Liddell
+Jim Elliot
