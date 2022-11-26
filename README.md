@@ -1,3 +1,3 @@
-_**The important thing is this: to be able at any moment to sacrifice what we are for what we could become.**_
+_**To wear your heart on your sleeve isn't a very good plan; you should wear it inside, where it functions best.**_
 
-Charles Du Bos
+Margaret Thatcher
