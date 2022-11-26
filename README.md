@@ -1,3 +1,3 @@
-_**To wear your heart on your sleeve isn't a very good plan; you should wear it inside, where it functions best.**_
+_**He is a wise man who does not grieve for the things which he has not but rejoices for those which he has.**_
 
-Margaret Thatcher
+Epictetus
