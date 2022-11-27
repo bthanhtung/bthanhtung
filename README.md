@@ -1,3 +1,3 @@
-_**He is a wise man who does not grieve for the things which he has not but rejoices for those which he has.**_
+_**Keep me away from the wisdom which does not cry, the philosophy which does not laugh and the greatness which does not bow before children.**_
 
-Epictetus
+Kahlil Gibran
