@@ -1,3 +1,3 @@
-_**The man of knowledge must be able not only to love his enemies but also to hate his friends.**_
+_**Science and technology revolutionize our lives, but memory, tradition and myth frame our response.**_
 
-Friedrich Nietzsche
+Arthur M. Schlesinger Jr.
