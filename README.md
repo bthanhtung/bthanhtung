@@ -1,3 +1,3 @@
-_**Science and technology revolutionize our lives, but memory, tradition and myth frame our response.**_
+_**The winds and waves are always on the side of the ablest navigators.**_
 
-Arthur M. Schlesinger Jr.
+Edward Gibbon
