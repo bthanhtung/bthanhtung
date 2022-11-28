@@ -1,3 +1,3 @@
-_**Friendship, like credit, is highest when it is not used.**_
+_**The man of knowledge must be able not only to love his enemies but also to hate his friends.**_
 
-Elbert Hubbard
+Friedrich Nietzsche
