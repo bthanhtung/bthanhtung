@@ -1,3 +1,3 @@
-_**Fortune favors the brave.**_
+_**Six essential qualities that are the key to success: Sincerity, personal integrity, humility, courtesy, wisdom, charity.**_
 
-Virgil
+William C. Menninger
