@@ -1,3 +1,3 @@
-_**Nature takes away any faculty that is not used.**_
+_**Fortune favors the brave.**_
 
-William Inge
+Virgil
