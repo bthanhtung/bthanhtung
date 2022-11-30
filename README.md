@@ -1,3 +1,3 @@
-_**To climb steep hills requires a slow pace at first.**_
+_**Character develops itself in the stream of life.**_
 
-William Shakespeare
+Johann Wolfgang von Goethe
