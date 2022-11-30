@@ -1,3 +1,3 @@
-_**Six essential qualities that are the key to success: Sincerity, personal integrity, humility, courtesy, wisdom, charity.**_
+_**The greatest discovery of our generation is that human beings can alter their lives by altering their attitudes of mind. As you think, so shall you be.**_
 
-William C. Menninger
+William James
