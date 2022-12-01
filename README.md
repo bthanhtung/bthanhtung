@@ -1,3 +1,3 @@
-_**It is not wisdom but Authority that makes a law.**_
+_**I have no special talent. I am only passionately curious.**_
 
-Thomas Hobbes
+Albert Einstein
