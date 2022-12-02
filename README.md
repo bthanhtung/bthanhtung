@@ -1,3 +1,3 @@
-_**True happiness means forging a strong spirit that is undefeated, no matter how trying our circumstances.**_
+_**May our hearts garden of awakening bloom with hundreds of flowers.**_
 
-Daisaku Ikeda
+Thích Nhất Hạnh
