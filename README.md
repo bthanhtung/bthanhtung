@@ -1,3 +1,3 @@
-_**I have no special talent. I am only passionately curious.**_
+_**You can observe a lot just by watching.**_
 
-Albert Einstein
+Yogi Berra
