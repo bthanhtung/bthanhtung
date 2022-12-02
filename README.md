@@ -1,3 +1,3 @@
-_**You can observe a lot just by watching.**_
+_**True happiness means forging a strong spirit that is undefeated, no matter how trying our circumstances.**_
 
-Yogi Berra
+Daisaku Ikeda
