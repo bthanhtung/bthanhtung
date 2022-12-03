@@ -1,3 +1,3 @@
-_**May our hearts garden of awakening bloom with hundreds of flowers.**_
+_**The greater part of human pain is unnecessary. It is self-created as long as the unobserved mind runs your life.**_
 
-Thích Nhất Hạnh
+Eckhart Tolle
