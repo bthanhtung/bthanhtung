@@ -1,3 +1,3 @@
-_**So is cheerfulness, or a good temper, the more it is spent, the more remains.**_
+_**The greatest minds are capable of the greatest vices as well as of the greatest virtues.**_
 
-Ralph Waldo Emerson
+René Descartes
