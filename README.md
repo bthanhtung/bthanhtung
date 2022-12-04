@@ -1,3 +1,3 @@
-_**Just as treasures are uncovered from the earth, so virtue appears from good deeds, and wisdom appears from a pure and peaceful mind. To walk safely through the maze of human life, one needs the light of wisdom and the guidance of virtue.**_
+_**So is cheerfulness, or a good temper, the more it is spent, the more remains.**_
 
-Buddha
+Ralph Waldo Emerson
