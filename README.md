@@ -1,3 +1,3 @@
-_**The greatest minds are capable of the greatest vices as well as of the greatest virtues.**_
+_**Wherever a man turns he can find someone who needs him.**_
 
-René Descartes
+Albert Schweitzer
