@@ -1,3 +1,3 @@
-_**Wherever a man turns he can find someone who needs him.**_
+_**Sunshine is delicious, rain is refreshing, wind braces us up, snow is exhilarating; there is really no such thing as bad weather, only different kinds of good weather.**_
 
-Albert Schweitzer
+John Ruskin
