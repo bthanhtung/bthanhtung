@@ -1,3 +1,3 @@
-_**History is written by the victors.**_
+_**All wisdom does not reside in Delhi.**_
 
-Winston Churchill
+P. Chidambaram
