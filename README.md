@@ -1,3 +1,3 @@
-_**Stay away from what might have been and look at what will be.**_
+_**Nobody will believe in you unless you believe in yourself.**_
 
-Marsha Petrie Sue
+Liberace
