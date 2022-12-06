@@ -1,3 +1,3 @@
-_**The day of fortune is like a harvest day, we must be busy when the corn is ripe.**_
+_**Stay away from what might have been and look at what will be.**_
 
-Torquato Tasso
+Marsha Petrie Sue
