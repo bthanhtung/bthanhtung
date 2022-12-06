@@ -1,3 +1,3 @@
-_**All wisdom does not reside in Delhi.**_
+_**The day of fortune is like a harvest day, we must be busy when the corn is ripe.**_
 
-P. Chidambaram
+Torquato Tasso
