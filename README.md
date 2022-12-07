@@ -1,3 +1,3 @@
-_**Nobody will believe in you unless you believe in yourself.**_
+_**Learning without reflection is a waste, reflection without learning is dangerous.**_
 
-Liberace
+Confucius
