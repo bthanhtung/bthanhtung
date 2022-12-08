@@ -1,3 +1,3 @@
-_**Vanity can easily overtake wisdom. It usually overtakes common sense.**_
+_**Silence is the true friend that never betrays.**_
 
-Julian Casablancas
+Confucius
