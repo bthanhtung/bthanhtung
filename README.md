@@ -1,3 +1,3 @@
-_**Silence is the true friend that never betrays.**_
+_**Don't settle for a relationship that won't let you be yourself.**_
 
-Confucius
+Oprah Winfrey
