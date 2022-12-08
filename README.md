@@ -1,3 +1,3 @@
-_**Great acts are made up of small deeds.**_
+_**Vanity can easily overtake wisdom. It usually overtakes common sense.**_
 
-Laozi
+Julian Casablancas
