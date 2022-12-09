@@ -1,3 +1,3 @@
-_**Wisdom is always an overmatch for strength.**_
+_**Trying to define yourself is like trying to bite your own teeth.**_
 
-Phil Jackson
+Alan Watts
