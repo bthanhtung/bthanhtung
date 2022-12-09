@@ -1,3 +1,3 @@
-_**Don't settle for a relationship that won't let you be yourself.**_
+_**Wisdom is always an overmatch for strength.**_
 
-Oprah Winfrey
+Phil Jackson
