@@ -1,3 +1,3 @@
-_**I believe that we are solely responsible for our choices, and we have to accept the consequences of every deed, word, and thought throughout our lifetime.**_
+_**What sweetness is left in life, if you take away friendship? Robbing life of friendship is like robbing the world of the sun. A true friend is more to be esteemed than kinsfolk.**_
 
-Elisabeth Kübler-Ross
+Cicero
