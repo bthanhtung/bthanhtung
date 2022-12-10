@@ -1,3 +1,3 @@
-_**To command is to serve, nothing more and nothing less.**_
+_**As we are liberated from our own fear, our presence automatically liberates others.**_
 
-André Malraux
+Nelson Mandela
