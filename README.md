@@ -1,3 +1,3 @@
-_**Trying to define yourself is like trying to bite your own teeth.**_
+_**It had long since come to my attention that people of accomplishment rarely sat back and let things happen to them. They went out and happened to things.**_
 
-Alan Watts
+Leonardo da Vinci
