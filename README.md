@@ -1,3 +1,3 @@
-_**As we are liberated from our own fear, our presence automatically liberates others.**_
+_**Trying to define yourself is like trying to bite your own teeth.**_
 
-Nelson Mandela
+Alan Watts
