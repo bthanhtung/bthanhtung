@@ -1,3 +1,3 @@
-_**Technology is the campfire around which we tell our stories.**_
+_**We must embrace pain and burn it as fuel for our journey.**_
 
-Laurie Anderson
+Kenji Miyazawa
