@@ -1,3 +1,3 @@
-_**You can't choose up sides on a round world.**_
+_**Learning never exhausts the mind.**_
 
-Wayne Dyer
+Leonardo da Vinci
