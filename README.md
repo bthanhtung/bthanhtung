@@ -1,3 +1,3 @@
-_**Learning never exhausts the mind.**_
+_**Technology is the campfire around which we tell our stories.**_
 
-Leonardo da Vinci
+Laurie Anderson
