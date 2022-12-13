@@ -1,3 +1,3 @@
-_**We must embrace pain and burn it as fuel for our journey.**_
+_**To give oneself earnestly to the duties due to men, and, while respecting spiritual beings, to keep aloof from them, may be called wisdom.**_
 
-Kenji Miyazawa
+Confucius
