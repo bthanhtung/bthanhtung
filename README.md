@@ -1,3 +1,3 @@
-_**A goal is a dream with a deadline.**_
+_**Your attitude, not your aptitude, will determine your altitude.**_
 
-Napoleon Hill
+Zig Ziglar
