@@ -1,3 +1,3 @@
-_**If I know what love is, it is because of you.**_
+_**A goal is a dream with a deadline.**_
 
-Hermann Hesse
+Napoleon Hill
