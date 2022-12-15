@@ -1,3 +1,3 @@
-_**Your attitude, not your aptitude, will determine your altitude.**_
+_**Never put off till tomorrow what you can do today.**_
 
-Zig Ziglar
+Thomas Jefferson
