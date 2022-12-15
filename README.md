@@ -1,3 +1,3 @@
-_**Whoso loves, believes the impossible.**_
+_**If you don't know where you are going, any road will get you there.**_
 
-Elizabeth Browning
+Lewis Carroll
