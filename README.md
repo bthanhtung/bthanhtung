@@ -1,3 +1,3 @@
-_**Until you value yourself, you won't value your time. Until you value your time, you won't do anything with it.**_
+_**He can who thinks he can, and he can't who thinks he can't. This is an inexorable, indisputable law.**_
 
-M. Scott Peck
+Pablo Picasso
