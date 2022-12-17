@@ -1,3 +1,3 @@
-_**The foot feels the foot when it feels the ground.**_
+_**The superior man is modest in his speech but exceeds in his actions.**_
 
-Buddha
+Confucius
