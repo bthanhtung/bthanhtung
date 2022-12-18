@@ -1,3 +1,3 @@
-_**I begin with an idea and then it becomes something else.**_
+_**We must not say every mistake is a foolish one.**_
 
-Pablo Picasso
+Cicero
