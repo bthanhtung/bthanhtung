@@ -1,3 +1,3 @@
-_**Things are as they are. Looking out into it the universe at night, we make no comparisons between right and wrong stars, nor between well and badly arranged constellations.**_
+_**It is on our failures that we base a new and different and better success.**_
 
-Alan Watts
+Havelock Ellis
