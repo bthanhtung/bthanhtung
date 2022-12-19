@@ -1,3 +1,3 @@
-_**It is on our failures that we base a new and different and better success.**_
+_**I'm not interested in age. People who tell me their age are silly. You're as old as you feel.**_
 
-Havelock Ellis
+Elizabeth Arden
