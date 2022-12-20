@@ -1,3 +1,3 @@
-_**He is able who thinks he is able.**_
+_**Where all think alike, no one thinks very much.**_
 
-Buddha
+Walter Lippmann
