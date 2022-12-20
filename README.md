@@ -1,3 +1,3 @@
-_**It always seems impossible until it's done.**_
+_**He is able who thinks he is able.**_
 
-Nelson Mandela
+Buddha
