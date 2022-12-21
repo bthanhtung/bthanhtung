@@ -1,3 +1,3 @@
-_**Life's most persistent and urgent question is, 'What are you doing for others?'**_
+_**No bird soars too high if he soars with his own wings.**_
 
-Martin Luther King Jr.
+William Blake
