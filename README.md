@@ -1,3 +1,3 @@
-_**Yesterday is history. Tomorrow is a mystery. And today? Today is a gift. That is why we call it the present.**_
+_**Life's most persistent and urgent question is, 'What are you doing for others?'**_
 
-Babatunde Olatunji
+Martin Luther King Jr.
