@@ -1,3 +1,3 @@
-_**Where all think alike, no one thinks very much.**_
+_**Yesterday is history. Tomorrow is a mystery. And today? Today is a gift. That is why we call it the present.**_
 
-Walter Lippmann
+Babatunde Olatunji
