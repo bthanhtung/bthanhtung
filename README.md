@@ -1,3 +1,3 @@
-_**No bird soars too high if he soars with his own wings.**_
+_**The foolish man seeks happiness in the distance, the wise grows it under his feet.**_
 
-William Blake
+James Oppenheim
