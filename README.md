@@ -1,3 +1,3 @@
-_**The foolish man seeks happiness in the distance, the wise grows it under his feet.**_
+_**Life is a gift, and it offers us the privilege, opportunity, and responsibility to give something back by becoming more**_
 
-James Oppenheim
+Tony Robbins
