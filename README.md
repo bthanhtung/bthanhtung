@@ -1,3 +1,3 @@
-_**Life is a gift, and it offers us the privilege, opportunity, and responsibility to give something back by becoming more**_
+_**Avoid having your ego so close to your position that when your position falls, your ego goes with it.**_
 
-Tony Robbins
+Colin Powell
