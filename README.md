@@ -1,3 +1,3 @@
-_**Treat people as if they were what they ought to be, and you help them to become what they are capable of being.**_
+_**The greatest achievement of humanity is not its works of art, science, or technology, but the recognition of its own dysfunction.**_
 
-Johann Wolfgang von Goethe
+Eckhart Tolle
