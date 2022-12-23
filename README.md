@@ -1,3 +1,3 @@
-_**Avoid having your ego so close to your position that when your position falls, your ego goes with it.**_
+_**Never apologize for showing feelings. When you do so, you apologize for the truth.**_
 
-Colin Powell
+Benjamin Disraeli
