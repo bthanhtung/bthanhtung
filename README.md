@@ -1,3 +1,3 @@
-_**Never apologize for showing feelings. When you do so, you apologize for the truth.**_
+_**Treat people as if they were what they ought to be, and you help them to become what they are capable of being.**_
 
-Benjamin Disraeli
+Johann Wolfgang von Goethe
