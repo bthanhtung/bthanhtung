@@ -1,3 +1,3 @@
-_**The exercise of an extraordinary gift is the supremist pleasure in life.**_
+_**There is no greater harm than that of time wasted.**_
 
-Mark Twain
+Michelangelo
