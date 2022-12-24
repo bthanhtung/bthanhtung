@@ -1,3 +1,3 @@
-_**The greatest achievement of humanity is not its works of art, science, or technology, but the recognition of its own dysfunction.**_
+_**We must overcome the notion that we must be regular. It robs you of the chance to be extraordinary and leads you to the mediocre.**_
 
-Eckhart Tolle
+Uta Hagen
