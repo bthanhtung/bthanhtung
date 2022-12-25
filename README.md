@@ -1,3 +1,3 @@
-_**There is no greater harm than that of time wasted.**_
+_**Some people are born on third base and go through life thinking they hit a triple.**_
 
-Michelangelo
+Barry Switzer
