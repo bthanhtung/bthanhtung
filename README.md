@@ -1,3 +1,3 @@
-_**Some people are born on third base and go through life thinking they hit a triple.**_
+_**We can do no great things, only small things with great love.**_
 
-Barry Switzer
+Mother Teresa
