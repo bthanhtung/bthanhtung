@@ -1,3 +1,3 @@
-_**We can do no great things, only small things with great love.**_
+_**If you set out to be liked, you would be prepared to compromise on anything at any time, and you would achieve nothing.**_
 
-Mother Teresa
+Margaret Thatcher
