@@ -1,3 +1,3 @@
-_**All things must come to the soul from its roots, from where it is planted.**_
+_**They can do all because they think they can.**_
 
-Teresa of Ávila
+Virgil
