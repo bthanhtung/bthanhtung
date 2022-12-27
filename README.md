@@ -1,3 +1,3 @@
-_**To fly, we have to have resistance.**_
+_**All things must come to the soul from its roots, from where it is planted.**_
 
-Maya Lin
+Teresa of Ávila
