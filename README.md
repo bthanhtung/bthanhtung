@@ -1,3 +1,3 @@
-_**Wisdom is found only in truth.**_
+_**To go against the dominant thinking of your friends, of most of the people you see every day, is perhaps the most difficult act of heroism you can perform.**_
 
-Johann Wolfgang von Goethe
+Theodore H. White
