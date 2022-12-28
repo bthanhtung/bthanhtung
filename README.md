@@ -1,3 +1,3 @@
-_**To go against the dominant thinking of your friends, of most of the people you see every day, is perhaps the most difficult act of heroism you can perform.**_
+_**But man is not made for defeat. A man can be destroyed but not defeated.**_
 
-Theodore H. White
+Ernest Hemingway
