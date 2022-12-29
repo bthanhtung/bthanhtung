@@ -1,3 +1,3 @@
-_**But man is not made for defeat. A man can be destroyed but not defeated.**_
+_**All our knowledge has its origins in our perceptions.**_
 
-Ernest Hemingway
+Leonardo da Vinci
