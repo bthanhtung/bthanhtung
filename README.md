@@ -1,3 +1,3 @@
-_**All our knowledge has its origins in our perceptions.**_
+_**If one does not know to which port one is sailing, no wind is favorable.**_
 
-Leonardo da Vinci
+Seneca the Younger
