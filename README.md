@@ -1,3 +1,3 @@
-_**In three words I can sum up everything I've learned about life: it goes on.**_
+_**When something is important enough, you do it even if the odds are not in your favor.**_
 
-Robert Frost
+Elon Musk
