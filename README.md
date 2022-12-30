@@ -1,3 +1,3 @@
-_**The only thing to do with good advice is to pass it on. It is never of any use to oneself.**_
+_**In three words I can sum up everything I've learned about life: it goes on.**_
 
-Oscar Wilde
+Robert Frost
