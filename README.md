@@ -1,3 +1,3 @@
-_**The only true wisdom is in knowing you know nothing.**_
+_**The only thing to do with good advice is to pass it on. It is never of any use to oneself.**_
 
-Isocrates
+Oscar Wilde
