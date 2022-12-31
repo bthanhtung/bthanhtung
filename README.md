@@ -1,3 +1,3 @@
-_**The secret of business is to know something that nobody else knows.**_
+_**The sincere friends of this world are as ship lights in the stormiest of nights.**_
 
-Aristotle Onassis
+Giotto
