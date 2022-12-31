@@ -1,3 +1,3 @@
-_**When something is important enough, you do it even if the odds are not in your favor.**_
+_**The bird of paradise alights only upon the hand that does not grasp.**_
 
-Elon Musk
+John Berry
