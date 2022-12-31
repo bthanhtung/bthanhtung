@@ -1,3 +1,3 @@
-_**The bird of paradise alights only upon the hand that does not grasp.**_
+_**The secret of business is to know something that nobody else knows.**_
 
-John Berry
+Aristotle Onassis
