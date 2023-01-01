@@ -1,3 +1,3 @@
-_**When you doubt your power, you give power to your doubt.**_
+_**There is no greater harm than that of time wasted.**_
 
-Honoré de Balzac
+Michelangelo
