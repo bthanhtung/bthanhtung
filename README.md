@@ -1,3 +1,3 @@
-_**Never accept ultimatums, conventional wisdom, or absolutes.**_
+_**When you doubt your power, you give power to your doubt.**_
 
-Christopher Reeve
+Honoré de Balzac
