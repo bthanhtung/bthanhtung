@@ -1,3 +1,3 @@
-_**The sincere friends of this world are as ship lights in the stormiest of nights.**_
+_**Never accept ultimatums, conventional wisdom, or absolutes.**_
 
-Giotto
+Christopher Reeve
