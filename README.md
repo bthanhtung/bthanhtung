@@ -1,3 +1,3 @@
-_**If we had no winter, the spring would not be so pleasant; if we did not sometimes taste of adversity, prosperity would not be so welcome.**_
+_**Using the power of decision gives you the capacity to get past any excuse to change any and every part of your life in an instant.**_
 
-Anne Bradstreet
+Tony Robbins
