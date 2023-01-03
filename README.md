@@ -1,3 +1,3 @@
-_**Motivation is the art of getting people to do what you want them to do because they want to do it.**_
+_**Give me a lever long enough and a fulcrum on which to place it, and I shall move the world.**_
 
-Dwight D. Eisenhower
+Archimedes
