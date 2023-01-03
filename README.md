@@ -1,3 +1,3 @@
-_**Give me a lever long enough and a fulcrum on which to place it, and I shall move the world.**_
+_**Science gives us knowledge, but only philosophy can give us wisdom.**_
 
-Archimedes
+Will Durant
