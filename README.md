@@ -1,3 +1,3 @@
-_**To effectively communicate, we must realize that we are all different in the way we perceive the world and use this understanding as a guide to our communication with others.**_
+_**In a controversy the instant we feel anger we have already ceased striving for the truth, and have begun striving for ourselves.**_
 
-Tony Robbins
+Buddha
