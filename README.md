@@ -1,3 +1,3 @@
-_**In a controversy the instant we feel anger we have already ceased striving for the truth, and have begun striving for ourselves.**_
+_**A lie gets halfway around the world before the truth has a chance to get its pants on.**_
 
-Buddha
+Winston Churchill
