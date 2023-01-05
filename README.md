@@ -1,3 +1,3 @@
-_**Let me tell you the secret that has led me to my goal: my strength lies solely in my tenacity.**_
+_**I am of the opinion that my life belongs to the community, and as long as I live it is my privilege to do for it whatever I can.**_
 
-Louis Pasteur
+Bernard Shaw
