@@ -1,3 +1,3 @@
-_**A lie gets halfway around the world before the truth has a chance to get its pants on.**_
+_**Let me tell you the secret that has led me to my goal: my strength lies solely in my tenacity.**_
 
-Winston Churchill
+Louis Pasteur
