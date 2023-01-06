@@ -1,3 +1,3 @@
-_**One today is worth two tomorrows.**_
+_**By living deeply in the present moment we can understand the past better and we can prepare for a better future.**_
 
-Benjamin Franklin
+Thích Nhất Hạnh
