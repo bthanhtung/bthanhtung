@@ -1,3 +1,3 @@
-_**I am of the opinion that my life belongs to the community, and as long as I live it is my privilege to do for it whatever I can.**_
+_**If you find yourself in a hole, the first thing to do is stop digging.**_
 
-Bernard Shaw
+Will Rogers
