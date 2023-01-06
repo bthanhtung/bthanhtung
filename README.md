@@ -1,3 +1,3 @@
-_**If you find yourself in a hole, the first thing to do is stop digging.**_
+_**One today is worth two tomorrows.**_
 
-Will Rogers
+Benjamin Franklin
