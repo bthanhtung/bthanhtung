@@ -1,3 +1,3 @@
-_**By living deeply in the present moment we can understand the past better and we can prepare for a better future.**_
+_**By going beyond your own problems and taking care of others, you gain inner strength, self-confidence, courage, and a greater sense of calm.**_
 
-Thích Nhất Hạnh
+Dalai Lama
