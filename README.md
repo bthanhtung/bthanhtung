@@ -1,3 +1,3 @@
-_**You and I are all as much continuous with the physical universe as a wave is continuous with the ocean.**_
+_**Life is what happens to you while you're busy making other plans.**_
 
-Alan Watts
+John Lennon
