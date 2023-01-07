@@ -1,3 +1,3 @@
-_**By going beyond your own problems and taking care of others, you gain inner strength, self-confidence, courage, and a greater sense of calm.**_
+_**You and I are all as much continuous with the physical universe as a wave is continuous with the ocean.**_
 
-Dalai Lama
+Alan Watts
