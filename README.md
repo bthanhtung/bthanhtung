@@ -1,3 +1,3 @@
-_**Life is what happens to you while you're busy making other plans.**_
+_**To change one's life, start immediately, do it flamboyantly, no exceptions.**_
 
-John Lennon
+William James
