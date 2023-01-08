@@ -1,3 +1,3 @@
-_**To be wronged is nothing unless you continue to remember it.**_
+_**A man sees in the world what he carries in his heart.**_
 
-Confucius
+Johann Wolfgang von Goethe
