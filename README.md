@@ -1,3 +1,3 @@
-_**To change one's life, start immediately, do it flamboyantly, no exceptions.**_
+_**To be wronged is nothing unless you continue to remember it.**_
 
-William James
+Confucius
