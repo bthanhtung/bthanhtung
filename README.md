@@ -1,3 +1,3 @@
-_**A man sees in the world what he carries in his heart.**_
+_**Life isn't about finding yourself. Life is about creating yourself.**_
 
-Johann Wolfgang von Goethe
+Bernard Shaw
