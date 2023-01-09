@@ -1,3 +1,3 @@
-_**Life isn't about finding yourself. Life is about creating yourself.**_
+_**The attempt to combine wisdom and power has only rarely been successful and then only for a short while.**_
 
-Bernard Shaw
+Albert Einstein
