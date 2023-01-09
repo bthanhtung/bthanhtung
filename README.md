@@ -1,3 +1,3 @@
-_**The attempt to combine wisdom and power has only rarely been successful and then only for a short while.**_
+_**We all grow up. Hopefully, we get wiser. Age brings wisdom, and fatherhood changes one's life completely.**_
 
-Albert Einstein
+Frank Abagnale
