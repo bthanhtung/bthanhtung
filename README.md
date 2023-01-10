@@ -1,3 +1,3 @@
-_**Real success is finding your lifework in the work that you love.**_
+_**Work for something because it is good, not just because it stands a chance to succeed.**_
 
-David McCullough
+Václav Havel
