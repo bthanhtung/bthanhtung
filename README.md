@@ -1,3 +1,3 @@
-_**Work for something because it is good, not just because it stands a chance to succeed.**_
+_**Nothing is at last sacred but the integrity of your own mind.**_
 
-Václav Havel
+Ralph Waldo Emerson
