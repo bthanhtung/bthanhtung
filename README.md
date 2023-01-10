@@ -1,3 +1,3 @@
-_**We all grow up. Hopefully, we get wiser. Age brings wisdom, and fatherhood changes one's life completely.**_
+_**Real success is finding your lifework in the work that you love.**_
 
-Frank Abagnale
+David McCullough
