@@ -1,3 +1,3 @@
-_**Nothing is at last sacred but the integrity of your own mind.**_
+_**No pessimist ever discovered the secrets of the stars, or sailed to an uncharted land, or opened a new heaven to the human spirit.**_
 
-Ralph Waldo Emerson
+Helen Keller
