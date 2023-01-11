@@ -1,3 +1,3 @@
-_**True friends stab you in the front.**_
+_**Much wisdom often goes with fewer words.**_
 
-Oscar Wilde
+Sophocles
