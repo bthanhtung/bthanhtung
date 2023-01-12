@@ -1,3 +1,3 @@
-_**Much wisdom often goes with fewer words.**_
+_**To accomplish great things, we must not only act, but also dream; not only plan, but also believe.**_
 
-Sophocles
+Anatole France
