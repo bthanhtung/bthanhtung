@@ -1,3 +1,3 @@
-_**Change in all things is sweet.**_
+_**Faith in oneself is the best and safest course.**_
 
-Aristotle
+Michelangelo
