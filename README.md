@@ -1,3 +1,3 @@
-_**When you realize there is nothing lacking, the whole world belongs to you.**_
+_**Yesterday is history. Tomorrow is a mystery. And today? Today is a gift. That is why we call it the present.**_
 
-Laozi
+Babatunde Olatunji
