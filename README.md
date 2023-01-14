@@ -1,3 +1,3 @@
-_**Yesterday is history. Tomorrow is a mystery. And today? Today is a gift. That is why we call it the present.**_
+_**At the center of your being, you have the answer; you know who you are, and you know what you want.**_
 
-Babatunde Olatunji
+Laozi
