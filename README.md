@@ -1,3 +1,3 @@
-_**No act of kindness, no matter how small, is ever wasted.**_
+_**When you realize there is nothing lacking, the whole world belongs to you.**_
 
-Aesop
+Laozi
