@@ -1,3 +1,3 @@
-_**Friendship, like the immortality of the soul, is too good to be believed.**_
+_**When you see a man of worth, think of how you may emulate him. When you see one who is unworthy, examine yourself.**_
 
-Ralph Waldo Emerson
+Confucius
