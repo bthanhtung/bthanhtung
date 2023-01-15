@@ -1,3 +1,3 @@
-_**Friendship increases in visiting friends, but in visiting them seldom.**_
+_**Friendship, like the immortality of the soul, is too good to be believed.**_
 
-Francis Bacon
+Ralph Waldo Emerson
