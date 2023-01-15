@@ -1,3 +1,3 @@
-_**At the center of your being, you have the answer; you know who you are, and you know what you want.**_
+_**Friendship increases in visiting friends, but in visiting them seldom.**_
 
-Laozi
+Francis Bacon
