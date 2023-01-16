@@ -1,3 +1,3 @@
-_**When you see a man of worth, think of how you may emulate him. When you see one who is unworthy, examine yourself.**_
+_**Friendship is a very taxing and arduous form of leisure activity.**_
 
-Confucius
+Mortimer J. Adler
