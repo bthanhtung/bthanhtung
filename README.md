@@ -1,3 +1,3 @@
-_**The truest wisdom is a resolute determination.**_
+_**I can't listen to that much Wagner. I start getting the urge to conquer Poland.**_
 
-Napoleon
+Woody Allen
