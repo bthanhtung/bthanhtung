@@ -1,3 +1,3 @@
-_**Friendship is a very taxing and arduous form of leisure activity.**_
+_**The truest wisdom is a resolute determination.**_
 
-Mortimer J. Adler
+Napoleon
