@@ -1,3 +1,3 @@
-_**We must embrace pain and burn it as fuel for our journey.**_
+_**Whatever you do in life, surround yourself with smart people who'll argue with you.**_
 
-Kenji Miyazawa
+John Wooden
