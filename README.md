@@ -1,3 +1,3 @@
-_**To lead people walk behind them.**_
+_**We must embrace pain and burn it as fuel for our journey.**_
 
-Laozi
+Kenji Miyazawa
