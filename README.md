@@ -1,3 +1,3 @@
-_**I can't listen to that much Wagner. I start getting the urge to conquer Poland.**_
+_**To lead people walk behind them.**_
 
-Woody Allen
+Laozi
