@@ -1,3 +1,3 @@
-_**An ant on the move does more than a dozing ox**_
+_**The philosophy of the school room in one generation will be the philosophy of government in the next.**_
 
-Laozi
+Abraham Lincoln
