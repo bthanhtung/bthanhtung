@@ -1,3 +1,3 @@
-_**Whatever you do in life, surround yourself with smart people who'll argue with you.**_
+_**An ant on the move does more than a dozing ox**_
 
-John Wooden
+Laozi
