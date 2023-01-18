@@ -1,3 +1,3 @@
-_**The philosophy of the school room in one generation will be the philosophy of government in the next.**_
+_**First-rate people hire first-rate people; second-rate people hire third-rate people.**_
 
-Abraham Lincoln
+Leo Rosten
