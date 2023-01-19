@@ -1,3 +1,3 @@
-_**Whoso loves, believes the impossible.**_
+_**Through meditation and by giving full attention to one thing at a time, we can learn to direct attention where we choose.**_
 
-Elizabeth Browning
+Eknath Easwaran
