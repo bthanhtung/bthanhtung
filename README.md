@@ -1,3 +1,3 @@
-_**Through meditation and by giving full attention to one thing at a time, we can learn to direct attention where we choose.**_
+_**If you want a thing done well, do it yourself.**_
 
-Eknath Easwaran
+Napoleon
