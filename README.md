@@ -1,3 +1,3 @@
-_**First-rate people hire first-rate people; second-rate people hire third-rate people.**_
+_**Whoso loves, believes the impossible.**_
 
-Leo Rosten
+Elizabeth Browning
