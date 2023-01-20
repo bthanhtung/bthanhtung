@@ -1,3 +1,3 @@
-_**If you want a thing done well, do it yourself.**_
+_**Speak low, if you speak love.**_
 
-Napoleon
+William Shakespeare
