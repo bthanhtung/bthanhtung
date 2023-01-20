@@ -1,3 +1,3 @@
-_**The superior man acts before he speaks, and afterwards speaks according to his action.**_
+_**The key to growth is the introduction of higher dimensions of consciousness into our awareness.**_
 
-Confucius
+Laozi
