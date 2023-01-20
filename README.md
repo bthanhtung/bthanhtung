@@ -1,3 +1,3 @@
-_**Speak low, if you speak love.**_
+_**The superior man acts before he speaks, and afterwards speaks according to his action.**_
 
-William Shakespeare
+Confucius
