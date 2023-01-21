@@ -1,3 +1,3 @@
-_**No bird soars too high if he soars with his own wings.**_
+_**What is necessary to change a person is to change his awareness of himself.**_
 
-William Blake
+Abraham Maslow
