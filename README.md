@@ -1,3 +1,3 @@
-_**The key to growth is the introduction of higher dimensions of consciousness into our awareness.**_
+_**No bird soars too high if he soars with his own wings.**_
 
-Laozi
+William Blake
