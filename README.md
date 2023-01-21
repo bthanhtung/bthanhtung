@@ -1,3 +1,3 @@
-_**What is necessary to change a person is to change his awareness of himself.**_
+_**Those who dream by day are cognizant of many things which escape those who dream only by night.**_
 
-Abraham Maslow
+Edgar Allan Poe
