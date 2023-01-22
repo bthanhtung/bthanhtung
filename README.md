@@ -1,3 +1,3 @@
-_**Those who dream by day are cognizant of many things which escape those who dream only by night.**_
+_**Love yourself first and everything else falls into line. You really have to love yourself to get anything done in this world.**_
 
-Edgar Allan Poe
+Lucille Ball
