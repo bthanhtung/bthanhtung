@@ -1,3 +1,3 @@
-_**Love yourself first and everything else falls into line. You really have to love yourself to get anything done in this world.**_
+_**If I were two-faced, would I be wearing this one?**_
 
-Lucille Ball
+Abraham Lincoln
