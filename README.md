@@ -1,3 +1,3 @@
-_**If I were two-faced, would I be wearing this one?**_
+_**No person is your friend who demands your silence or denies your right to grow.**_
 
-Abraham Lincoln
+Alice Walker
