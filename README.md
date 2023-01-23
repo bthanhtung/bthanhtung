@@ -1,3 +1,3 @@
-_**The spirit, the will to win, and the will to excel, are the things that endure. These qualities are so much more important than the events that occur.**_
+_**Knowledge comes, but wisdom lingers. It may not be difficult to store up in the mind a vast quantity of facts within a comparatively short time, but the ability to form judgments requires the severe discipline of hard work and the tempering heat of experience and maturity.**_
 
-Vince Lombardi
+Calvin Coolidge
