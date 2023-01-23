@@ -1,3 +1,3 @@
-_**No person is your friend who demands your silence or denies your right to grow.**_
+_**There is some self-interest behind every friendship. There is no friendship without self-interests. This is a bitter truth.**_
 
-Alice Walker
+Chanakya
