@@ -1,3 +1,3 @@
-_**You can't cross the sea merely by standing and staring at the water.**_
+_**Honesty is the best policy.**_
 
-Rabindranath Tagore
+Benjamin Franklin
