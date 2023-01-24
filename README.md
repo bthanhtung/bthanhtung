@@ -1,3 +1,3 @@
-_**Knowledge comes, but wisdom lingers. It may not be difficult to store up in the mind a vast quantity of facts within a comparatively short time, but the ability to form judgments requires the severe discipline of hard work and the tempering heat of experience and maturity.**_
+_**It is better to have enough ideas for some of them to be wrong, than to be always right by having no ideas at all.**_
 
-Calvin Coolidge
+Edward de Bono
