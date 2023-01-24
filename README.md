@@ -1,3 +1,3 @@
-_**It is better to have enough ideas for some of them to be wrong, than to be always right by having no ideas at all.**_
+_**You can't cross the sea merely by standing and staring at the water.**_
 
-Edward de Bono
+Rabindranath Tagore
