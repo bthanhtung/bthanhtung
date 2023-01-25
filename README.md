@@ -1,3 +1,3 @@
-_**Walking with a friend in the dark is better than walking alone in the light.**_
+_**Once you choose hope, anything's possible.**_
 
-Helen Keller
+Christopher Reeve
