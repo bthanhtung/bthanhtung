@@ -1,3 +1,3 @@
-_**Honesty is the best policy.**_
+_**Walking with a friend in the dark is better than walking alone in the light.**_
 
-Benjamin Franklin
+Helen Keller
