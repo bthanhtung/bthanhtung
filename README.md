@@ -1,3 +1,3 @@
-_**Once you choose hope, anything's possible.**_
+_**If you're going through hell, keep going.**_
 
-Christopher Reeve
+Winston Churchill
