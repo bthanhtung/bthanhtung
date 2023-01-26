@@ -1,3 +1,3 @@
-_**I am fond of pigs. Dogs look up to us. Cats look down on us. Pigs treat us as equals.**_
+_**He who knows, does not speak. He who speaks, does not know.**_
 
-Winston Churchill
+Laozi
