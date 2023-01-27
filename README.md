@@ -1,3 +1,3 @@
-_**He who knows, does not speak. He who speaks, does not know.**_
+_**He who has imagination without learning has wings but no feet.**_
 
-Laozi
+Joseph Joubert
