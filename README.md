@@ -1,3 +1,3 @@
-_**Everything has beauty, but not everyone sees it.**_
+_**The best thing in every noble dream is the dreamer...**_
 
-Confucius
+Moncure D. Conway
