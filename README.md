@@ -1,3 +1,3 @@
-_**He who has imagination without learning has wings but no feet.**_
+_**Everything has beauty, but not everyone sees it.**_
 
-Joseph Joubert
+Confucius
