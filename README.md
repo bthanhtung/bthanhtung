@@ -1,3 +1,3 @@
-_**The best thing in every noble dream is the dreamer...**_
+_**We must reach out our hand in friendship and dignity both to those who would befriend us and those who would be our enemy.**_
 
-Moncure D. Conway
+Arthur Ashe
