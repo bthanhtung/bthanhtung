@@ -1,3 +1,3 @@
-_**We must reach out our hand in friendship and dignity both to those who would befriend us and those who would be our enemy.**_
+_**I do not believe in a fate that falls on men however they act; but I do believe in a fate that falls on man unless they act.**_
 
-Arthur Ashe
+G. K. Chesterton
