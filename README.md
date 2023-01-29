@@ -1,3 +1,3 @@
-_**Walking with a friend in the dark is better than walking alone in the light.**_
+_**When the solution is simple, God is answering.**_
 
-Helen Keller
+Albert Einstein
