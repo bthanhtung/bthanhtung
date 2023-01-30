@@ -1,3 +1,3 @@
-_**Action is eloquence.**_
+_**To exist is to change, to change is to mature, to mature is to go on creating oneself endlessly.**_
 
-William Shakespeare
+Henri Bergson
