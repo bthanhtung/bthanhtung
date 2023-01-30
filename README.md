@@ -1,3 +1,3 @@
-_**The most I can do for my friend is simply be his friend.**_
+_**Action is eloquence.**_
 
-Henry David Thoreau
+William Shakespeare
