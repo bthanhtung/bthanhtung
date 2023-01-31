@@ -1,3 +1,3 @@
-_**The greater our knowledge increases the more our ignorance unfolds.**_
+_**We love life, not because we are used to living but because we are used to loving.**_
 
-John F. Kennedy
+Friedrich Nietzsche
