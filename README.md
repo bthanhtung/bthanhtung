@@ -1,3 +1,3 @@
-_**To exist is to change, to change is to mature, to mature is to go on creating oneself endlessly.**_
+_**The greater our knowledge increases the more our ignorance unfolds.**_
 
-Henri Bergson
+John F. Kennedy
