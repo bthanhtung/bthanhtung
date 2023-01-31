@@ -1,3 +1,3 @@
-_**We love life, not because we are used to living but because we are used to loving.**_
+_**A good hockey player plays where the puck is. A great hockey player plays where the puck is going to be.**_
 
-Friedrich Nietzsche
+Wayne Gretzky
