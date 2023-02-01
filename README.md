@@ -1,3 +1,3 @@
-_**A good hockey player plays where the puck is. A great hockey player plays where the puck is going to be.**_
+_**Of all the things which wisdom provides to make us entirely happy, much the greatest is the possession of friendship.**_
 
-Wayne Gretzky
+Epicurus
