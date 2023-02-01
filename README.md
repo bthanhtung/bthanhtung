@@ -1,3 +1,3 @@
-_**Wherever a man turns he can find someone who needs him.**_
+_**Even if you're on the right track, you'll get run over if you just sit there.**_
 
-Albert Schweitzer
+Will Rogers
