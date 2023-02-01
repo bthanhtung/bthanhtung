@@ -1,3 +1,3 @@
-_**Of all the things which wisdom provides to make us entirely happy, much the greatest is the possession of friendship.**_
+_**Wherever a man turns he can find someone who needs him.**_
 
-Epicurus
+Albert Schweitzer
