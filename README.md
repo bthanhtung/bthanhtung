@@ -1,3 +1,3 @@
-_**One man practicing sportsmanship is far better than a hundred teaching it.**_
+_**The simplest things are often the truest.**_
 
-Knute Rockne
+Richard Bach
