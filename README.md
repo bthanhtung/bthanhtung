@@ -1,3 +1,3 @@
-_**The universe is full of magical things, patiently waiting for our wits to grow sharper.**_
+_**You can stand tall without standing on someone. You can be a victor without having victims.**_
 
-Eden Phillpotts
+Harriet Woods
