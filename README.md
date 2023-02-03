@@ -1,3 +1,3 @@
-_**But I'll tell you what hermits realize. If you go off into a far, far forest and get very quiet, you'll come to understand that you're connected with everything.**_
+_**The universe is full of magical things, patiently waiting for our wits to grow sharper.**_
 
-Alan Watts
+Eden Phillpotts
