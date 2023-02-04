@@ -1,3 +1,3 @@
-_**You can stand tall without standing on someone. You can be a victor without having victims.**_
+_**Those that know, do. Those that understand, teach.**_
 
-Harriet Woods
+Aristotle
