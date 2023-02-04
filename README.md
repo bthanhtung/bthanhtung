@@ -1,3 +1,3 @@
-_**Those that know, do. Those that understand, teach.**_
+_**There is no duty we so underrate as the duty of being happy. By being happy we sow anonymous benefits upon the world.**_
 
-Aristotle
+Robert Louis Stevenson
