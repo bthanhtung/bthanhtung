@@ -1,3 +1,3 @@
-_**The pessimist complains about the wind; the optimist expects it to change; the realist adjusts the sails.**_
+_**Appreciation can make a day, even change a life. Your willingness to put it into words is all that is necessary.**_
 
-William Arthur Ward
+Margaret Cousins
