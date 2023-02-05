@@ -1,3 +1,3 @@
-_**Good actions give strength to ourselves and inspire good actions in others.**_
+_**The pessimist complains about the wind; the optimist expects it to change; the realist adjusts the sails.**_
 
-Plato
+William Arthur Ward
