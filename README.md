@@ -1,3 +1,3 @@
-_**Appreciation can make a day, even change a life. Your willingness to put it into words is all that is necessary.**_
+_**Make the best use of what is in your power and take the rest as it happens.**_
 
-Margaret Cousins
+Epictetus
