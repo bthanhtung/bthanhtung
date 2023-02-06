@@ -1,3 +1,3 @@
-_**All our talents increase in the using, and every faculty, both good and bad, strengthen by exercise.**_
+_**We all grow up. Hopefully, we get wiser. Age brings wisdom, and fatherhood changes one's life completely.**_
 
-Anne Brontë
+Frank Abagnale
