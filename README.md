@@ -1,3 +1,3 @@
-_**Moral excellence comes about as a result of habit. We become just by doing just acts, temperate by doing temperate acts, brave by doing brave acts.**_
+_**All our talents increase in the using, and every faculty, both good and bad, strengthen by exercise.**_
 
-Aristotle
+Anne Brontë
