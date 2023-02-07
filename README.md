@@ -1,3 +1,3 @@
-_**We all grow up. Hopefully, we get wiser. Age brings wisdom, and fatherhood changes one's life completely.**_
+_**Trouble is only opportunity in work clothes.**_
 
-Frank Abagnale
+Henry J. Kaiser
