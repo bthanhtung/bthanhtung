@@ -1,3 +1,3 @@
-_**Trust only movement. Life happens at the level of events, not of words. Trust movement.**_
+_**Always be a first-rate version of yourself, instead of a second-rate version of somebody else.**_
 
-Alfred Adler
+Judy Garland
