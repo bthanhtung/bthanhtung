@@ -1,3 +1,3 @@
-_**Friendship with oneself is all important because without it one cannot be friends with anybody else in the world.**_
+_**I am a firm believer in the people. If given the truth, they can be depended upon to meet any national crisis. The great point is to bring them the real facts.**_
 
-Eleanor Roosevelt
+Abraham Lincoln
