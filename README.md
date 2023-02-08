@@ -1,3 +1,3 @@
-_**One that desires to excel should endeavor in those things that are in themselves most excellent.**_
+_**Friendship with oneself is all important because without it one cannot be friends with anybody else in the world.**_
 
-Epictetus
+Eleanor Roosevelt
