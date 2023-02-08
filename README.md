@@ -1,3 +1,3 @@
-_**Always be a first-rate version of yourself, instead of a second-rate version of somebody else.**_
+_**One that desires to excel should endeavor in those things that are in themselves most excellent.**_
 
-Judy Garland
+Epictetus
