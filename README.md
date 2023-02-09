@@ -1,3 +1,3 @@
-_**I am a firm believer in the people. If given the truth, they can be depended upon to meet any national crisis. The great point is to bring them the real facts.**_
+_**Do all things with love.**_
 
-Abraham Lincoln
+Og Mandino
