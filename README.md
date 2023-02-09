@@ -1,3 +1,3 @@
-_**Between saying and doing, many a pair of shoes is worn out.**_
+_**Problems are only opportunities with thorns on them.**_
 
-Iris Murdoch
+Hugh Miller
