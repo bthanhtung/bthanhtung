@@ -1,3 +1,3 @@
-_**Do all things with love.**_
+_**Between saying and doing, many a pair of shoes is worn out.**_
 
-Og Mandino
+Iris Murdoch
