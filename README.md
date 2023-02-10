@@ -1,3 +1,3 @@
-_**Those who are blessed with the most talent don't necessarily outperform everyone else. It's the people with follow-through who excel.**_
+_**There are two kinds of failures: those who thought and never did, and those who did and never thought.**_
 
-Mary Kay Ash
+Laurence J. Peter
