@@ -1,3 +1,3 @@
-_**Problems are only opportunities with thorns on them.**_
+_**Those who are blessed with the most talent don't necessarily outperform everyone else. It's the people with follow-through who excel.**_
 
-Hugh Miller
+Mary Kay Ash
