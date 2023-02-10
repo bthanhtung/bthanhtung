@@ -1,3 +1,3 @@
-_**There are two kinds of failures: those who thought and never did, and those who did and never thought.**_
+_**The difference between what we do and what we are capable of doing would suffice to solve most of the world's problems.**_
 
-Laurence J. Peter
+Mahatma Gandhi
