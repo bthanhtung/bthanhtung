@@ -1,3 +1,3 @@
-_**A man must be big enough to admit his mistakes, smart enough to profit from them, and strong enough to correct them.**_
+_**By believing passionately in something that does not yet exist, we create it.**_
 
-John C. Maxwell
+Nikos Kazantzakis
