@@ -1,3 +1,3 @@
-_**By believing passionately in something that does not yet exist, we create it.**_
+_**Don't wait. The time will never be just right.**_
 
-Nikos Kazantzakis
+Napoleon Hill
