@@ -1,3 +1,3 @@
-_**Don't wait. The time will never be just right.**_
+_**The superior man acts before he speaks, and afterwards speaks according to his action.**_
 
-Napoleon Hill
+Confucius
