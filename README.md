@@ -1,3 +1,3 @@
-_**Do more than dream: work.**_
+_**Look back over the past, with its changing empires that rose and fell, and you can foresee the future, too.**_
 
-William Arthur Ward
+Marcus Aurelius
