@@ -1,3 +1,3 @@
-_**Look back over the past, with its changing empires that rose and fell, and you can foresee the future, too.**_
+_**Thought is the blossom; language the bud; action the fruit behind it.**_
 
-Marcus Aurelius
+Ralph Waldo Emerson
