@@ -1,3 +1,3 @@
-_**But what is liberty without wisdom, and without virtue? It is the greatest of all possible evils; for it is folly, vice, and madness, without tuition or restraint.**_
+_**The wise man does not lay up his own treasures. The more he gives to others, the more he has for his own.**_
 
-Edmund Burke
+Laozi
