@@ -1,3 +1,3 @@
-_**All things change; nothing perishes.**_
+_**Problems are not stop signs, they are guidelines.**_
 
-Ovid
+Robert Schuller
