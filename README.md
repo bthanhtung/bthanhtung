@@ -1,3 +1,3 @@
-_**Keep me away from the wisdom which does not cry, the philosophy which does not laugh and the greatness which does not bow before children.**_
+_**Once a new technology rolls over you, if you're not part of the steamroller, you're part of the road.**_
 
-Kahlil Gibran
+Stewart Brand
