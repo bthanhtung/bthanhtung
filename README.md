@@ -1,3 +1,3 @@
-_**Problems are not stop signs, they are guidelines.**_
+_**Keep me away from the wisdom which does not cry, the philosophy which does not laugh and the greatness which does not bow before children.**_
 
-Robert Schuller
+Kahlil Gibran
