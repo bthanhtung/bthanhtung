@@ -1,3 +1,3 @@
-_**Happiness can exist only in acceptance.**_
+_**Success is not final; failure is not fatal: it is the courage to continue that counts.**_
 
-George Orwell
+Winston Churchill
