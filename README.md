@@ -1,3 +1,3 @@
-_**Great minds discuss ideas; average minds discuss events; small minds discuss people.**_
+_**Respect should be earned by actions, and not acquired by years.**_
 
-Eleanor Roosevelt
+Frank Lloyd Wright
