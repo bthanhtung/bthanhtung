@@ -1,3 +1,3 @@
-_**Be slow in choosing a friend, slower in changing.**_
+_**Great minds discuss ideas; average minds discuss events; small minds discuss people.**_
 
-Benjamin Franklin
+Eleanor Roosevelt
