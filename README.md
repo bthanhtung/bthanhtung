@@ -1,3 +1,3 @@
-_**Respect should be earned by actions, and not acquired by years.**_
+_**Even youngish men can acquire wisdom as time goes by.**_
 
-Frank Lloyd Wright
+John Bercow
