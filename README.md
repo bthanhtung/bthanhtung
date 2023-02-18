@@ -1,3 +1,3 @@
-_**A friend is what the heart needs all the time.**_
+_**When you discover your mission, you will feel its demand. It will fill you with enthusiasm and a burning desire to get to work on it.**_
 
-Henry van Dyke Jr.
+W. Clement Stone
