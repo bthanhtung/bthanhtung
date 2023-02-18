@@ -1,3 +1,3 @@
-_**Even youngish men can acquire wisdom as time goes by.**_
+_**A friend is what the heart needs all the time.**_
 
-John Bercow
+Henry van Dyke Jr.
