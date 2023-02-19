@@ -1,3 +1,3 @@
-_**When you discover your mission, you will feel its demand. It will fill you with enthusiasm and a burning desire to get to work on it.**_
+_**Rock n' roll as a genre is different from pop and hip hop: it is about bands, and that for me suggests brotherhood, family, friendship and community.**_
 
-W. Clement Stone
+Steven Van Zandt
