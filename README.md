@@ -1,3 +1,3 @@
-_**I have an everyday religion that works for me. Love yourself first, and everything else falls into line.**_
+_**What we think determines what happens to us, so if we want to change our lives, we need to stretch our minds.**_
 
-Lucille Ball
+Wayne Dyer
