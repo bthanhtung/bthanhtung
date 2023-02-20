@@ -1,3 +1,3 @@
-_**What we think determines what happens to us, so if we want to change our lives, we need to stretch our minds.**_
+_**It is impossible to love and to be wise.**_
 
-Wayne Dyer
+Francis Bacon
