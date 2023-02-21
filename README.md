@@ -1,3 +1,3 @@
-_**It is impossible to love and to be wise.**_
+_**You're never a loser until you quit trying.**_
 
-Francis Bacon
+Mike Ditka
