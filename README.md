@@ -1,3 +1,3 @@
-_**No one has a finer command of language than the person who keeps his mouth shut.**_
+_**To be wrong is nothing unless you continue to remember it.**_
 
-Sam Rayburn
+Confucius
