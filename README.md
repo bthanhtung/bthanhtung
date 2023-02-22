@@ -1,3 +1,3 @@
-_**Let us be grateful to people who make us happy; they are the charming gardeners who make our souls blossom.**_
+_**If I were two-faced, would I be wearing this one?**_
 
-Marcel Proust
+Abraham Lincoln
