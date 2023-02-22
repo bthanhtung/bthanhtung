@@ -1,3 +1,3 @@
-_**To be wrong is nothing unless you continue to remember it.**_
+_**Good, better, best. Never let it rest. ‘Til your good is better and your better is best.**_
 
-Confucius
+Jerome
