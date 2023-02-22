@@ -1,3 +1,3 @@
-_**Good, better, best. Never let it rest. ‘Til your good is better and your better is best.**_
+_**Let us be grateful to people who make us happy; they are the charming gardeners who make our souls blossom.**_
 
-Jerome
+Marcel Proust
