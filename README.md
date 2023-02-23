@@ -1,3 +1,3 @@
-_**It is very easy to forgive others their mistakes; it takes more grit to forgive them for having witnessed your own.**_
+_**The man of knowledge must be able not only to love his enemies but also to hate his friends.**_
 
-Jessamyn West
+Friedrich Nietzsche
