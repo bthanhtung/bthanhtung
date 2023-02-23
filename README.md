@@ -1,3 +1,3 @@
-_**The trouble with most people is that they think with their hopes or fears or wishes rather than with their minds.**_
+_**It is very easy to forgive others their mistakes; it takes more grit to forgive them for having witnessed your own.**_
 
-Will Durant
+Jessamyn West
