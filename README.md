@@ -1,3 +1,3 @@
-_**If I were two-faced, would I be wearing this one?**_
+_**The trouble with most people is that they think with their hopes or fears or wishes rather than with their minds.**_
 
-Abraham Lincoln
+Will Durant
