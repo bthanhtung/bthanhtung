@@ -1,3 +1,3 @@
-_**I'm a great believer in luck and I find the harder I work, the more I have of it.**_
+_**If you were to offer a thirsty man all wisdom, you would not please him more than if you gave him a drink.**_
 
-Thomas Jefferson
+Sophocles
