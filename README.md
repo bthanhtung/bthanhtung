@@ -1,3 +1,3 @@
-_**Many men go fishing all of their lives without knowing that it is not fish they are after.**_
+_**I'm a great believer in luck and I find the harder I work, the more I have of it.**_
 
-Henry David Thoreau
+Thomas Jefferson
