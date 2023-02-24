@@ -1,3 +1,3 @@
-_**The man of knowledge must be able not only to love his enemies but also to hate his friends.**_
+_**Many men go fishing all of their lives without knowing that it is not fish they are after.**_
 
-Friedrich Nietzsche
+Henry David Thoreau
