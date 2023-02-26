@@ -1,3 +1,3 @@
-_**It is far better to be alone, than to be in bad company.**_
+_**Friendship at first sight, like love at first sight, is said to be the only truth.**_
 
-George Washington
+Herman Melville
