@@ -1,3 +1,3 @@
-_**Friendship at first sight, like love at first sight, is said to be the only truth.**_
+_**The universe is transformation; our life is what our thoughts make it.**_
 
-Herman Melville
+Marcus Aurelius
