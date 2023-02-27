@@ -1,3 +1,3 @@
-_**The universe is transformation; our life is what our thoughts make it.**_
+_**Our passion is our strength.**_
 
-Marcus Aurelius
+Billie Armstrong
