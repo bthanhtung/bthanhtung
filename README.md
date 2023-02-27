@@ -1,3 +1,3 @@
-_**Our passion is our strength.**_
+_**Life is really simple, but we insist on making it complicated.**_
 
-Billie Armstrong
+Confucius
