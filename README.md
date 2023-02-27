@@ -1,3 +1,3 @@
-_**Life is really simple, but we insist on making it complicated.**_
+_**Ideas are the beginning points of all fortunes.**_
 
-Confucius
+Napoleon Hill
