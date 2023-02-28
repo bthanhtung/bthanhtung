@@ -1,3 +1,3 @@
-_**Aerodynamically the bumblebee shouldn't be able to fly, but the bumblebee doesn't know that, so it goes on flying anyway.**_
+_**Look back over the past, with its changing empires that rose and fell, and you can foresee the future, too.**_
 
-Mary Kay Ash
+Marcus Aurelius
