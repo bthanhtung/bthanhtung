@@ -1,3 +1,3 @@
-_**Ideas are the beginning points of all fortunes.**_
+_**Leave no stone unturned.**_
 
-Napoleon Hill
+Euripides
