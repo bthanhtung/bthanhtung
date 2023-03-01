@@ -1,3 +1,3 @@
-_**Look back over the past, with its changing empires that rose and fell, and you can foresee the future, too.**_
+_**One man practicing sportsmanship is far better than a hundred teaching it.**_
 
-Marcus Aurelius
+Knute Rockne
