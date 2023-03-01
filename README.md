@@ -1,3 +1,3 @@
-_**Peace comes from within. Do not seek it without.**_
+_**A single rose can be my garden... a single friend, my world.**_
 
-Buddha
+Leo Buscaglia
