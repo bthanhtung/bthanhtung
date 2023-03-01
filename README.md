@@ -1,3 +1,3 @@
-_**One man practicing sportsmanship is far better than a hundred teaching it.**_
+_**Peace comes from within. Do not seek it without.**_
 
-Knute Rockne
+Buddha
