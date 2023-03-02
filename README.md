@@ -1,3 +1,3 @@
-_**All great achievements require time.**_
+_**The human spirit must prevail over technology.**_
 
-Maya Angelou
+Albert Einstein
