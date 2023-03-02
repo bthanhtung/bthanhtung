@@ -1,3 +1,3 @@
-_**A single rose can be my garden... a single friend, my world.**_
+_**All great achievements require time.**_
 
-Leo Buscaglia
+Maya Angelou
