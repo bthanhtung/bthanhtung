@@ -1,3 +1,3 @@
-_**I cannot make my days longer, so I strive to make them better.**_
+_**To dare is to lose ones footing momentarily. To not dare is to lose oneself.**_
 
-Henry David Thoreau
+Søren Kierkegaard
