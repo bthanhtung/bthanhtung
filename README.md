@@ -1,3 +1,3 @@
-_**To dare is to lose ones footing momentarily. To not dare is to lose oneself.**_
+_**It's just a job. Grass grows, birds fly, waves pound the sand. I beat people up.**_
 
-Søren Kierkegaard
+Muhammad Ali
