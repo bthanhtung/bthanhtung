@@ -1,3 +1,3 @@
-_**To find a man's true character, play golf with him.**_
+_**Nothing is softer or more flexible than water, yet nothing can resist it.**_
 
-P. G. Wodehouse
+Laozi
