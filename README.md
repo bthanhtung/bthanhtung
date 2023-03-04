@@ -1,3 +1,3 @@
-_**Nothing is softer or more flexible than water, yet nothing can resist it.**_
+_**If a man does his best, what else is there?**_
 
-Laozi
+George S. Patton
