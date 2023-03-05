@@ -1,3 +1,3 @@
-_**What is not started today is never finished tomorrow.**_
+_**Remember that failure is an event, not a person.**_
 
-Johann Wolfgang von Goethe
+Zig Ziglar
