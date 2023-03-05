@@ -1,3 +1,3 @@
-_**If a man does his best, what else is there?**_
+_**What is not started today is never finished tomorrow.**_
 
-George S. Patton
+Johann Wolfgang von Goethe
