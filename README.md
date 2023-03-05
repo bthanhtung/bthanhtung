@@ -1,3 +1,3 @@
-_**Remember that failure is an event, not a person.**_
+_**Without some goals and some efforts to reach it, no man can live.**_
 
-Zig Ziglar
+John Dewey
