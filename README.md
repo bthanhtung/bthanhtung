@@ -1,3 +1,3 @@
-_**Use what talents you possess; the woods would be very silent if no birds sang there except those that sang best.**_
+_**People are so constituted that everybody would rather undertake what they see others do, whether they have an aptitude for it or not.**_
 
-Henry van Dyke Jr.
+Johann Wolfgang von Goethe
