@@ -1,3 +1,3 @@
-_**Without some goals and some efforts to reach it, no man can live.**_
+_**Use what talents you possess; the woods would be very silent if no birds sang there except those that sang best.**_
 
-John Dewey
+Henry van Dyke Jr.
