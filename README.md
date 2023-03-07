@@ -1,3 +1,3 @@
-_**Let us resolve to be masters, not the victims, of our history, controlling our own destiny without giving way to blind suspicions and emotions.**_
+_**Take rest; a field that has rested gives a bountiful crop.**_
 
-John F. Kennedy
+Ovid
