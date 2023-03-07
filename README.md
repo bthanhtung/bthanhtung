@@ -1,3 +1,3 @@
-_**Take rest; a field that has rested gives a bountiful crop.**_
+_**We must embrace pain and burn it as fuel for our journey.**_
 
-Ovid
+Kenji Miyazawa
