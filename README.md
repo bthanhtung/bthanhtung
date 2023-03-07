@@ -1,3 +1,3 @@
-_**We must embrace pain and burn it as fuel for our journey.**_
+_**Read as you taste fruit or savor wine, or enjoy friendship, love or life.**_
 
-Kenji Miyazawa
+George Herbert
