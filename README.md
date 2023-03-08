@@ -1,3 +1,3 @@
-_**Read as you taste fruit or savor wine, or enjoy friendship, love or life.**_
+_**Life's most persistent and urgent question is, 'What are you doing for others?'**_
 
-George Herbert
+Martin Luther King Jr.
