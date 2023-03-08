@@ -1,3 +1,3 @@
-_**Life's most persistent and urgent question is, 'What are you doing for others?'**_
+_**Your attitude, not your aptitude, will determine your altitude.**_
 
-Martin Luther King Jr.
+Zig Ziglar
