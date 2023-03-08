@@ -1,3 +1,3 @@
-_**Your attitude, not your aptitude, will determine your altitude.**_
+_**Silence at the proper season is wisdom, and better than any speech.**_
 
-Zig Ziglar
+Plutarch
