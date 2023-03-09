@@ -1,3 +1,3 @@
-_**Silence at the proper season is wisdom, and better than any speech.**_
+_**Happiness can exist only in acceptance.**_
 
-Plutarch
+George Orwell
