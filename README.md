@@ -1,3 +1,3 @@
-_**Friendship is held to be the severest test of character. It is easy, we think, to be loyal to a family and clan, whose blood is in your own veins.**_
+_**Until you make peace with who you are, you'll never be content with what you have.**_
 
-Charles Eastman
+Doris Mortman
