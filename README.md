@@ -1,3 +1,3 @@
-_**Excellence is not a skill. It is an attitude.**_
+_**If you would take, you must first give, this is the beginning of intelligence.**_
 
-Ralph Marston
+Laozi
