@@ -1,3 +1,3 @@
-_**No snowflake in an avalanche ever feels responsible.**_
+_**Opportunity is missed by most because it is dressed in overalls and looks like work.**_
 
-Voltaire
+Thomas Edison
