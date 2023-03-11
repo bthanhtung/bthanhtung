@@ -1,3 +1,3 @@
-_**If you would take, you must first give, this is the beginning of intelligence.**_
+_**No snowflake in an avalanche ever feels responsible.**_
 
-Laozi
+Voltaire
