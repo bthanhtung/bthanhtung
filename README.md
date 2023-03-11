@@ -1,3 +1,3 @@
-_**Opportunity is missed by most because it is dressed in overalls and looks like work.**_
+_**The way is not in the sky. The way is in the heart.**_
 
-Thomas Edison
+Buddha
