@@ -1,3 +1,3 @@
-_**The way is not in the sky. The way is in the heart.**_
+_**The first step to getting the things you want out of life is this: decide what you want.**_
 
-Buddha
+Ben Stein
