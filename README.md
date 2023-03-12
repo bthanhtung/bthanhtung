@@ -1,3 +1,3 @@
-_**Life without love is like a tree without blossoms or fruit.**_
+_**A prudent question is one half of wisdom.**_
 
-Kahlil Gibran
+Francis Bacon
