@@ -1,3 +1,3 @@
-_**The first step to getting the things you want out of life is this: decide what you want.**_
+_**Life without love is like a tree without blossoms or fruit.**_
 
-Ben Stein
+Kahlil Gibran
