@@ -1,3 +1,3 @@
-_**I have friends in overalls whose friendship I would not swap for the favor of the kings of the world.**_
+_**Wisdom is a kind of knowledge. It is knowledge of the nature, career, and consequences of human values.**_
 
-Thomas Edison
+Sidney Hook
