@@ -1,3 +1,3 @@
-_**There is only one corner of the universe you can be certain of improving, and that's your own self.**_
+_**Listen to what you know instead of what you fear.**_
 
-Aldous Huxley
+Richard Bach
