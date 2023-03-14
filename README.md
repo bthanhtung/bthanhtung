@@ -1,3 +1,3 @@
-_**Gratitude is riches. Complaint is poverty.**_
+_**If you have made mistakes, there is always another chance for you. You may have a fresh start any moment you choose.**_
 
-Doris Day
+Mary Pickford
