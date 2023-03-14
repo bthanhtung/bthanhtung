@@ -1,3 +1,3 @@
-_**If you have made mistakes, there is always another chance for you. You may have a fresh start any moment you choose.**_
+_**There is only one corner of the universe you can be certain of improving, and that's your own self.**_
 
-Mary Pickford
+Aldous Huxley
