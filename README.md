@@ -1,3 +1,3 @@
-_**With pride, there are many curses. With humility, there come many blessings.**_
+_**Science and technology revolutionize our lives, but memory, tradition and myth frame our response.**_
 
-Ezra Taft Benson
+Arthur M. Schlesinger Jr.
