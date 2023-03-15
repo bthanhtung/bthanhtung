@@ -1,3 +1,3 @@
-_**Listen to what you know instead of what you fear.**_
+_**With pride, there are many curses. With humility, there come many blessings.**_
 
-Richard Bach
+Ezra Taft Benson
