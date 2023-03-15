@@ -1,3 +1,3 @@
-_**Science and technology revolutionize our lives, but memory, tradition and myth frame our response.**_
+_**If a man does his best, what else is there?**_
 
-Arthur M. Schlesinger Jr.
+George S. Patton
