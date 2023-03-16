@@ -1,3 +1,3 @@
-_**If a man does his best, what else is there?**_
+_**Love doesn't make the world go round; love is what makes the ride worthwhile.**_
 
-George S. Patton
+Elizabeth Browning
