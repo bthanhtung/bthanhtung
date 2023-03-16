@@ -1,3 +1,3 @@
-_**I am an optimist. It does not seem too much use being anything else.**_
+_**Be here now. Be someplace else later. Is that so complicated?**_
 
-Winston Churchill
+David Bader
