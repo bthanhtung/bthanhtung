@@ -1,3 +1,3 @@
-_**Love doesn't make the world go round; love is what makes the ride worthwhile.**_
+_**I am an optimist. It does not seem too much use being anything else.**_
 
-Elizabeth Browning
+Winston Churchill
