@@ -1,3 +1,3 @@
-_**Be here now. Be someplace else later. Is that so complicated?**_
+_**Faith in oneself is the best and safest course.**_
 
-David Bader
+Michelangelo
