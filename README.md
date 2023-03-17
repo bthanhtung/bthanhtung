@@ -1,3 +1,3 @@
-_**Never mistake motion for action.**_
+_**Think big thoughts but relish small pleasures.**_
 
-Ernest Hemingway
+H. Jackson Brown Jr.
