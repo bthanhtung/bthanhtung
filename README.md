@@ -1,3 +1,3 @@
-_**Faith in oneself is the best and safest course.**_
+_**Never mistake motion for action.**_
 
-Michelangelo
+Ernest Hemingway
