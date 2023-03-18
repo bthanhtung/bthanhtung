@@ -1,3 +1,3 @@
-_**One who is too insistent on his own views, finds few to agree with him.**_
+_**We are Divine enough to ask and we are important enough to receive.**_
 
-Laozi
+Wayne Dyer
