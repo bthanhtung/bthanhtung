@@ -1,3 +1,3 @@
-_**We are Divine enough to ask and we are important enough to receive.**_
+_**To free us from the expectations of others, to give us back to ourselves... there lies the great, singular power of self-respect.**_
 
-Wayne Dyer
+Joan Didion
