@@ -1,3 +1,3 @@
-_**Genius is one percent inspiration and ninety-nine percent perspiration.**_
+_**What is not started today is never finished tomorrow.**_
 
-Thomas Edison
+Johann Wolfgang von Goethe
