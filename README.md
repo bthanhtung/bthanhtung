@@ -1,3 +1,3 @@
-_**What is not started today is never finished tomorrow.**_
+_**A man should look for what is, and not for what he thinks should be.**_
 
-Johann Wolfgang von Goethe
+Albert Einstein
