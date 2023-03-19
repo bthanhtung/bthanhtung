@@ -1,3 +1,3 @@
-_**To free us from the expectations of others, to give us back to ourselves... there lies the great, singular power of self-respect.**_
+_**Genius is one percent inspiration and ninety-nine percent perspiration.**_
 
-Joan Didion
+Thomas Edison
