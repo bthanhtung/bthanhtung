@@ -1,3 +1,3 @@
-_**If you want to kill any idea in the world, get a committee working on it.**_
+_**Love is rarer than genius itself. And friendship is rarer than love.**_
 
-Charles F. Kettering
+Charles Péguy
