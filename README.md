@@ -1,3 +1,3 @@
-_**Love is rarer than genius itself. And friendship is rarer than love.**_
+_**When we feel love and kindness toward others, it not only makes others feel loved and cared for, but it helps us also to develop inner happiness and peace.**_
 
-Charles Péguy
+Dalai Lama
