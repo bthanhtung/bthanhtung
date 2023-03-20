@@ -1,3 +1,3 @@
-_**A man should look for what is, and not for what he thinks should be.**_
+_**If you want to kill any idea in the world, get a committee working on it.**_
 
-Albert Einstein
+Charles F. Kettering
