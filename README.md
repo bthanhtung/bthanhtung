@@ -1,3 +1,3 @@
-_**What the caterpillar calls the end of the world, the master calls a butterfly.**_
+_**You cannot be lonely if you like the person you're alone with.**_
 
-Richard Bach
+Wayne Dyer
