@@ -1,3 +1,3 @@
-_**When we feel love and kindness toward others, it not only makes others feel loved and cared for, but it helps us also to develop inner happiness and peace.**_
+_**Don't judge each day by the harvest you reap but by the seeds that you plant.**_
 
-Dalai Lama
+Robert Louis Stevenson
