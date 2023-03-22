@@ -1,3 +1,3 @@
-_**What is a weed? A plant whose virtues have not yet been discovered.**_
+_**If you do what you've always done, you'll get what you've always gotten.**_
 
-Ralph Waldo Emerson
+Tony Robbins
