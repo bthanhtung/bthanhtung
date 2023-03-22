@@ -1,3 +1,3 @@
-_**You cannot be lonely if you like the person you're alone with.**_
+_**What is a weed? A plant whose virtues have not yet been discovered.**_
 
-Wayne Dyer
+Ralph Waldo Emerson
