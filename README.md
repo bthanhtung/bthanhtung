@@ -1,3 +1,3 @@
-_**If you do what you've always done, you'll get what you've always gotten.**_
+_**Bad times have a scientific value. These are occasions a good learner would not miss.**_
 
-Tony Robbins
+Ralph Waldo Emerson
