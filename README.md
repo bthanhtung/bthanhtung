@@ -1,3 +1,3 @@
-_**Nobody will believe in you unless you believe in yourself.**_
+_**Excellence is not a skill. It is an attitude.**_
 
-Liberace
+Ralph Marston
