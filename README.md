@@ -1,3 +1,3 @@
-_**Bad times have a scientific value. These are occasions a good learner would not miss.**_
+_**Nobody will believe in you unless you believe in yourself.**_
 
-Ralph Waldo Emerson
+Liberace
