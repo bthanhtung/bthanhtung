@@ -1,3 +1,3 @@
-_**Excellence is not a skill. It is an attitude.**_
+_**The beginning of wisdom is found in doubting; by doubting we come to the question, and by seeking we may come upon the truth.**_
 
-Ralph Marston
+Peter Abelard
