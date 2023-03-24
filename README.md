@@ -1,3 +1,3 @@
-_**I know not age, nor weariness nor defeat.**_
+_**Forgiveness is that subtle thread that binds both love and friendship. Without forgiveness, you may not even have a child one day.**_
 
-Rose Kennedy
+George Foreman
