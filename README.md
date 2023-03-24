@@ -1,3 +1,3 @@
-_**The beginning of wisdom is found in doubting; by doubting we come to the question, and by seeking we may come upon the truth.**_
+_**Being in humaneness is good. If we select other goodness and thus are far apart from humaneness, how can we be the wise?**_
 
-Peter Abelard
+Confucius
