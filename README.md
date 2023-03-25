@@ -1,3 +1,3 @@
-_**Just be patient. Let the game come to you. Don't rush. Be quick, but don't hurry.**_
+_**Without leaps of imagination, or dreaming, we lose the excitement of possibilities. Dreaming, after all, is a form of planning.**_
 
-Earl Monroe
+Gloria Steinem
