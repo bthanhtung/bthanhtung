@@ -1,3 +1,3 @@
-_**Without leaps of imagination, or dreaming, we lose the excitement of possibilities. Dreaming, after all, is a form of planning.**_
+_**There are many ways of going forward, but only one way of standing still.**_
 
-Gloria Steinem
+Franklin D. Roosevelt
