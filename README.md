@@ -1,3 +1,3 @@
-_**Forgiveness is that subtle thread that binds both love and friendship. Without forgiveness, you may not even have a child one day.**_
+_**Just be patient. Let the game come to you. Don't rush. Be quick, but don't hurry.**_
 
-George Foreman
+Earl Monroe
