@@ -1,3 +1,3 @@
-_**The longer we dwell on our misfortunes, the greater is their power to harm us.**_
+_**So long as a person is capable of self-renewal they are a living being.**_
 
-Voltaire
+Henri-Frédéric Amiel
