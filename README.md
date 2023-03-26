@@ -1,3 +1,3 @@
-_**There are many ways of going forward, but only one way of standing still.**_
+_**Nothing will work unless you do.**_
 
-Franklin D. Roosevelt
+Maya Angelou
