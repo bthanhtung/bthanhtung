@@ -1,3 +1,3 @@
-_**Nothing will work unless you do.**_
+_**The longer we dwell on our misfortunes, the greater is their power to harm us.**_
 
-Maya Angelou
+Voltaire
