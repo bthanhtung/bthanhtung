@@ -1,3 +1,3 @@
-_**So long as a person is capable of self-renewal they are a living being.**_
+_**Life is what happens to you while you're busy making other plans.**_
 
-Henri-Frédéric Amiel
+John Lennon
