@@ -1,3 +1,3 @@
-_**Life is what happens to you while you're busy making other plans.**_
+_**True friendship can afford true knowledge. It does not depend on darkness and ignorance.**_
 
-John Lennon
+Henry David Thoreau
