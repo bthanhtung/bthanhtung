@@ -1,3 +1,3 @@
-_**True friendship can afford true knowledge. It does not depend on darkness and ignorance.**_
+_**I'm not afraid of storms, for I'm learning how to sail my ship.**_
 
-Henry David Thoreau
+Louisa May Alcott
