@@ -1,3 +1,3 @@
-_**Let me tell you the secret that has led me to my goal: my strength lies solely in my tenacity.**_
+_**Continuous effort - not strength or intelligence - is the key to unlocking our potential.**_
 
-Louis Pasteur
+Winston Churchill
