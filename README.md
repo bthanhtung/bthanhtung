@@ -1,3 +1,3 @@
-_**I'm not afraid of storms, for I'm learning how to sail my ship.**_
+_**Let me tell you the secret that has led me to my goal: my strength lies solely in my tenacity.**_
 
-Louisa May Alcott
+Louis Pasteur
