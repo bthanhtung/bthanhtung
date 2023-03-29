@@ -1,3 +1,3 @@
-_**Continuous effort - not strength or intelligence - is the key to unlocking our potential.**_
+_**Technology is the campfire around which we tell our stories.**_
 
-Winston Churchill
+Laurie Anderson
