@@ -1,3 +1,3 @@
-_**Technology is the campfire around which we tell our stories.**_
+_**To be aware of a single shortcoming in oneself is more useful than to be aware of a thousand in someone else.**_
 
-Laurie Anderson
+Dalai Lama
