@@ -1,3 +1,3 @@
-_**To be aware of a single shortcoming in oneself is more useful than to be aware of a thousand in someone else.**_
+_**Think for yourselves and let others enjoy the privilege to do so too.**_
 
-Dalai Lama
+Voltaire
