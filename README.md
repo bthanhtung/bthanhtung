@@ -1,3 +1,3 @@
-_**Motivation is the art of getting people to do what you want them to do because they want to do it.**_
+_**The attempt to combine wisdom and power has only rarely been successful and then only for a short while.**_
 
-Dwight D. Eisenhower
+Albert Einstein
