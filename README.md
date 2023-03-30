@@ -1,3 +1,3 @@
-_**The attempt to combine wisdom and power has only rarely been successful and then only for a short while.**_
+_**I have an everyday religion that works for me. Love yourself first, and everything else falls into line.**_
 
-Albert Einstein
+Lucille Ball
