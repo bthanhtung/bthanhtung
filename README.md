@@ -1,3 +1,3 @@
-_**Our lives are a sum total of the choices we have made.**_
+_**You don't choose your family. They are God's gift to you, as you are to them.**_
 
-Wayne Dyer
+Desmond Tutu
