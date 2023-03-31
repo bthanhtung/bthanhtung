@@ -1,3 +1,3 @@
-_**I have an everyday religion that works for me. Love yourself first, and everything else falls into line.**_
+_**In the end we retain from our studies only that which we practically apply.**_
 
-Lucille Ball
+Johann Wolfgang von Goethe
