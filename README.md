@@ -1,3 +1,3 @@
-_**Whatever you do in life, surround yourself with smart people who'll argue with you.**_
+_**The most formidable weapon against errors of every kind is reason.**_
 
-John Wooden
+Thomas Paine
