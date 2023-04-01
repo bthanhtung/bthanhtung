@@ -1,3 +1,3 @@
-_**The most formidable weapon against errors of every kind is reason.**_
+_**Commitment is an act, not a word.**_
 
-Thomas Paine
+Jean-Paul Sartre
