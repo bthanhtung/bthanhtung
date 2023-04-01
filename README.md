@@ -1,3 +1,3 @@
-_**You don't choose your family. They are God's gift to you, as you are to them.**_
+_**Whatever you do in life, surround yourself with smart people who'll argue with you.**_
 
-Desmond Tutu
+John Wooden
