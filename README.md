@@ -1,3 +1,3 @@
-_**Commitment is an act, not a word.**_
+_**What other people may find in poetry or art museums, I find in the flight of a good drive.**_
 
-Jean-Paul Sartre
+Arnold Palmer
