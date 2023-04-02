@@ -1,3 +1,3 @@
-_**True friendship is a plant of slow growth, and must undergo and withstand the shocks of adversity, before it is entitled to the appellation.**_
+_**He has no enemies, but is intensely disliked by his friends.**_
 
-George Washington
+Oscar Wilde
