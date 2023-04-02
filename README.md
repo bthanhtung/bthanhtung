@@ -1,3 +1,3 @@
-_**What other people may find in poetry or art museums, I find in the flight of a good drive.**_
+_**True friendship is a plant of slow growth, and must undergo and withstand the shocks of adversity, before it is entitled to the appellation.**_
 
-Arnold Palmer
+George Washington
