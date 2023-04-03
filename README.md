@@ -1,3 +1,3 @@
-_**He has no enemies, but is intensely disliked by his friends.**_
+_**Failure will never overtake me if my determination to succeed is strong enough.**_
 
-Oscar Wilde
+Og Mandino
