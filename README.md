@@ -1,3 +1,3 @@
-_**One of the advantages of being disorderly is that one is constantly making exciting discoveries.**_
+_**Good actions give strength to ourselves and inspire good actions in others.**_
 
-A. A. Milne
+Plato
