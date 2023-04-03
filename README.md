@@ -1,3 +1,3 @@
-_**Failure will never overtake me if my determination to succeed is strong enough.**_
+_**One of the advantages of being disorderly is that one is constantly making exciting discoveries.**_
 
-Og Mandino
+A. A. Milne
