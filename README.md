@@ -1,3 +1,3 @@
-_**I don't believe in failure. It's not failure if you enjoyed the process.**_
+_**I believe in one thing only, the power of human will.**_
 
-Oprah Winfrey
+Joseph Stalin
