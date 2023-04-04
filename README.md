@@ -1,3 +1,3 @@
-_**Good actions give strength to ourselves and inspire good actions in others.**_
+_**I don't believe in failure. It's not failure if you enjoyed the process.**_
 
-Plato
+Oprah Winfrey
