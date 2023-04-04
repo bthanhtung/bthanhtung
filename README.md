@@ -1,3 +1,3 @@
-_**I believe in one thing only, the power of human will.**_
+_**Change in all things is sweet.**_
 
-Joseph Stalin
+Aristotle
