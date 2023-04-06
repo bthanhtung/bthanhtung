@@ -1,3 +1,3 @@
-_**Learning is the beginning of wealth. Learning is the beginning of health. Learning is the beginning of spirituality. Searching and learning is where the miracle process all begins.**_
+_**There are basically two types of people. People who accomplish things, and people who claim to have accomplished things. The first group is less crowded.**_
 
-Jim Rohn
+Mark Twain
