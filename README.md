@@ -1,3 +1,3 @@
-_**It isn't what happens to us that causes us to suffer; it's what we say to ourselves about what happens.**_
+_**Learning is the beginning of wealth. Learning is the beginning of health. Learning is the beginning of spirituality. Searching and learning is where the miracle process all begins.**_
 
-Pema Chödrön
+Jim Rohn
