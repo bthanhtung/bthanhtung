@@ -1,3 +1,3 @@
-_**Experience is not what happens to you; it's what you do with what happens to you.**_
+_**Trust is the lubrication that makes it possible for organizations to work.**_
 
-Aldous Huxley
+Warren Bennis
