@@ -1,3 +1,3 @@
-_**Trust is the lubrication that makes it possible for organizations to work.**_
+_**We have two ears and one mouth so that we can listen twice as much as we speak.**_
 
-Warren Bennis
+Epictetus
