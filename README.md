@@ -1,3 +1,3 @@
-_**The self is not something ready-made, but something in continuous formation through choice of action.**_
+_**Music in the soul can be heard by the universe.**_
 
-John Dewey
+Laozi
