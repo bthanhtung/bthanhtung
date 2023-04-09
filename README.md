@@ -1,3 +1,3 @@
-_**Never complain and never explain.**_
+_**The self is not something ready-made, but something in continuous formation through choice of action.**_
 
-Benjamin Disraeli
+John Dewey
