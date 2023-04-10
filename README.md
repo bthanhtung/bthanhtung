@@ -1,3 +1,3 @@
-_**Success in business requires training and discipline and hard work. But if you're not frightened by these things, the opportunities are just as great today as they ever were.**_
+_**The difference between what we do and what we are capable of doing would suffice to solve most of the world's problems.**_
 
-David Rockefeller
+Mahatma Gandhi
