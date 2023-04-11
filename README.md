@@ -1,3 +1,3 @@
-_**Chaos and Order are not enemies, only opposites.**_
+_**Take rest; a field that has rested gives a bountiful crop.**_
 
-Richard Garriott
+Ovid
