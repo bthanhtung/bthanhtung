@@ -1,3 +1,3 @@
-_**The difference between what we do and what we are capable of doing would suffice to solve most of the world's problems.**_
+_**You've got to go out on a limb sometimes because that's where the fruit is.**_
 
-Mahatma Gandhi
+Will Rogers
