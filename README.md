@@ -1,3 +1,3 @@
-_**You've got to go out on a limb sometimes because that's where the fruit is.**_
+_**Chaos and Order are not enemies, only opposites.**_
 
-Will Rogers
+Richard Garriott
