@@ -1,3 +1,3 @@
-_**Take rest; a field that has rested gives a bountiful crop.**_
+_**The final wisdom of life requires not the annulment of incongruity but the achievement of serenity within and above it.**_
 
-Ovid
+Reinhold Niebuhr
