@@ -1,3 +1,3 @@
-_**When fate hands us a lemon, let's try to make lemonade.**_
+_**In action a great heart is the chief qualification. In work, a great head.**_
 
-Dale Carnegie
+Arthur Schopenhauer
