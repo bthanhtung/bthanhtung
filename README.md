@@ -1,3 +1,3 @@
-_**Attitude is a little thing that makes a big difference.**_
+_**In rivers, the water that you touch is the last of what has passed and the first of that which comes; so with present time.**_
 
-Winston Churchill
+Leonardo da Vinci
