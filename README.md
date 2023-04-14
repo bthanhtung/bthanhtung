@@ -1,3 +1,3 @@
-_**In rivers, the water that you touch is the last of what has passed and the first of that which comes; so with present time.**_
+_**How far that little candle throws its beams! So shines a good deed in a naughty world.**_
 
-Leonardo da Vinci
+William Shakespeare
