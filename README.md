@@ -1,3 +1,3 @@
-_**Well begun is half done.**_
+_**Fortune favors the brave.**_
 
-Aristotle
+Virgil
