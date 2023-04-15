@@ -1,3 +1,3 @@
-_**Not engaging in ignorance is wisdom.**_
+_**Well begun is half done.**_
 
-Bodhidharma
+Aristotle
