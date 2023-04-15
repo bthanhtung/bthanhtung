@@ -1,3 +1,3 @@
-_**When the world is so complicated, the simple gift of friendship is within all of our hands.**_
+_**Not engaging in ignorance is wisdom.**_
 
-Maria Shriver
+Bodhidharma
