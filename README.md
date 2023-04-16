@@ -1,3 +1,3 @@
-_**Most of the important things in the world have been accomplished by people who have kept on trying when there seemed to be no hope at all.**_
+_**A quarrel between friends, when made up, adds a new tie to friendship.**_
 
-Dale Carnegie
+Francis de Sales
