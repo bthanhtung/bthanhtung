@@ -1,3 +1,3 @@
-_**A quarrel between friends, when made up, adds a new tie to friendship.**_
+_**This is the whole point of technology. It creates an appetite for immortality on the one hand. It threatens universal extinction on the other. Technology is lust removed from nature.**_
 
-Francis de Sales
+Don DeLillo
