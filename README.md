@@ -1,3 +1,3 @@
-_**A rolling stone gathers no moss.**_
+_**I have learned that to be with those I like is enough.**_
 
-Publilius Syrus
+Walt Whitman
