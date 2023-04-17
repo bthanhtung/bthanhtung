@@ -1,3 +1,3 @@
-_**I have learned that to be with those I like is enough.**_
+_**Life is a succession of moments. To live each one is to succeed.**_
 
-Walt Whitman
+Corita Kent
