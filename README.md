@@ -1,3 +1,3 @@
-_**Life is a succession of moments. To live each one is to succeed.**_
+_**To be aware of a single shortcoming in oneself is more useful than to be aware of a thousand in someone else.**_
 
-Corita Kent
+Dalai Lama
