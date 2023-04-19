@@ -1,3 +1,3 @@
-_**In complete darkness we are all the same, it is only our knowledge and wisdom that separates us, don't let your eyes deceive you.**_
+_**Be slow in choosing a friend, slower in changing.**_
 
-Janet Jackson
+Benjamin Franklin
