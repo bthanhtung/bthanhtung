@@ -1,3 +1,3 @@
-_**Be slow in choosing a friend, slower in changing.**_
+_**Chaos and Order are not enemies, only opposites.**_
 
-Benjamin Franklin
+Richard Garriott
