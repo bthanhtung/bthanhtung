@@ -1,3 +1,3 @@
-_**Chaos and Order are not enemies, only opposites.**_
+_**Cherish your visions and your dreams as they are the children of your soul; the blueprints of your ultimate achievements.**_
 
-Richard Garriott
+Napoleon Hill
