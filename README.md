@@ -1,3 +1,3 @@
-_**Cherish your visions and your dreams as they are the children of your soul; the blueprints of your ultimate achievements.**_
+_**The most successful people are those who are good at plan B.**_
 
-Napoleon Hill
+James A. Yorke
