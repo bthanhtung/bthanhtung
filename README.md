@@ -1,3 +1,3 @@
-_**The most successful people are those who are good at plan B.**_
+_**Nothing is softer or more flexible than water, yet nothing can resist it.**_
 
-James A. Yorke
+Laozi
