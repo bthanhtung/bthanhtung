@@ -1,3 +1,3 @@
-_**Nothing is softer or more flexible than water, yet nothing can resist it.**_
+_**Iron rusts from disuse; water loses its purity from stagnation... even so does inaction sap the vigor of the mind.**_
 
-Laozi
+Leonardo da Vinci
