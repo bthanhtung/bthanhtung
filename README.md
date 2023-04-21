@@ -1,3 +1,3 @@
-_**Iron rusts from disuse; water loses its purity from stagnation... even so does inaction sap the vigor of the mind.**_
+_**Life a culmination of the past, an awareness of the present, an indication of the future beyond knowledge, the quality that gives a touch of divinity to matter.**_
 
-Leonardo da Vinci
+Charles Lindbergh
