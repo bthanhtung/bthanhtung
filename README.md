@@ -1,3 +1,3 @@
-_**The future is completely open, and we are writing it moment to moment.**_
+_**It is not enough to have a good mind; the main thing is to use it well.**_
 
-Pema Chödrön
+René Descartes
