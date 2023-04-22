@@ -1,3 +1,3 @@
-_**To choose what is difficult all one's days, as if it were easy, that is faith.**_
+_**The future is completely open, and we are writing it moment to moment.**_
 
-W. H. Auden
+Pema Chödrön
