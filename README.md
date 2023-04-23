@@ -1,3 +1,3 @@
-_**It is not enough to have a good mind; the main thing is to use it well.**_
+_**To fly, we have to have resistance.**_
 
-René Descartes
+Maya Lin
