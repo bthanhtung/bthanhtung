@@ -1,3 +1,3 @@
-_**Do one thing every day that scares you.**_
+_**I took a speed-reading course and read 'War and Peace' in twenty minutes. It involves Russia.**_
 
-Eleanor Roosevelt
+Woody Allen
