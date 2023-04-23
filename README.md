@@ -1,3 +1,3 @@
-_**To fly, we have to have resistance.**_
+_**Do one thing every day that scares you.**_
 
-Maya Lin
+Eleanor Roosevelt
