@@ -1,3 +1,3 @@
-_**I took a speed-reading course and read 'War and Peace' in twenty minutes. It involves Russia.**_
+_**I believe in one thing only, the power of human will.**_
 
-Woody Allen
+Joseph Stalin
