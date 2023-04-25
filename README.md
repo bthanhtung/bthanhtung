@@ -1,3 +1,3 @@
-_**Never tell people how to do things. Tell them what to do and they will surprise you with their ingenuity.**_
+_**The secret of getting ahead is getting started.**_
 
-George S. Patton
+Mark Twain
