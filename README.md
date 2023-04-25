@@ -1,3 +1,3 @@
-_**Don't talk about what you have done or what you are going to do.**_
+_**Begin at once to live and count each separate day as a separate life.**_
 
-Thomas Jefferson
+Seneca the Younger
