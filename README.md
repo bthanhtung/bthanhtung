@@ -1,3 +1,3 @@
-_**Begin at once to live and count each separate day as a separate life.**_
+_**Never tell people how to do things. Tell them what to do and they will surprise you with their ingenuity.**_
 
-Seneca the Younger
+George S. Patton
