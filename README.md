@@ -1,3 +1,3 @@
-_**He who has imagination without learning has wings but no feet.**_
+_**Ever tried. Ever failed. No matter. Try Again. Fail again. Fail better.**_
 
-Joseph Joubert
+Samuel Beckett
