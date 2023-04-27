@@ -1,3 +1,3 @@
-_**Ever tried. Ever failed. No matter. Try Again. Fail again. Fail better.**_
+_**Kind words can be short and easy to speak, but their echoes are truly endless.**_
 
-Samuel Beckett
+Mother Teresa
