@@ -1,3 +1,3 @@
-_**It is difficult to achieve a spirit of genuine cooperation as long as people remain indifferent to the feelings and happiness of others.**_
+_**There are three classes of men; lovers of wisdom, lovers of honor, and lovers of gain.**_
 
-Dalai Lama
+Plato
