@@ -1,3 +1,3 @@
-_**Kind words can be short and easy to speak, but their echoes are truly endless.**_
+_**It is difficult to achieve a spirit of genuine cooperation as long as people remain indifferent to the feelings and happiness of others.**_
 
-Mother Teresa
+Dalai Lama
