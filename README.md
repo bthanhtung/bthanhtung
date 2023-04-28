@@ -1,3 +1,3 @@
-_**There are three classes of men; lovers of wisdom, lovers of honor, and lovers of gain.**_
+_**Friendship needs no words - it is solitude delivered from the anguish of loneliness.**_
 
-Plato
+Dag Hammarskjöld
