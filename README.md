@@ -1,3 +1,3 @@
-_**Friendship needs no words - it is solitude delivered from the anguish of loneliness.**_
+_**Grief can be the garden of compassion. If you keep your heart open through everything, your pain can become your greatest ally in your life's search for love and wisdom.**_
 
-Dag Hammarskjöld
+Rumi
