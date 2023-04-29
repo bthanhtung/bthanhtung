@@ -1,3 +1,3 @@
-_**Remember that a gesture of friendship, no matter how small, is always appreciated.**_
+_**It is better to have enough ideas for some of them to be wrong, than to be always right by having no ideas at all.**_
 
-H. Jackson Brown Jr.
+Edward de Bono
