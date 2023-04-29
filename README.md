@@ -1,3 +1,3 @@
-_**Music is a higher revelation than all wisdom and philosophy.**_
+_**Remember that a gesture of friendship, no matter how small, is always appreciated.**_
 
-Ludwig van Beethoven
+H. Jackson Brown Jr.
