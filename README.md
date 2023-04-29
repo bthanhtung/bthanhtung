@@ -1,3 +1,3 @@
-_**It is better to have enough ideas for some of them to be wrong, than to be always right by having no ideas at all.**_
+_**Let go of your attachment to being right, and suddenly your mind is more open. You're able to benefit from the unique viewpoints of others, without being crippled by your own judgement.**_
 
-Edward de Bono
+Ralph Marston
