@@ -1,3 +1,3 @@
-_**It's so simple to be wise. Just think of something stupid to say and then don't say it.**_
+_**Our intention creates our reality.**_
 
-Sam Levenson
+Wayne Dyer
