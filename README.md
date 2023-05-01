@@ -1,3 +1,3 @@
-_**Time is the most valuable thing a man can spend.**_
+_**There is only one success: to be able to spend your life in your own way.**_
 
-Theophrastus
+Christopher Morley
