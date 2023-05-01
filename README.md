@@ -1,3 +1,3 @@
-_**Real magic in relationships means an absence of judgement of others.**_
+_**Time is the most valuable thing a man can spend.**_
 
-Wayne Dyer
+Theophrastus
