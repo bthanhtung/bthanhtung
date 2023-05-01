@@ -1,3 +1,3 @@
-_**There is only one success: to be able to spend your life in your own way.**_
+_**The past has no power to stop you from being present now. Only your grievance about the past can do that.**_
 
-Christopher Morley
+Eckhart Tolle
