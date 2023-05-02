@@ -1,3 +1,3 @@
-_**Waste no more time arguing about what a good man should be. Be one.**_
+_**The invariable mark of wisdom is to see the miraculous in the common.**_
 
-Marcus Aurelius
+Ralph Waldo Emerson
