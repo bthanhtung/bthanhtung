@@ -1,3 +1,3 @@
-_**The only real mistake is the one from which we learn nothing.**_
+_**Waste no more time arguing about what a good man should be. Be one.**_
 
-John Powell
+Marcus Aurelius
