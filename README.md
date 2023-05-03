@@ -1,3 +1,3 @@
-_**There is a wisdom of the head, and a wisdom of the heart.**_
+_**Let us sacrifice our today so that our children can have a better tomorrow.**_
 
-Charles Dickens
+A. P. J. Abdul Kalam
