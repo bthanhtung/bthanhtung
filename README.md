@@ -1,3 +1,3 @@
-_**Ask yourself the secret of your success. Listen to your answer and practice it.**_
+_**There is a wisdom of the head, and a wisdom of the heart.**_
 
-Richard Bach
+Charles Dickens
