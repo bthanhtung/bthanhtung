@@ -1,3 +1,3 @@
-_**The invariable mark of wisdom is to see the miraculous in the common.**_
+_**Ask yourself the secret of your success. Listen to your answer and practice it.**_
 
-Ralph Waldo Emerson
+Richard Bach
