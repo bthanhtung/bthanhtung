@@ -1,3 +1,3 @@
-_**But the attitude of faith is to let go, and become open to truth, whatever it might turn out to be.**_
+_**Conquer anger with non-anger. Conquer badness with goodness. Conquer meanness with generosity. Conquer dishonesty with truth.**_
 
-Alan Watts
+The Buddha
