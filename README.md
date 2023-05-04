@@ -1,3 +1,3 @@
-_**Patience and perseverance have a magical effect before which difficulties disappear and obstacles vanish.**_
+_**But the attitude of faith is to let go, and become open to truth, whatever it might turn out to be.**_
 
-John Adams
+Alan Watts
