@@ -1,3 +1,3 @@
-_**Let us sacrifice our today so that our children can have a better tomorrow.**_
+_**Patience and perseverance have a magical effect before which difficulties disappear and obstacles vanish.**_
 
-A. P. J. Abdul Kalam
+John Adams
