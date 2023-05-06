@@ -1,3 +1,3 @@
-_**Never complain and never explain.**_
+_**Friendship increases in visiting friends, but in visiting them seldom.**_
 
-Benjamin Disraeli
+Francis Bacon
