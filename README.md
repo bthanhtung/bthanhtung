@@ -1,3 +1,3 @@
-_**The foolish man seeks happiness in the distance, the wise grows it under his feet.**_
+_**The person born with a talent they are meant to use will find their greatest happiness in using it.**_
 
-James Oppenheim
+Johann Wolfgang von Goethe
