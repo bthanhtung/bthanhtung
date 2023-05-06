@@ -1,3 +1,3 @@
-_**Friendship increases in visiting friends, but in visiting them seldom.**_
+_**The foolish man seeks happiness in the distance, the wise grows it under his feet.**_
 
-Francis Bacon
+James Oppenheim
