@@ -1,3 +1,3 @@
-_**The person born with a talent they are meant to use will find their greatest happiness in using it.**_
+_**It's so simple to be wise. Just think of something stupid to say and then don't say it.**_
 
-Johann Wolfgang von Goethe
+Sam Levenson
