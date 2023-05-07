@@ -1,3 +1,3 @@
-_**It's so simple to be wise. Just think of something stupid to say and then don't say it.**_
+_**Things that were hard to bear are sweet to remember.**_
 
-Sam Levenson
+Seneca the Younger
