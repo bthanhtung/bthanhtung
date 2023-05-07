@@ -1,3 +1,3 @@
-_**Things that were hard to bear are sweet to remember.**_
+_**Most people never run far enough on their first wind to find out they've got a second.**_
 
-Seneca the Younger
+William James
