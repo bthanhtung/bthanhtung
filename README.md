@@ -1,3 +1,3 @@
-_**The ego is nothing other than the focus of conscious attention.**_
+_**We the people are the rightful masters of both Congress and the courts, not to overthrow the Constitution but to overthrow the men who pervert the Constitution.**_
 
-Alan Watts
+Abraham Lincoln
