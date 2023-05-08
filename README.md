@@ -1,3 +1,3 @@
-_**Our kindness may be the most persuasive argument for that which we believe.**_
+_**The ego is nothing other than the focus of conscious attention.**_
 
-Gordon Hinckley
+Alan Watts
