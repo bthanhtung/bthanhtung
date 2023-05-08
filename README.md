@@ -1,3 +1,3 @@
-_**Most people never run far enough on their first wind to find out they've got a second.**_
+_**Our kindness may be the most persuasive argument for that which we believe.**_
 
-William James
+Gordon Hinckley
