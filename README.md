@@ -1,3 +1,3 @@
-_**People don't notice whether it's winter or summer when they're happy.**_
+_**Friendship is one mind in two bodies.**_
 
-Anton Chekhov
+Mencius
