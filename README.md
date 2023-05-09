@@ -1,3 +1,3 @@
-_**We the people are the rightful masters of both Congress and the courts, not to overthrow the Constitution but to overthrow the men who pervert the Constitution.**_
+_**We make our own fortunes and we call them fate.**_
 
-Abraham Lincoln
+Benjamin Disraeli
