@@ -1,3 +1,3 @@
-_**We make our own fortunes and we call them fate.**_
+_**People don't notice whether it's winter or summer when they're happy.**_
 
-Benjamin Disraeli
+Anton Chekhov
