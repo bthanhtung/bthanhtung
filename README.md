@@ -1,3 +1,3 @@
-_**The self is not something ready-made, but something in continuous formation through choice of action.**_
+_**He who hath many friends hath none.**_
 
-John Dewey
+Aristotle
