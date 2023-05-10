@@ -1,3 +1,3 @@
-_**He who hath many friends hath none.**_
+_**One loyal friend is worth ten thousand relatives.**_
 
-Aristotle
+Euripides
