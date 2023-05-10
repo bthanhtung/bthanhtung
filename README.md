@@ -1,3 +1,3 @@
-_**Friendship is one mind in two bodies.**_
+_**The self is not something ready-made, but something in continuous formation through choice of action.**_
 
-Mencius
+John Dewey
