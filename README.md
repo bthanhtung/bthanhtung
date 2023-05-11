@@ -1,3 +1,3 @@
-_**The will to win, the desire to succeed, the urge to reach your full potential... these are the keys that will unlock the door to personal excellence.**_
+_**The past has no power to stop you from being present now. Only your grievance about the past can do that.**_
 
-Confucius
+Eckhart Tolle
