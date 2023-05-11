@@ -1,3 +1,3 @@
-_**One loyal friend is worth ten thousand relatives.**_
+_**Technology is nothing. What's important is that you have a faith in people, that they're basically good and smart, and if you give them tools, they'll do wonderful things with them.**_
 
-Euripides
+Steve Jobs
