@@ -1,3 +1,3 @@
-_**The past has no power to stop you from being present now. Only your grievance about the past can do that.**_
+_**Dreams pass into the reality of action. From the actions stems the dream again; and this interdependence produces the highest form of living.**_
 
-Eckhart Tolle
+Anaïs Nin
