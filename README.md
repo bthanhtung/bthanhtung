@@ -1,3 +1,3 @@
-_**Computers are like bikinis. They save people a lot of guesswork.**_
+_**No man can succeed in a line of endeavor which he does not like.**_
 
-Sam Ewing
+Napoleon Hill
