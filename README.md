@@ -1,3 +1,3 @@
-_**I am of the opinion that my life belongs to the community, and as long as I live it is my privilege to do for it whatever I can.**_
+_**A hero is no braver than an ordinary man, but he is braver five minutes longer.**_
 
-Bernard Shaw
+Ralph Waldo Emerson
