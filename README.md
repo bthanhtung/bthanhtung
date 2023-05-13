@@ -1,3 +1,3 @@
-_**A hero is no braver than an ordinary man, but he is braver five minutes longer.**_
+_**Computers are like bikinis. They save people a lot of guesswork.**_
 
-Ralph Waldo Emerson
+Sam Ewing
