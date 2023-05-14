@@ -1,3 +1,3 @@
-_**No man can succeed in a line of endeavor which he does not like.**_
+_**We must not allow ourselves to become like the system we oppose.**_
 
-Napoleon Hill
+Desmond Tutu
