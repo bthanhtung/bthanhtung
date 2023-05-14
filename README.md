@@ -1,3 +1,3 @@
-_**We must not allow ourselves to become like the system we oppose.**_
+_**Think for yourselves and let others enjoy the privilege to do so too.**_
 
-Desmond Tutu
+Voltaire
