@@ -1,3 +1,3 @@
-_**There is nothing in a caterpillar that tells you it's going to be a butterfly.**_
+_**If you do not change direction, you may end up where you are heading.**_
 
-Buckminster Fuller
+Laozi
