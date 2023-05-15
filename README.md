@@ -1,3 +1,3 @@
-_**If you do not change direction, you may end up where you are heading.**_
+_**They must often change, who would be constant in happiness or wisdom.**_
 
-Laozi
+Confucius
