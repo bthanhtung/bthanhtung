@@ -1,3 +1,3 @@
-_**It is impossible to experience one's death objectively and still carry a tune.**_
+_**The ego is nothing other than the focus of conscious attention.**_
 
-Woody Allen
+Alan Watts
