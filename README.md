@@ -1,3 +1,3 @@
-_**Anybody can make history. Only a great man can write it.**_
+_**It is impossible to experience one's death objectively and still carry a tune.**_
 
-Oscar Wilde
+Woody Allen
