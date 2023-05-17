@@ -1,3 +1,3 @@
-_**Think like a man of action; act like a man of thought.**_
+_**If you love life, don't waste time, for time is what life is made up of.**_
 
-Henri Bergson
+Bruce Lee
