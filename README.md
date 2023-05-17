@@ -1,3 +1,3 @@
-_**The truest greatness lies in being kind, the truest wisdom in a happy mind.**_
+_**Think like a man of action; act like a man of thought.**_
 
-Ella Wheeler Wilcox
+Henri Bergson
