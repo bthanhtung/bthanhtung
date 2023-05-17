@@ -1,3 +1,3 @@
-_**The ego is nothing other than the focus of conscious attention.**_
+_**The truest greatness lies in being kind, the truest wisdom in a happy mind.**_
 
-Alan Watts
+Ella Wheeler Wilcox
