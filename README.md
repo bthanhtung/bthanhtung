@@ -1,3 +1,3 @@
-_**We love life, not because we are used to living but because we are used to loving.**_
+_**There surely is in human nature an inherent propensity to extract all the good out of all the evil.**_
 
-Friedrich Nietzsche
+Benjamin Haydon
