@@ -1,3 +1,3 @@
-_**If you love life, don't waste time, for time is what life is made up of.**_
+_**The best and most beautiful things in the world cannot be seen, nor touched... but are felt in the heart.**_
 
-Bruce Lee
+Helen Keller
