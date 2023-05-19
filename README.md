@@ -1,3 +1,3 @@
-_**Love is never lost. If not reciprocated, it will flow back and soften and purify the heart.**_
+_**Read as you taste fruit or savor wine, or enjoy friendship, love or life.**_
 
-Washington Irving
+George Herbert
