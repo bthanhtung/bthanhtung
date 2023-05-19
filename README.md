@@ -1,3 +1,3 @@
-_**There surely is in human nature an inherent propensity to extract all the good out of all the evil.**_
+_**Knowledge has three degrees: opinion, science, illumination. The means or instrument of the first is sense; of the second, dialectic; of the third, intuition.**_
 
-Benjamin Haydon
+Plotinus
