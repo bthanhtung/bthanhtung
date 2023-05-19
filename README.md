@@ -1,3 +1,3 @@
-_**Knowledge has three degrees: opinion, science, illumination. The means or instrument of the first is sense; of the second, dialectic; of the third, intuition.**_
+_**Love is never lost. If not reciprocated, it will flow back and soften and purify the heart.**_
 
-Plotinus
+Washington Irving
