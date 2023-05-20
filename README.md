@@ -1,3 +1,3 @@
-_**Friendship is almost always the union of a part of one mind with the part of another; people are friends in spots.**_
+_**Yeah, we all shine on, like the moon, and the stars, and the sun.**_
 
-George Santayana
+John Lennon
