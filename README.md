@@ -1,3 +1,3 @@
-_**Yeah, we all shine on, like the moon, and the stars, and the sun.**_
+_**As we are liberated from our own fear, our presence automatically liberates others.**_
 
-John Lennon
+Nelson Mandela
