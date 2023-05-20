@@ -1,3 +1,3 @@
-_**Read as you taste fruit or savor wine, or enjoy friendship, love or life.**_
+_**Friendship is almost always the union of a part of one mind with the part of another; people are friends in spots.**_
 
-George Herbert
+George Santayana
