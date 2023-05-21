@@ -1,3 +1,3 @@
-_**The smallest act of kindness is worth more than the grandest intention.**_
+_**A friend is someone who gives you total freedom to be yourself.**_
 
-Oscar Wilde
+Jim Morrison
