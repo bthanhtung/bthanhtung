@@ -1,3 +1,3 @@
-_**As we are liberated from our own fear, our presence automatically liberates others.**_
+_**I am fond of pigs. Dogs look up to us. Cats look down on us. Pigs treat us as equals.**_
 
-Nelson Mandela
+Winston Churchill
