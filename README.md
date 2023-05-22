@@ -1,3 +1,3 @@
-_**A friend is someone who gives you total freedom to be yourself.**_
+_**There are no limitations to the mind except those we acknowledge.**_
 
-Jim Morrison
+Napoleon Hill
