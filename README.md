@@ -1,3 +1,3 @@
-_**There are no limitations to the mind except those we acknowledge.**_
+_**Neither a lofty degree of intelligence nor imagination nor both together go to the making of genius. Love, love, love, that is the soul of genius.**_
 
-Napoleon Hill
+Wolfgang Amadeus Mozart
