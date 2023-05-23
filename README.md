@@ -1,3 +1,3 @@
-_**The sincere friends of this world are as ship lights in the stormiest of nights.**_
+_**To fly as fast as thought, you must begin by knowing that you have already arrived.**_
 
-Giotto
+Richard Bach
