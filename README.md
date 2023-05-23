@@ -1,3 +1,3 @@
-_**The pine stays green in winter... wisdom in hardship.**_
+_**The sincere friends of this world are as ship lights in the stormiest of nights.**_
 
-Norman Douglas
+Giotto
