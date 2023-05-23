@@ -1,3 +1,3 @@
-_**To fly as fast as thought, you must begin by knowing that you have already arrived.**_
+_**Once we accept our limits, we go beyond them.**_
 
-Richard Bach
+Albert Einstein
