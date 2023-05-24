@@ -1,3 +1,3 @@
-_**If one is lucky, a solitary fantasy can totally transform one million realities.**_
+_**The real problem is not whether machines think but whether men do.**_
 
-Maya Angelou
+B. F. Skinner
