@@ -1,3 +1,3 @@
-_**Once we accept our limits, we go beyond them.**_
+_**Courage is rightly esteemed the first of human qualities... because it is the quality which guarantees all others.**_
 
-Albert Einstein
+Winston Churchill
