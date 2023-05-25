@@ -1,3 +1,3 @@
-_**The real problem is not whether machines think but whether men do.**_
+_**This is the final test of a gentleman: his respect for those who can be of no possible value to him.**_
 
-B. F. Skinner
+William Lyon Phelps
