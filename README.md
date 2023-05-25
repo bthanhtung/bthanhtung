@@ -1,3 +1,3 @@
-_**So is cheerfulness, or a good temper, the more it is spent, the more remains.**_
+_**Without hard work, nothing grows but weeds.**_
 
-Ralph Waldo Emerson
+Gordon Hinckley
