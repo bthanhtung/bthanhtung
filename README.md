@@ -1,3 +1,3 @@
-_**This is the final test of a gentleman: his respect for those who can be of no possible value to him.**_
+_**So is cheerfulness, or a good temper, the more it is spent, the more remains.**_
 
-William Lyon Phelps
+Ralph Waldo Emerson
