@@ -1,3 +1,3 @@
-_**Irrigators channel waters; fletchers straighten arrows; carpenters bend wood; the wise master themselves.**_
+_**Friendship is also about liking a person for their failings, their weakness. It's also about mutual help, not about exploitation.**_
 
-The Buddha
+Paul Theroux
