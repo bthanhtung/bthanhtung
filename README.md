@@ -1,3 +1,3 @@
-_**Friendship is also about liking a person for their failings, their weakness. It's also about mutual help, not about exploitation.**_
+_**Character develops itself in the stream of life.**_
 
-Paul Theroux
+Johann Wolfgang von Goethe
