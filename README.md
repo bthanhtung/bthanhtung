@@ -1,3 +1,3 @@
-_**Without hard work, nothing grows but weeds.**_
+_**Irrigators channel waters; fletchers straighten arrows; carpenters bend wood; the wise master themselves.**_
 
-Gordon Hinckley
+The Buddha
