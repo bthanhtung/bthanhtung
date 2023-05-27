@@ -1,3 +1,3 @@
-_**Time is the wisest counsellor of all.**_
+_**Try not to become a man of success, but rather try to become a man of value.**_
 
-Pericles
+Albert Einstein
