@@ -1,3 +1,3 @@
-_**Try not to become a man of success, but rather try to become a man of value.**_
+_**Vanity can easily overtake wisdom. It usually overtakes common sense.**_
 
-Albert Einstein
+Julian Casablancas
