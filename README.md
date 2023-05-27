@@ -1,3 +1,3 @@
-_**Character develops itself in the stream of life.**_
+_**Time is the wisest counsellor of all.**_
 
-Johann Wolfgang von Goethe
+Pericles
