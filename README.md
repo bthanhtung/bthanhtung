@@ -1,3 +1,3 @@
-_**True happiness means forging a strong spirit that is undefeated, no matter how trying our circumstances.**_
+_**The price of greatness is responsibility.**_
 
-Daisaku Ikeda
+Winston Churchill
