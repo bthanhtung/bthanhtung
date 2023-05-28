@@ -1,3 +1,3 @@
-_**Vanity can easily overtake wisdom. It usually overtakes common sense.**_
+_**True happiness means forging a strong spirit that is undefeated, no matter how trying our circumstances.**_
 
-Julian Casablancas
+Daisaku Ikeda
