@@ -1,3 +1,3 @@
-_**The price of greatness is responsibility.**_
+_**Technology is anything that wasn't around when you were born.**_
 
-Winston Churchill
+Man Ray
