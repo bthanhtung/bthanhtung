@@ -1,3 +1,3 @@
-_**Technology is anything that wasn't around when you were born.**_
+_**We never understand how little we need in this world until we know the loss of it.**_
 
-Man Ray
+J. M. Barrie
