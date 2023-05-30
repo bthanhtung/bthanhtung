@@ -1,3 +1,3 @@
-_**Quality is not an act; it is a habit.**_
+_**I love my past. I love my present. I'm not ashamed of what I've had, and I'm not sad because I have it no longer.**_
 
-Aristotle
+Colette
