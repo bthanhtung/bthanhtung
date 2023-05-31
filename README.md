@@ -1,3 +1,3 @@
-_**Happiness cannot be travelled to, owned, earned, worn or consumed. Happiness is the spiritual experience of living every minute with love, grace and gratitude.**_
+_**Laughter is not at all a bad beginning for a friendship, and it is far the best ending for one.**_
 
-Denis Waitley
+Oscar Wilde
