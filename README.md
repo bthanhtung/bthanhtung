@@ -1,3 +1,3 @@
-_**I love my past. I love my present. I'm not ashamed of what I've had, and I'm not sad because I have it no longer.**_
+_**Happiness cannot be travelled to, owned, earned, worn or consumed. Happiness is the spiritual experience of living every minute with love, grace and gratitude.**_
 
-Colette
+Denis Waitley
