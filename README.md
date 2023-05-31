@@ -1,3 +1,3 @@
-_**Laughter is not at all a bad beginning for a friendship, and it is far the best ending for one.**_
+_**Look back over the past, with its changing empires that rose and fell, and you can foresee the future, too.**_
 
-Oscar Wilde
+Marcus Aurelius
