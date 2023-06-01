@@ -1,3 +1,3 @@
-_**The best way out is always through.**_
+_**Do you know what my favorite part of the game is? The opportunity to play.**_
 
-Robert Frost
+Mike Singletary (basketball)
