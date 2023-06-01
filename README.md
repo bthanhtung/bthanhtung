@@ -1,3 +1,3 @@
-_**Look back over the past, with its changing empires that rose and fell, and you can foresee the future, too.**_
+_**Happiness often sneaks in through a door you didn't know you left open.**_
 
-Marcus Aurelius
+John Barrymore
