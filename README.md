@@ -1,3 +1,3 @@
-_**Think as a wise man but communicate in the language of the people.**_
+_**Friendship is certainly the finest balm for the pangs of disappointed love.**_
 
-William Butler Yeats
+Jane Austen
