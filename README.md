@@ -1,3 +1,3 @@
-_**Friendship is certainly the finest balm for the pangs of disappointed love.**_
+_**The most technologically efficient machine that man has ever invented is the book.**_
 
-Jane Austen
+Northrop Frye
