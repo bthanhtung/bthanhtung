@@ -1,3 +1,3 @@
-_**Do you know what my favorite part of the game is? The opportunity to play.**_
+_**Think as a wise man but communicate in the language of the people.**_
 
-Mike Singletary (basketball)
+William Butler Yeats
