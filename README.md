@@ -1,3 +1,3 @@
-_**When written in Chinese, the word 'crisis' is composed of two characters. One represents danger and the other represents opportunity.**_
+_**There are two kinds of failures: those who thought and never did, and those who did and never thought.**_
 
-John F. Kennedy
+Laurence J. Peter
