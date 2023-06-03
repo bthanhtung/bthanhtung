@@ -1,3 +1,3 @@
-_**The most technologically efficient machine that man has ever invented is the book.**_
+_**The pessimist sees difficulty in every opportunity. The optimist sees the opportunity in every difficulty.**_
 
-Northrop Frye
+Winston Churchill
