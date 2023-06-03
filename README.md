@@ -1,3 +1,3 @@
-_**The pessimist sees difficulty in every opportunity. The optimist sees the opportunity in every difficulty.**_
+_**When written in Chinese, the word 'crisis' is composed of two characters. One represents danger and the other represents opportunity.**_
 
-Winston Churchill
+John F. Kennedy
