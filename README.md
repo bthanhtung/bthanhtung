@@ -1,3 +1,3 @@
-_**There is no retirement for an artist, it's your way of living so there is no end to it.**_
+_**Never do things others can do and will do, if there are things others cannot do or will not do.**_
 
-Henry Moore
+Amelia Earhart
