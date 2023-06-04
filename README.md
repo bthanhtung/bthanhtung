@@ -1,3 +1,3 @@
-_**There are two kinds of failures: those who thought and never did, and those who did and never thought.**_
+_**There is no scarcity of opportunity to make a living at what you love; there's only scarcity of resolve to make it happen.**_
 
-Laurence J. Peter
+Wayne Dyer
