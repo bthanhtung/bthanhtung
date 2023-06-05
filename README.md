@@ -1,3 +1,3 @@
-_**A subtle thought that is in error may yet give rise to fruitful inquiry that can establish truths of great value.**_
+_**Man is not sum of what he has already, but rather the sum of what he does not yet have, of what he could have.**_
 
-Isaac Asimov
+Jean-Paul Sartre
