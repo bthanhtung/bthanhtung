@@ -1,3 +1,3 @@
-_**Never do things others can do and will do, if there are things others cannot do or will not do.**_
+_**Adversity has the effect of eliciting talents, which in prosperous circumstances would have lain dormant.**_
 
-Amelia Earhart
+Horace
