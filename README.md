@@ -1,3 +1,3 @@
-_**Man is not sum of what he has already, but rather the sum of what he does not yet have, of what he could have.**_
+_**If one does not know to which port one is sailing, no wind is favorable.**_
 
-Jean-Paul Sartre
+Seneca the Younger
