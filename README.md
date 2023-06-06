@@ -1,3 +1,3 @@
-_**That old law about 'an eye for an eye' leaves everybody blind. The time is always right to do the right thing.**_
+_**Yesterday I dared to struggle. Today I dare to win.**_
 
-Martin Luther King Jr.
+Bernadette Devlin
