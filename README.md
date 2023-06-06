@@ -1,3 +1,3 @@
-_**If one does not know to which port one is sailing, no wind is favorable.**_
+_**That old law about 'an eye for an eye' leaves everybody blind. The time is always right to do the right thing.**_
 
-Seneca the Younger
+Martin Luther King Jr.
