@@ -1,3 +1,3 @@
-_**Yesterday I dared to struggle. Today I dare to win.**_
+_**Keep your face always toward the sunshine - and shadows will fall behind you.**_
 
-Bernadette Devlin
+Walt Whitman
