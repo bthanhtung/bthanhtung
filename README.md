@@ -1,3 +1,3 @@
-_**If you have one true friend, you have more than your share.**_
+_**We make a living by what we get, but we make a life by what we give.**_
 
-Thomas Fuller
+Winston Churchill
