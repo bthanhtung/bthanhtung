@@ -1,3 +1,3 @@
-_**Keep your face always toward the sunshine - and shadows will fall behind you.**_
+_**If you have one true friend, you have more than your share.**_
 
-Walt Whitman
+Thomas Fuller
