@@ -1,3 +1,3 @@
-_**We make a living by what we get, but we make a life by what we give.**_
+_**Divide each difficulty into as many parts as is feasible and necessary to resolve it.**_
 
-Winston Churchill
+René Descartes
