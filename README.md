@@ -1,3 +1,3 @@
-_**Were here for a reason. I believe a bit of the reason is to throw little torches out to lead people through the dark.**_
+_**However rare true love may be, it is less so than true friendship.**_
 
-Whoopi Goldberg
+François de La Rochefoucauld
