@@ -1,3 +1,3 @@
-_**Divide each difficulty into as many parts as is feasible and necessary to resolve it.**_
+_**Were here for a reason. I believe a bit of the reason is to throw little torches out to lead people through the dark.**_
 
-René Descartes
+Whoopi Goldberg
