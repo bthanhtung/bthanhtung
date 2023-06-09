@@ -1,3 +1,3 @@
-_**It seemed the world was divided into good and bad people. The good ones slept better... while the bad ones seemed to enjoy the waking hours much more.**_
+_**You have enemies? Good. That means you've stood up for something, sometime in your life.**_
 
-Woody Allen
+Winston Churchill
