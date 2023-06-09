@@ -1,3 +1,3 @@
-_**However rare true love may be, it is less so than true friendship.**_
+_**We are made wise not by the recollection of our past, but by the responsibility for our future.**_
 
-François de La Rochefoucauld
+Bernard Shaw
