@@ -1,3 +1,3 @@
-_**You have enemies? Good. That means you've stood up for something, sometime in your life.**_
+_**Logic will get you from A to B. Imagination will take you everywhere.**_
 
-Winston Churchill
+Albert Einstein
