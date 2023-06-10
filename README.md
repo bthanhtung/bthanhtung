@@ -1,3 +1,3 @@
-_**Logic will get you from A to B. Imagination will take you everywhere.**_
+_**May our hearts garden of awakening bloom with hundreds of flowers.**_
 
-Albert Einstein
+Thích Nhất Hạnh
