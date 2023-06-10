@@ -1,3 +1,3 @@
-_**May our hearts garden of awakening bloom with hundreds of flowers.**_
+_**Gratitude is the fairest blossom which springs from the soul.**_
 
-Thích Nhất Hạnh
+Henry K. Beecher
