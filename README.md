@@ -1,3 +1,3 @@
-_**Gratitude is the fairest blossom which springs from the soul.**_
+_**The greatest minds are capable of the greatest vices as well as of the greatest virtues.**_
 
-Henry K. Beecher
+René Descartes
