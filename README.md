@@ -1,3 +1,3 @@
-_**Do not give your attention to what others do or fail to do; give it to what you do or fail to do.**_
+_**Do not wait for leaders; do it alone, person to person.**_
 
-Dhammapada
+Mother Teresa
