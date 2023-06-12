@@ -1,3 +1,3 @@
-_**Be here now. Be someplace else later. Is that so complicated?**_
+_**I have just three things to teach: simplicity, patience, compassion. These three are your greatest treasures.**_
 
-David Bader
+Laozi
