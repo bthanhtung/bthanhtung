@@ -1,3 +1,3 @@
-_**Do not wait for leaders; do it alone, person to person.**_
+_**Without some goals and some efforts to reach it, no man can live.**_
 
-Mother Teresa
+John Dewey
