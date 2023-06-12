@@ -1,3 +1,3 @@
-_**Without some goals and some efforts to reach it, no man can live.**_
+_**Be here now. Be someplace else later. Is that so complicated?**_
 
-John Dewey
+David Bader
