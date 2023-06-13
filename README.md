@@ -1,3 +1,3 @@
-_**All perceiving is also thinking, all reasoning is also intuition, all observation is also invention.**_
+_**No day in which you learn something is a complete loss.**_
 
-Rudolf Arnheim
+David Eddings
