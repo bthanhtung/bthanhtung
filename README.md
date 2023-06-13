@@ -1,3 +1,3 @@
-_**History is written by the victors.**_
+_**All perceiving is also thinking, all reasoning is also intuition, all observation is also invention.**_
 
-Winston Churchill
+Rudolf Arnheim
