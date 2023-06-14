@@ -1,3 +1,3 @@
-_**Acquaintances we meet, enjoy, and can easily leave behind; but friendship grows deep roots.**_
+_**Victory belongs to the most persevering.**_
 
-H. Jackson Brown Jr.
+Napoleon
