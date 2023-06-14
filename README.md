@@ -1,3 +1,3 @@
-_**No day in which you learn something is a complete loss.**_
+_**Acquaintances we meet, enjoy, and can easily leave behind; but friendship grows deep roots.**_
 
-David Eddings
+H. Jackson Brown Jr.
