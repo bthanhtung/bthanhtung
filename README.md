@@ -1,3 +1,3 @@
-_**You cannot step twice into the same river, for other waters are continually flowing in.**_
+_**Tragedy is a tool for the living to gain wisdom, not a guide by which to live.**_
 
-Heraclitus
+Robert F. Kennedy
