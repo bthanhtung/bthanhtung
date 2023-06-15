@@ -1,3 +1,3 @@
-_**There is no need for temples, no need for complicated philosophies. My brain and my heart are my temples; my philosophy is kindness.**_
+_**How is it possible to find meaning in a finite world, given my waist and shirt size?**_
 
-Dalai Lama
+Woody Allen
