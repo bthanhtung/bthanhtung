@@ -1,3 +1,3 @@
-_**People grow through experience if they meet life honestly and courageously. This is how character is built.**_
+_**Every gift from a friend is a wish for your happiness.**_
 
-Eleanor Roosevelt
+Richard Bach
