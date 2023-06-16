@@ -1,3 +1,3 @@
-_**How is it possible to find meaning in a finite world, given my waist and shirt size?**_
+_**The teacher who is indeed wise does not bid you to enter the house of his wisdom but rather leads you to the threshold of your mind.**_
 
-Woody Allen
+Kahlil Gibran
