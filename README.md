@@ -1,3 +1,3 @@
-_**Every gift from a friend is a wish for your happiness.**_
+_**When you see a good person, think of becoming like him. When you see someone not so good, reflect on your own weak points.**_
 
-Richard Bach
+Confucius
