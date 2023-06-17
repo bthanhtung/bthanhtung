@@ -1,3 +1,3 @@
-_**Fortune favors the brave.**_
+_**I gave my life to become the person I am right now. Was it worth it?**_
 
-Virgil
+Richard Bach
