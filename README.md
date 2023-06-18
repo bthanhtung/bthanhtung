@@ -1,3 +1,3 @@
-_**What wisdom can you find that is greater than kindness?**_
+_**No act of kindness, no matter how small, is ever wasted.**_
 
-Jean-Jacques Rousseau
+Aesop
