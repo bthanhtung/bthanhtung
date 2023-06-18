@@ -1,3 +1,3 @@
-_**I gave my life to become the person I am right now. Was it worth it?**_
+_**What wisdom can you find that is greater than kindness?**_
 
-Richard Bach
+Jean-Jacques Rousseau
