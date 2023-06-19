@@ -1,3 +1,3 @@
-_**If you want your life to be more rewarding, you have to change the way you think.**_
+_**There are three classes of men; lovers of wisdom, lovers of honor, and lovers of gain.**_
 
-Oprah Winfrey
+Plato
