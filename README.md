@@ -1,3 +1,3 @@
-_**We are made wise not by the recollection of our past, but by the responsibility for our future.**_
+_**Great acts are made up of small deeds.**_
 
-Bernard Shaw
+Laozi
