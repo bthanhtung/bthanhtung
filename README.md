@@ -1,3 +1,3 @@
-_**There are people who have money and people who are rich.**_
+_**There are three faithful friends - an old wife, an old dog, and ready money.**_
 
-Coco Chanel
+Benjamin Franklin
