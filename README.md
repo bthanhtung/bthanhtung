@@ -1,3 +1,3 @@
-_**It is not enough to have a good mind; the main thing is to use it well.**_
+_**The opportunity for brotherhood presents itself every time you meet a human being.**_
 
-René Descartes
+Jane Wyman
