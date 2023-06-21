@@ -1,3 +1,3 @@
-_**The opportunity for brotherhood presents itself every time you meet a human being.**_
+_**There are people who have money and people who are rich.**_
 
-Jane Wyman
+Coco Chanel
