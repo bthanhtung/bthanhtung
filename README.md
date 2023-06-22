@@ -1,3 +1,3 @@
-_**Miracles come in moments. Be ready and willing.**_
+_**Work for something because it is good, not just because it stands a chance to succeed.**_
 
-Wayne Dyer
+Václav Havel
