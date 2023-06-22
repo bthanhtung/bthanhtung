@@ -1,3 +1,3 @@
-_**There are three faithful friends - an old wife, an old dog, and ready money.**_
+_**Miracles come in moments. Be ready and willing.**_
 
-Benjamin Franklin
+Wayne Dyer
