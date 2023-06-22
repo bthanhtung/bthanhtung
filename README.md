@@ -1,3 +1,3 @@
-_**Work for something because it is good, not just because it stands a chance to succeed.**_
+_**If you spend too much time thinking about a thing, you'll never get it done.**_
 
-Václav Havel
+Bruce Lee
