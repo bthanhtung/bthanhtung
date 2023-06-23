@@ -1,3 +1,3 @@
-_**Learning is finding out what you already know.**_
+_**Your worst enemy cannot harm you as much as your own unguarded thoughts.**_
 
-Richard Bach
+The Buddha
