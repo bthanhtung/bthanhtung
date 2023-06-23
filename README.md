@@ -1,3 +1,3 @@
-_**Your worst enemy cannot harm you as much as your own unguarded thoughts.**_
+_**Trust only movement. Life happens at the level of events, not of words. Trust movement.**_
 
-The Buddha
+Alfred Adler
