@@ -1,3 +1,3 @@
-_**Trust only movement. Life happens at the level of events, not of words. Trust movement.**_
+_**I allow my intuition to lead my path.**_
 
-Alfred Adler
+Manuel Puig
