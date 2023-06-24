@@ -1,3 +1,3 @@
-_**I allow my intuition to lead my path.**_
+_**You can't shake hands with a clenched fist.**_
 
-Manuel Puig
+Indira Gandhi
