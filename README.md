@@ -1,3 +1,3 @@
-_**You can't shake hands with a clenched fist.**_
+_**When fate hands us a lemon, let's try to make lemonade.**_
 
-Indira Gandhi
+Dale Carnegie
