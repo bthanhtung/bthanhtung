@@ -1,3 +1,3 @@
-_**When fate hands us a lemon, let's try to make lemonade.**_
+_**Life without love is like a tree without blossoms or fruit.**_
 
-Dale Carnegie
+Kahlil Gibran
