@@ -1,3 +1,3 @@
-_**Your sacred space is where you can find yourself again and again.**_
+_**May our hearts garden of awakening bloom with hundreds of flowers.**_
 
-Joseph Campbell
+Thích Nhất Hạnh
