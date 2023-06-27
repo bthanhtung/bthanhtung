@@ -1,3 +1,3 @@
-_**Edison failed 10,000 times before he made the electric light. Do not be discouraged if you fail a few times.**_
+_**Love and compassion open our own inner life, reducing stress, distrust and loneliness.**_
 
-Napoleon Hill
+Dalai Lama
