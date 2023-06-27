@@ -1,3 +1,3 @@
-_**May our hearts garden of awakening bloom with hundreds of flowers.**_
+_**Friends... they cherish one another's hopes. They are kind to one another's dreams.**_
 
-Thích Nhất Hạnh
+Henry David Thoreau
