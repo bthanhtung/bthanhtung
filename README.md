@@ -1,3 +1,3 @@
-_**Friends... they cherish one another's hopes. They are kind to one another's dreams.**_
+_**Edison failed 10,000 times before he made the electric light. Do not be discouraged if you fail a few times.**_
 
-Henry David Thoreau
+Napoleon Hill
