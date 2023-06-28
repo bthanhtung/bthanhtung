@@ -1,3 +1,3 @@
-_**Love and compassion open our own inner life, reducing stress, distrust and loneliness.**_
+_**The only limit to our realization of tomorrow will be our doubts of today.**_
 
-Dalai Lama
+Franklin D. Roosevelt
