@@ -1,3 +1,3 @@
-_**Yesterday's home runs don't win today's games.**_
+_**Love is composed of a single soul inhabiting two bodies.**_
 
-Babe Ruth
+Aristotle
