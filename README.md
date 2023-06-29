@@ -1,3 +1,3 @@
-_**It is with words as with sunbeams. The more they are condensed, the deeper they burn.**_
+_**I have an everyday religion that works for me. Love yourself first, and everything else falls into line.**_
 
-Robert Southey
+Lucille Ball
