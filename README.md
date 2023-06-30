@@ -1,3 +1,3 @@
-_**I have an everyday religion that works for me. Love yourself first, and everything else falls into line.**_
+_**You know you're in love when you can't fall asleep because reality is finally better than your dreams.**_
 
-Lucille Ball
+Dr. Seuss
