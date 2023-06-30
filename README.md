@@ -1,3 +1,3 @@
-_**You know you're in love when you can't fall asleep because reality is finally better than your dreams.**_
+_**Fine words and an insinuating appearance are seldom associated with true virtue**_
 
-Dr. Seuss
+Confucius
