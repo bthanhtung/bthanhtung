@@ -1,3 +1,3 @@
-_**For it was not into my ear you whispered, but into my heart. It was not my lips you kissed, but my soul.**_
+_**Marriage is the highest state of friendship. If happy, it lessens our cares by dividing them, at the same time that it doubles our pleasures by mutual participation.**_
 
-Judy Garland
+Samuel Richardson
