@@ -1,3 +1,3 @@
-_**To make no mistakes is not in the power of man; but from their errors and mistakes the wise and good learn wisdom for the future.**_
+_**For it was not into my ear you whispered, but into my heart. It was not my lips you kissed, but my soul.**_
 
-Plutarch
+Judy Garland
