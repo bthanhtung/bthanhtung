@@ -1,3 +1,3 @@
-_**The mind unlearns with difficulty what it has long learned.**_
+_**Irony is the gaiety of reflection and the joy of wisdom.**_
 
-Seneca the Younger
+Anatole France
