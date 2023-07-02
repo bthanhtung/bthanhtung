@@ -1,3 +1,3 @@
-_**Irony is the gaiety of reflection and the joy of wisdom.**_
+_**By letting it go it all gets done. The world is won by those who let it go. But when you try and try. The world is beyond the winning.**_
 
-Anatole France
+Laozi
