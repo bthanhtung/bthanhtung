@@ -1,3 +1,3 @@
-_**A passion for politics stems usually from an insatiable need, either for power, or for friendship and adulation, or a combination of both.**_
+_**Love yourself first and everything else falls into line. You really have to love yourself to get anything done in this world.**_
 
-Fawn M. Brodie
+Lucille Ball
