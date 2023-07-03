@@ -1,3 +1,3 @@
-_**Learning never exhausts the mind.**_
+_**Whatever has the nature of arising has the nature of ceasing.**_
 
-Leonardo da Vinci
+The Buddha
