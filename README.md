@@ -1,3 +1,3 @@
-_**Love yourself first and everything else falls into line. You really have to love yourself to get anything done in this world.**_
+_**Learning never exhausts the mind.**_
 
-Lucille Ball
+Leonardo da Vinci
