@@ -1,3 +1,3 @@
-_**Whatever has the nature of arising has the nature of ceasing.**_
+_**The best preparation for tomorrow is doing your best today.**_
 
-The Buddha
+H. Jackson Brown Jr.
