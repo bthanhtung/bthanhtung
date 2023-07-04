@@ -1,3 +1,3 @@
-_**He who knows himself is enlightened.**_
+_**Truth is powerful and it prevails.**_
 
-Laozi
+Sojourner Truth
