@@ -1,3 +1,3 @@
-_**The best preparation for tomorrow is doing your best today.**_
+_**He who knows himself is enlightened.**_
 
-H. Jackson Brown Jr.
+Laozi
