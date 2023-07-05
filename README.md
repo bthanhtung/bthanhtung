@@ -1,3 +1,3 @@
-_**Every adversity, every failure, every heartache carries with it the seed of an equal or greater benefit.**_
+_**It is common sense to take a method and try it. If it fails, admit it frankly and try another. But above all, try something.**_
 
-Napoleon Hill
+Franklin D. Roosevelt
