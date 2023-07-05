@@ -1,3 +1,3 @@
-_**Truth is powerful and it prevails.**_
+_**Who sows virtue reaps honor.**_
 
-Sojourner Truth
+Leonardo da Vinci
