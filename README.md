@@ -1,3 +1,3 @@
-_**Who sows virtue reaps honor.**_
+_**Every adversity, every failure, every heartache carries with it the seed of an equal or greater benefit.**_
 
-Leonardo da Vinci
+Napoleon Hill
