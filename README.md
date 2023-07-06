@@ -1,3 +1,3 @@
-_**It is common sense to take a method and try it. If it fails, admit it frankly and try another. But above all, try something.**_
+_**Good timber does not grow with ease; the stronger the wind, the stronger the trees.**_
 
-Franklin D. Roosevelt
+J. Willard Marriott
