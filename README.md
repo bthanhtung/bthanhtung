@@ -1,3 +1,3 @@
-_**Good timber does not grow with ease; the stronger the wind, the stronger the trees.**_
+_**Well begun is half done.**_
 
-J. Willard Marriott
+Aristotle
