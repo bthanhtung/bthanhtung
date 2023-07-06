@@ -1,3 +1,3 @@
-_**Well begun is half done.**_
+_**Many men go fishing all of their lives without knowing that it is not fish they are after.**_
 
-Aristotle
+Henry David Thoreau
