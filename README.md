@@ -1,3 +1,3 @@
-_**Important principles may, and must, be inflexible.**_
+_**Be kind whenever possible. It is always possible.**_
 
-Abraham Lincoln
+Dalai Lama
