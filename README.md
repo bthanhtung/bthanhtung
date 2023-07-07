@@ -1,3 +1,3 @@
-_**Many men go fishing all of their lives without knowing that it is not fish they are after.**_
+_**Important principles may, and must, be inflexible.**_
 
-Henry David Thoreau
+Abraham Lincoln
