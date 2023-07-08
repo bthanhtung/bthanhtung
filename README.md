@@ -1,3 +1,3 @@
-_**All our knowledge begins with the senses, proceeds then to the understanding, and ends with reason. There is nothing higher than reason.**_
+_**Use what talents you possess; the woods would be very silent if no birds sang there except those that sang best.**_
 
-Immanuel Kant
+Henry van Dyke Jr.
