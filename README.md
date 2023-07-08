@@ -1,3 +1,3 @@
-_**Use what talents you possess; the woods would be very silent if no birds sang there except those that sang best.**_
+_**If one advances confidently in the direction of his dream, and endeavors to live the life which he had imagines, he will meet with a success unexpected in common hours.**_
 
-Henry van Dyke Jr.
+Henry David Thoreau
