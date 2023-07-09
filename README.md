@@ -1,3 +1,3 @@
-_**Happiness is not something ready-made. It comes from your own actions.**_
+_**Victory belongs to the most persevering.**_
 
-Dalai Lama
+Napoleon
