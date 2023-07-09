@@ -1,3 +1,3 @@
-_**Good people are good because they've come to wisdom through failure. We get very little wisdom from success, you know.**_
+_**There are no limitations to the mind except those we acknowledge.**_
 
-William Saroyan
+Napoleon Hill
