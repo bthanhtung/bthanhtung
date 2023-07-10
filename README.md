@@ -1,3 +1,3 @@
-_**The first step to getting the things you want out of life is this: decide what you want.**_
+_**When you realize there is nothing lacking, the whole world belongs to you.**_
 
-Ben Stein
+Laozi
