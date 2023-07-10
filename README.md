@@ -1,3 +1,3 @@
-_**Important principles may, and must, be inflexible.**_
+_**The first step to getting the things you want out of life is this: decide what you want.**_
 
-Abraham Lincoln
+Ben Stein
