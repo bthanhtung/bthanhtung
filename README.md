@@ -1,3 +1,3 @@
-_**The ultimate promise of technology is to make us master of a world that we command by the push of a button.**_
+_**Never doubt that a small group of thoughtful, committed people can change the world. Indeed. It is the only thing that ever has.**_
 
-Volker Grassmuck
+Margaret Mead
