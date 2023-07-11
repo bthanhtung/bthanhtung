@@ -1,3 +1,3 @@
-_**They say that time changes things, but you actually have to change them yourself.**_
+_**The ultimate promise of technology is to make us master of a world that we command by the push of a button.**_
 
-Andy Warhol
+Volker Grassmuck
