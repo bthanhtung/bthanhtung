@@ -1,3 +1,3 @@
-_**When you realize there is nothing lacking, the whole world belongs to you.**_
+_**They say that time changes things, but you actually have to change them yourself.**_
 
-Laozi
+Andy Warhol
