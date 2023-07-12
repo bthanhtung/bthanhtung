@@ -1,3 +1,3 @@
-_**Experience is not what happens to you; it's what you do with what happens to you.**_
+_**He who controls others may be powerful, but he who has mastered himself is mightier still.**_
 
-Aldous Huxley
+Laozi
