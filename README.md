@@ -1,3 +1,3 @@
-_**He who controls others may be powerful, but he who has mastered himself is mightier still.**_
+_**All fixed set patterns are incapable of adaptability or pliability. The truth is outside of all fixed patterns.**_
 
-Laozi
+Bruce Lee
