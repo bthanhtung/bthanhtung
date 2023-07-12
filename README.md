@@ -1,3 +1,3 @@
-_**Never doubt that a small group of thoughtful, committed people can change the world. Indeed. It is the only thing that ever has.**_
+_**Experience is not what happens to you; it's what you do with what happens to you.**_
 
-Margaret Mead
+Aldous Huxley
