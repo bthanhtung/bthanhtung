@@ -1,3 +1,3 @@
-_**Everything in the universe goes by indirection. There are no straight lines.**_
+_**I love you the more in that I believe you had liked me for my own sake and for nothing else.**_
 
-Ralph Waldo Emerson
+John Keats
