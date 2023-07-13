@@ -1,3 +1,3 @@
-_**All fixed set patterns are incapable of adaptability or pliability. The truth is outside of all fixed patterns.**_
+_**The opportunity for brotherhood presents itself every time you meet a human being.**_
 
-Bruce Lee
+Jane Wyman
