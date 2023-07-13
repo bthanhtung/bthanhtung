@@ -1,3 +1,3 @@
-_**The opportunity for brotherhood presents itself every time you meet a human being.**_
+_**Everything in the universe goes by indirection. There are no straight lines.**_
 
-Jane Wyman
+Ralph Waldo Emerson
