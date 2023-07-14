@@ -1,3 +1,3 @@
-_**I love you the more in that I believe you had liked me for my own sake and for nothing else.**_
+_**One's life has value so long as one attributes value to the life of others, by means of love, friendship, indignation and compassion.**_
 
-John Keats
+Simone de Beauvoir
