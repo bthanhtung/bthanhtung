@@ -1,3 +1,3 @@
-_**The person who lives life fully, glowing with life's energy, is the person who lives a successful life.**_
+_**Technology is teaching us to be human again.**_
 
-Daisaku Ikeda
+Simon Mainwaring
