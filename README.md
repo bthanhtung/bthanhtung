@@ -1,3 +1,3 @@
-_**One's life has value so long as one attributes value to the life of others, by means of love, friendship, indignation and compassion.**_
+_**The person who lives life fully, glowing with life's energy, is the person who lives a successful life.**_
 
-Simone de Beauvoir
+Daisaku Ikeda
