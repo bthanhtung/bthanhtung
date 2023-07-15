@@ -1,3 +1,3 @@
-_**Some of the best lessons we ever learn are learned from past mistakes. The error of the past is the wisdom and success of the future.**_
+_**It isn't what happens to us that causes us to suffer; it's what we say to ourselves about what happens.**_
 
-Dale Turner
+Pema Chödrön
