@@ -1,3 +1,3 @@
-_**It isn't what happens to us that causes us to suffer; it's what we say to ourselves about what happens.**_
+_**It's just a job. Grass grows, birds fly, waves pound the sand. I beat people up.**_
 
-Pema Chödrön
+Muhammad Ali
