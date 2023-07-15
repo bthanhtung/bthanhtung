@@ -1,3 +1,3 @@
-_**Technology is teaching us to be human again.**_
+_**Some of the best lessons we ever learn are learned from past mistakes. The error of the past is the wisdom and success of the future.**_
 
-Simon Mainwaring
+Dale Turner
