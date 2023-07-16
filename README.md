@@ -1,3 +1,3 @@
-_**Great indeed is the sublimity of the Creative, to which all beings owe their beginning, and which permeates all heaven.**_
+_**Love yourself first and everything else falls into line. You really have to love yourself to get anything done in this world.**_
 
-Laozi
+Lucille Ball
