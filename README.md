@@ -1,3 +1,3 @@
-_**We lost because we told ourselves we lost.**_
+_**Great indeed is the sublimity of the Creative, to which all beings owe their beginning, and which permeates all heaven.**_
 
-Leo Tolstoy
+Laozi
