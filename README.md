@@ -1,3 +1,3 @@
-_**Iron rusts from disuse; water loses its purity from stagnation... even so does inaction sap the vigor of the mind.**_
+_**Success in business requires training and discipline and hard work. But if you're not frightened by these things, the opportunities are just as great today as they ever were.**_
 
-Leonardo da Vinci
+David Rockefeller
