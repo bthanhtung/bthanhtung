@@ -1,3 +1,3 @@
-_**If you do what you've always done, you'll get what you've always gotten.**_
+_**Always tell the truth. That way, you don't have to remember what you said.**_
 
-Tony Robbins
+Mark Twain
