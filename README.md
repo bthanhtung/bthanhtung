@@ -1,3 +1,3 @@
-_**Always tell the truth. That way, you don't have to remember what you said.**_
+_**Iron rusts from disuse; water loses its purity from stagnation... even so does inaction sap the vigor of the mind.**_
 
-Mark Twain
+Leonardo da Vinci
