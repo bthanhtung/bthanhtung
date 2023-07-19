@@ -1,3 +1,3 @@
-_**When you come to the end of your rope, tie a knot and hang on.**_
+_**A dream is your creative vision for your life in the future. You must break out of your current comfort zone and become comfortable with the unfamiliar and the unknown.**_
 
-Franklin D. Roosevelt
+Denis Waitley
