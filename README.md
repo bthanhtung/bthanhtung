@@ -1,3 +1,3 @@
-_**Happiness often sneaks in through a door you didn't know you left open.**_
+_**True knowledge exists in knowing that you know nothing.**_
 
-John Barrymore
+Isocrates
