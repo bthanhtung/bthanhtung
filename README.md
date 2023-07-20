@@ -1,3 +1,3 @@
-_**The purpose of learning is growth, and our minds, unlike our bodies, can continue growing as we continue to live.**_
+_**The smallest flower is a thought, a life answering to some feature of the Great Whole, of whom they have a persistent intuition.**_
 
-Mortimer J. Adler
+Honoré de Balzac
