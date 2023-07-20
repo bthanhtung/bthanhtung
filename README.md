@@ -1,3 +1,3 @@
-_**The smallest flower is a thought, a life answering to some feature of the Great Whole, of whom they have a persistent intuition.**_
+_**Happiness often sneaks in through a door you didn't know you left open.**_
 
-Honoré de Balzac
+John Barrymore
