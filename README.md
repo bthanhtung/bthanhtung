@@ -1,3 +1,3 @@
-_**We must be as courteous to a man as we are to a picture, which we are willing to give the advantage of a good light.**_
+_**For it was not into my ear you whispered, but into my heart. It was not my lips you kissed, but my soul.**_
 
-Ralph Waldo Emerson
+Judy Garland
