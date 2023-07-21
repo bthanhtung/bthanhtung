@@ -1,3 +1,3 @@
-_**True knowledge exists in knowing that you know nothing.**_
+_**I will prepare and someday my chance will come.**_
 
-Isocrates
+Abraham Lincoln
