@@ -1,3 +1,3 @@
-_**Think as a wise man but communicate in the language of the people.**_
+_**The real problem is not whether machines think but whether men do.**_
 
-William Butler Yeats
+B. F. Skinner
