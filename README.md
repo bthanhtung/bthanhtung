@@ -1,3 +1,3 @@
-_**Do I speak at the right time, or not? Do I speak of facts, or not? Do I speak gently or harshly? Do I speak profitable words or not? Do I speak with a kindly heart, or inwardly malicious?**_
+_**Think as a wise man but communicate in the language of the people.**_
 
-The Buddha
+William Butler Yeats
