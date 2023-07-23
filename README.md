@@ -1,3 +1,3 @@
-_**We must embrace pain and burn it as fuel for our journey.**_
+_**If you set out to be liked, you would be prepared to compromise on anything at any time, and you would achieve nothing.**_
 
-Kenji Miyazawa
+Margaret Thatcher
