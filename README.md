@@ -1,3 +1,3 @@
-_**Technology is a word that describes something that doesn't work yet.**_
+_**The heart has its reasons which reason knows not of.**_
 
-Douglas Adams
+Blaise Pascal
