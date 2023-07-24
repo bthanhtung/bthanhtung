@@ -1,3 +1,3 @@
-_**We make a living by what we get, but we make a life by what we give.**_
+_**Take no thought of who is right or wrong or who is better than. Be not for or against.**_
 
-Winston Churchill
+Bruce Lee
