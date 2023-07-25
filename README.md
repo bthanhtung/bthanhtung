@@ -1,3 +1,3 @@
-_**Ceasing to do evil, Cultivating the good, Purifying the heart: This is the teaching of the Buddhas.**_
+_**Think like a man of action; act like a man of thought.**_
 
-The Buddha
+Henri Bergson
