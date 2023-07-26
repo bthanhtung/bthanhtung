@@ -1,3 +1,3 @@
-_**I took a speed-reading course and read 'War and Peace' in twenty minutes. It involves Russia.**_
+_**Accept the things to which fate binds you and love the people with whom fate brings you together but do so with all your heart.**_
 
-Woody Allen
+Marcus Aurelius
