@@ -1,3 +1,3 @@
-_**Think like a man of action; act like a man of thought.**_
+_**I took a speed-reading course and read 'War and Peace' in twenty minutes. It involves Russia.**_
 
-Henri Bergson
+Woody Allen
