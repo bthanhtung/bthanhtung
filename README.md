@@ -1,3 +1,3 @@
-_**Most of the important things in the world have been accomplished by people who have kept on trying when there seemed to be no hope at all.**_
+_**Russia is a riddle wrapped in a mystery inside an enigma.**_
 
-Dale Carnegie
+Winston Churchill
