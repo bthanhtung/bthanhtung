@@ -1,3 +1,3 @@
-_**Belief consists in accepting the affirmations of the soul; Unbelief, in denying them.**_
+_**We can only learn to love by loving.**_
 
-Ralph Waldo Emerson
+Iris Murdoch
