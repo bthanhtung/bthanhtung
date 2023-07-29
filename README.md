@@ -1,3 +1,3 @@
-_**Wise men make more opportunities than they find.**_
+_**Life is just a chance to grow a soul.**_
 
-Francis Bacon
+A. Powell Davies
