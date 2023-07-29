@@ -1,3 +1,3 @@
-_**Russia is a riddle wrapped in a mystery inside an enigma.**_
+_**Wise men make more opportunities than they find.**_
 
-Winston Churchill
+Francis Bacon
