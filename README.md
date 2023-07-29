@@ -1,3 +1,3 @@
-_**Life is just a chance to grow a soul.**_
+_**Take things as they are. Punch when you have to punch. Kick when you have to kick.**_
 
-A. Powell Davies
+Bruce Lee
