@@ -1,3 +1,3 @@
-_**Opportunity does not knock, it presents itself when you beat down the door.**_
+_**The greatest obstacle to discovery is not ignorance - it is the illusion of knowledge.**_
 
-Kyle Chandler
+Daniel J. Boorstin
