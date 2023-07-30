@@ -1,3 +1,3 @@
-_**The greatest obstacle to discovery is not ignorance - it is the illusion of knowledge.**_
+_**These days people seek knowledge, not wisdom. Knowledge is of the past; wisdom is of the future.**_
 
-Daniel J. Boorstin
+Vernon Cooper
