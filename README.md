@@ -1,3 +1,3 @@
-_**Take things as they are. Punch when you have to punch. Kick when you have to kick.**_
+_**Opportunity does not knock, it presents itself when you beat down the door.**_
 
-Bruce Lee
+Kyle Chandler
