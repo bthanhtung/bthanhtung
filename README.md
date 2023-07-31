@@ -1,3 +1,3 @@
-_**These days people seek knowledge, not wisdom. Knowledge is of the past; wisdom is of the future.**_
+_**Take things as they are. Punch when you have to punch. Kick when you have to kick.**_
 
-Vernon Cooper
+Bruce Lee
