@@ -1,3 +1,3 @@
-_**The only person who never makes mistakes is the person who never does anything.**_
+_**If a man going down into a river, swollen and swiftly flowing, is carried away by the current — how can he help others across? – The Buddha**_
 
-Denis Waitley
+The Buddha
