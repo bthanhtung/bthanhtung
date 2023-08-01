@@ -1,3 +1,3 @@
-_**No party has a monopoly on wisdom. No democracy works without compromise.**_
+_**Sunshine is delicious, rain is refreshing, wind braces us up, snow is exhilarating; there is really no such thing as bad weather, only different kinds of good weather.**_
 
-Barack Obama
+John Ruskin
