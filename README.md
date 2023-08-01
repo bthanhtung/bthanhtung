@@ -1,3 +1,3 @@
-_**Nothing strengthens authority so much as silence.**_
+_**No party has a monopoly on wisdom. No democracy works without compromise.**_
 
-Leonardo da Vinci
+Barack Obama
