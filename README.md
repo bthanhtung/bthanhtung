@@ -1,3 +1,3 @@
-_**If a man going down into a river, swollen and swiftly flowing, is carried away by the current — how can he help others across? – The Buddha**_
+_**Nothing strengthens authority so much as silence.**_
 
-The Buddha
+Leonardo da Vinci
