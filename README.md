@@ -1,3 +1,3 @@
-_**If you can't feed a hundred people, then feed just one.**_
+_**Fortune befriends the bold.**_
 
-Mother Teresa
+John Dryden
