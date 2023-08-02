@@ -1,3 +1,3 @@
-_**Fortune befriends the bold.**_
+_**Get busy living or get busy dying.**_
 
-John Dryden
+Stephen King
