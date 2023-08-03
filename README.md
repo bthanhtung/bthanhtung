@@ -1,3 +1,3 @@
-_**Get busy living or get busy dying.**_
+_**Friendship needs no words - it is solitude delivered from the anguish of loneliness.**_
 
-Stephen King
+Dag Hammarskjöld
