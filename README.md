@@ -1,3 +1,3 @@
-_**Sunshine is delicious, rain is refreshing, wind braces us up, snow is exhilarating; there is really no such thing as bad weather, only different kinds of good weather.**_
+_**I care not so much what I am to others as what I am to myself. I will be rich by myself, and not by borrowing.**_
 
-John Ruskin
+Michel de Montaigne
