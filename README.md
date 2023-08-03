@@ -1,3 +1,3 @@
-_**Friendship needs no words - it is solitude delivered from the anguish of loneliness.**_
+_**Sunshine is delicious, rain is refreshing, wind braces us up, snow is exhilarating; there is really no such thing as bad weather, only different kinds of good weather.**_
 
-Dag Hammarskjöld
+John Ruskin
