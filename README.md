@@ -1,3 +1,3 @@
-_**I care not so much what I am to others as what I am to myself. I will be rich by myself, and not by borrowing.**_
+_**To be beautiful means to be yourself. You don't need to be accepted by others. You need to accept yourself.**_
 
-Michel de Montaigne
+Thích Nhất Hạnh
