@@ -1,3 +1,3 @@
-_**Science gives us knowledge, but only philosophy can give us wisdom.**_
+_**Watch the little things; a small leak will sink a great ship.**_
 
-Will Durant
+Benjamin Franklin
