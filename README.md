@@ -1,3 +1,3 @@
-_**Wisdom begins at the end.**_
+_**The pessimist complains about the wind; the optimist expects it to change; the realist adjusts the sails.**_
 
-Daniel Webster
+William Arthur Ward
