@@ -1,3 +1,3 @@
-_**Do what you can. Want what you have. Be who you are.**_
+_**Wisdom begins at the end.**_
 
-Forrest Church
+Daniel Webster
