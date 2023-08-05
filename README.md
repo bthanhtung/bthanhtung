@@ -1,3 +1,3 @@
-_**Watch the little things; a small leak will sink a great ship.**_
+_**Do what you can. Want what you have. Be who you are.**_
 
-Benjamin Franklin
+Forrest Church
