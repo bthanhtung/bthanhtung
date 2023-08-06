@@ -1,3 +1,3 @@
-_**The pessimist complains about the wind; the optimist expects it to change; the realist adjusts the sails.**_
+_**Knowledge speaks, but wisdom listens.**_
 
-William Arthur Ward
+Jimi Hendrix
