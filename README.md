@@ -1,3 +1,3 @@
-_**By living deeply in the present moment we can understand the past better and we can prepare for a better future.**_
+_**Correction does much, but encouragement does more.**_
 
-Thích Nhất Hạnh
+Johann Wolfgang von Goethe
