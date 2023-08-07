@@ -1,3 +1,3 @@
-_**Consult not your fears but your hopes and your dreams. Think not about your frustrations, but about your unfulfilled potential. Concern yourself not with what you tried and failed in, but with what it is still possible for you to do.**_
+_**There are two kinds of failures: those who thought and never did, and those who did and never thought.**_
 
-Pope John XXIII
+Laurence J. Peter
