@@ -1,3 +1,3 @@
-_**We may encounter many defeats, but we must not be defeated.**_
+_**Quick decisions are unsafe decisions.**_
 
-Maya Angelou
+Sophocles
