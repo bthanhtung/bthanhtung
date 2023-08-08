@@ -1,3 +1,3 @@
-_**The winner ain't the one with the fastest car it's the one who refuses to lose.**_
+_**The best cure for the body is a quiet mind.**_
 
-Dale Earnhardt
+Napoleon
