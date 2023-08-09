@@ -1,3 +1,3 @@
-_**Ignorant men raise questions that wise men answered a thousand years ago.**_
+_**Don't leave a stone unturned. It's always something, to know you have done the most you could.**_
 
-Johann Wolfgang von Goethe
+Charles Dickens
