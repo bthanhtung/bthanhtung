@@ -1,3 +1,3 @@
-_**Every gift from a friend is a wish for your happiness.**_
+_**Ignorant men raise questions that wise men answered a thousand years ago.**_
 
-Richard Bach
+Johann Wolfgang von Goethe
