@@ -1,3 +1,3 @@
-_**The best cure for the body is a quiet mind.**_
+_**Every gift from a friend is a wish for your happiness.**_
 
-Napoleon
+Richard Bach
