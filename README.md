@@ -1,3 +1,3 @@
-_**Ignorance and bungling with love are better than wisdom and skill without.**_
+_**One who is too insistent on his own views, finds few to agree with him.**_
 
-Henry David Thoreau
+Laozi
