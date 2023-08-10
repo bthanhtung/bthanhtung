@@ -1,3 +1,3 @@
-_**Friendship at first sight, like love at first sight, is said to be the only truth.**_
+_**Ignorance and bungling with love are better than wisdom and skill without.**_
 
-Herman Melville
+Henry David Thoreau
