@@ -1,3 +1,3 @@
-_**Don't leave a stone unturned. It's always something, to know you have done the most you could.**_
+_**Friendship at first sight, like love at first sight, is said to be the only truth.**_
 
-Charles Dickens
+Herman Melville
