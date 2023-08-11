@@ -1,3 +1,3 @@
-_**Be less curious about people and more curious about ideas.**_
+_**Our lives are the only meaningful expression of what we believe and in Whom we believe. And the only real wealth, for any of us, lies in our faith.**_
 
-Marie Curie
+Gordon Hinckley
