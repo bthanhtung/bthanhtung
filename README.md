@@ -1,3 +1,3 @@
-_**One who is too insistent on his own views, finds few to agree with him.**_
+_**I think that we have a great opportunity to impart our wisdom and our knowledge and our experience to this younger generation. It may be different times, but experience transcends time, and wisdom transcends time.**_
 
-Laozi
+Victoria Osteen
