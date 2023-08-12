@@ -1,3 +1,3 @@
-_**A fine quotation is a diamond on the finger of a man of wit, and a pebble in the hand of a fool.**_
+_**Ignorance and bungling with love are better than wisdom and skill without.**_
 
-Joseph Roux
+Henry David Thoreau
