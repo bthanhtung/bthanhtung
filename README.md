@@ -1,3 +1,3 @@
-_**Our lives are the only meaningful expression of what we believe and in Whom we believe. And the only real wealth, for any of us, lies in our faith.**_
+_**A fine quotation is a diamond on the finger of a man of wit, and a pebble in the hand of a fool.**_
 
-Gordon Hinckley
+Joseph Roux
