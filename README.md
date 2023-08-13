@@ -1,3 +1,3 @@
-_**Character is like a tree and reputation like a shadow. The shadow is what we think of it; the tree is the real thing.**_
+_**If it turns out that there is a God, I don't think that he's evil. But the worst that you can say about him is that basically he's an underachiever.**_
 
-Abraham Lincoln
+Woody Allen
