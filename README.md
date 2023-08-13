@@ -1,3 +1,3 @@
-_**Freedom is the right to live as we wish.**_
+_**Begin at once to live and count each separate day as a separate life.**_
 
-Epictetus
+Seneca the Younger
