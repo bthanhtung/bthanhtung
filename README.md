@@ -1,3 +1,3 @@
-_**Begin at once to live and count each separate day as a separate life.**_
+_**Friendship may, and often does, grow into love, but love never subsides into friendship.**_
 
-Seneca the Younger
+Lord Byron
