@@ -1,3 +1,3 @@
-_**People take different roads seeking fulfilment and happiness. Just because they're not on your road doesn't mean they've gotten lost.**_
+_**Do you want to know who you are? Don't ask. Act! Action will delineate and define you.**_
 
-Dalai Lama
+Thomas Jefferson
