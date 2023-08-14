@@ -1,3 +1,3 @@
-_**Friendship may, and often does, grow into love, but love never subsides into friendship.**_
+_**People take different roads seeking fulfilment and happiness. Just because they're not on your road doesn't mean they've gotten lost.**_
 
-Lord Byron
+Dalai Lama
