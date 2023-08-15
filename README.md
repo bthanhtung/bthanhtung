@@ -1,3 +1,3 @@
-_**Do you want to know who you are? Don't ask. Act! Action will delineate and define you.**_
+_**You can't stop the waves, but you can learn to surf.**_
 
-Thomas Jefferson
+Jon Kabat-Zinn
