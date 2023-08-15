@@ -1,3 +1,3 @@
-_**The foolish man seeks happiness in the distance, the wise grows it under his feet.**_
+_**Three things cannot be long hidden: the sun, the moon, and the truth.**_
 
-James Oppenheim
+The Buddha
