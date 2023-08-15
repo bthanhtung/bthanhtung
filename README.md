@@ -1,3 +1,3 @@
-_**You can't stop the waves, but you can learn to surf.**_
+_**The foolish man seeks happiness in the distance, the wise grows it under his feet.**_
 
-Jon Kabat-Zinn
+James Oppenheim
