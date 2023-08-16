@@ -1,3 +1,3 @@
-_**The only limit to our realization of tomorrow will be our doubts of today.**_
+_**Success is not final; failure is not fatal: it is the courage to continue that counts.**_
 
-Franklin D. Roosevelt
+Winston Churchill
