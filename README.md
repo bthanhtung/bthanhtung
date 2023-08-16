@@ -1,3 +1,3 @@
-_**Three things cannot be long hidden: the sun, the moon, and the truth.**_
+_**The only limit to our realization of tomorrow will be our doubts of today.**_
 
-The Buddha
+Franklin D. Roosevelt
