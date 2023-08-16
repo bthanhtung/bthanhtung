@@ -1,3 +1,3 @@
-_**Success is not final; failure is not fatal: it is the courage to continue that counts.**_
+_**Look up at the stars and not down at your feet. Try to make sense of what you see, and wonder about what makes the universe exist. Be curious.**_
 
-Winston Churchill
+Stephen Hawking
