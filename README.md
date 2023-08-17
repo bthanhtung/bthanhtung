@@ -1,3 +1,3 @@
-_**Look up at the stars and not down at your feet. Try to make sense of what you see, and wonder about what makes the universe exist. Be curious.**_
+_**True silence is the rest of the mind; it is to the spirit what sleep is to the body, nourishment and refreshment.**_
 
-Stephen Hawking
+William Penn
