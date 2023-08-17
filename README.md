@@ -1,3 +1,3 @@
-_**True silence is the rest of the mind; it is to the spirit what sleep is to the body, nourishment and refreshment.**_
+_**Know how to listen, and you will profit even from those who talk badly.**_
 
-William Penn
+Plutarch
