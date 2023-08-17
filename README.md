@@ -1,3 +1,3 @@
-_**Know how to listen, and you will profit even from those who talk badly.**_
+_**A heart well prepared for adversity in bad times hopes, and in good times fears for a change in fortune.**_
 
-Plutarch
+Horace
