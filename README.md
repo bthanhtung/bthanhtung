@@ -1,3 +1,3 @@
-_**A friend is someone who gives you total freedom to be yourself.**_
+_**Go to your bosom: Knock there and ask your heart what it doth know.**_
 
-Jim Morrison
+William Shakespeare
