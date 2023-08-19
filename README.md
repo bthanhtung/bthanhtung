@@ -1,3 +1,3 @@
-_**The pain passes, but the beauty remains.**_
+_**Only I can change my life. No one can do it for me.**_
 
-Pierre-Auguste Renoir
+Carol Burnett
