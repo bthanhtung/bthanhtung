@@ -1,3 +1,3 @@
-_**Train up a fig tree in the way it should go, and when you are old sit under the shade of it.**_
+_**The most successful people are those who are good at plan B.**_
 
-Charles Dickens
+James A. Yorke
