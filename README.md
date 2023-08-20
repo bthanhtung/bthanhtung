@@ -1,3 +1,3 @@
-_**The most successful people are those who are good at plan B.**_
+_**Golf is a game in which one endeavors to control a ball with implements ill adapted for the purpose.**_
 
-James A. Yorke
+Woodrow Wilson
