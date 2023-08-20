@@ -1,3 +1,3 @@
-_**Golf is a game in which one endeavors to control a ball with implements ill adapted for the purpose.**_
+_**We respect our elders. There is wisdom that comes from experience, and I am not going to stop learning from wise counsel.**_
 
-Woodrow Wilson
+Marcia Fudge
