@@ -1,3 +1,3 @@
-_**We respect our elders. There is wisdom that comes from experience, and I am not going to stop learning from wise counsel.**_
+_**The hours of folly are measured by the clock; but of wisdom, no clock can measure.**_
 
-Marcia Fudge
+William Blake
