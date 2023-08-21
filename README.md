@@ -1,3 +1,3 @@
-_**You don't play against opponents, you play against the game of basketball.**_
+_**Friendship is like money, easier made than kept.**_
 
-Bob Knight
+Samuel Butler
