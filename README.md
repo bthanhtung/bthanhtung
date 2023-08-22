@@ -1,3 +1,3 @@
-_**Do not turn back when you are just at the goal.**_
+_**The day of fortune is like a harvest day, we must be busy when the corn is ripe.**_
 
-Publilius Syrus
+Torquato Tasso
