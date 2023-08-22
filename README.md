@@ -1,3 +1,3 @@
-_**The day of fortune is like a harvest day, we must be busy when the corn is ripe.**_
+_**Great acts are made up of small deeds.**_
 
-Torquato Tasso
+Laozi
