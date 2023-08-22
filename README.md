@@ -1,3 +1,3 @@
-_**It is on our failures that we base a new and different and better success.**_
+_**Do not turn back when you are just at the goal.**_
 
-Havelock Ellis
+Publilius Syrus
