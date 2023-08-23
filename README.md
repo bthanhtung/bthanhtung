@@ -1,3 +1,3 @@
-_**The greatest minds are capable of the greatest vices as well as of the greatest virtues.**_
+_**One today is worth two tomorrows.**_
 
-René Descartes
+Benjamin Franklin
