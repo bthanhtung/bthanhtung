@@ -1,3 +1,3 @@
-_**Great acts are made up of small deeds.**_
+_**The greatest minds are capable of the greatest vices as well as of the greatest virtues.**_
 
-Laozi
+René Descartes
