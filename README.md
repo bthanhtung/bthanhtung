@@ -1,3 +1,3 @@
-_**One today is worth two tomorrows.**_
+_**Nobody made a greater mistake than he who did nothing because he could do only a little.**_
 
-Benjamin Franklin
+Edmund Burke
