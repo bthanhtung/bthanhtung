@@ -1,3 +1,3 @@
-_**Nobody made a greater mistake than he who did nothing because he could do only a little.**_
+_**The universe is made of stories, not atoms.**_
 
-Edmund Burke
+Muriel Rukeyser
