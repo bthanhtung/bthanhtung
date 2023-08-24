@@ -1,3 +1,3 @@
-_**Sometimes your joy is the source of your smile, but sometimes your smile can be the source of your joy.**_
+_**An appeaser is one who feeds a crocodile, hoping it will eat him last.**_
 
-Thích Nhất Hạnh
+Winston Churchill
