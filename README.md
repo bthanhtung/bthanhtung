@@ -1,3 +1,3 @@
-_**The universe is made of stories, not atoms.**_
+_**Sometimes your joy is the source of your smile, but sometimes your smile can be the source of your joy.**_
 
-Muriel Rukeyser
+Thích Nhất Hạnh
