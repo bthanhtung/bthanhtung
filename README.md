@@ -1,3 +1,3 @@
-_**An appeaser is one who feeds a crocodile, hoping it will eat him last.**_
+_**Just as a flower, which seems beautiful has color but no perfume, so are the fruitless words of a man who speaks them but does them not.**_
 
-Winston Churchill
+Dhammapada
