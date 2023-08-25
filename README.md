@@ -1,3 +1,3 @@
-_**Just as a flower, which seems beautiful has color but no perfume, so are the fruitless words of a man who speaks them but does them not.**_
+_**It's not what happens to you, but how you react to it that matters.**_
 
-Dhammapada
+Epictetus
