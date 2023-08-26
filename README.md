@@ -1,3 +1,3 @@
-_**Technology… the knack of so arranging the world that we don't have to experience it.**_
+_**Nobody will believe in you unless you believe in yourself.**_
 
-Max Frisch
+Liberace
