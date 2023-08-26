@@ -1,3 +1,3 @@
-_**The opportunity for brotherhood presents itself every time you meet a human being.**_
+_**Technology… the knack of so arranging the world that we don't have to experience it.**_
 
-Jane Wyman
+Max Frisch
