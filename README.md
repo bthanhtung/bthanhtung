@@ -1,3 +1,3 @@
-_**Having nothing, nothing can he lose.**_
+_**Our greatest weakness lies in giving up. The most certain way to succeed is always to try just one more time.**_
 
-William Shakespeare
+Thomas Edison
