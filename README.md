@@ -1,3 +1,3 @@
-_**The world is a book, and those who do not travel read only a page.**_
+_**Having nothing, nothing can he lose.**_
 
-Augustine of Hippo
+William Shakespeare
