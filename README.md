@@ -1,3 +1,3 @@
-_**Nobody will believe in you unless you believe in yourself.**_
+_**The world is a book, and those who do not travel read only a page.**_
 
-Liberace
+Augustine of Hippo
