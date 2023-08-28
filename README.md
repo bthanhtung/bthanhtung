@@ -1,3 +1,3 @@
-_**The key to transforming our hearts and minds is to have an understanding of how our thoughts and emotions work.**_
+_**If you want to go east, don't go west.**_
 
-Dalai Lama
+Ramakrishna
