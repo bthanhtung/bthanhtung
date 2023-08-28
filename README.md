@@ -1,3 +1,3 @@
-_**Our greatest weakness lies in giving up. The most certain way to succeed is always to try just one more time.**_
+_**The key to transforming our hearts and minds is to have an understanding of how our thoughts and emotions work.**_
 
-Thomas Edison
+Dalai Lama
