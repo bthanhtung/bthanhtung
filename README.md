@@ -1,3 +1,3 @@
-_**If you want to go east, don't go west.**_
+_**If one advances confidently in the direction of his dream, and endeavors to live the life which he had imagines, he will meet with a success unexpected in common hours.**_
 
-Ramakrishna
+Henry David Thoreau
