@@ -1,3 +1,3 @@
-_**Give, even if you only have a little.**_
+_**It is not only for what we do that we are held responsible, but also for what we do not do.**_
 
-The Buddha
+Molière
