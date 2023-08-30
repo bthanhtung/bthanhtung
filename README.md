@@ -1,3 +1,3 @@
-_**To have faith is to trust yourself to the water. When you swim you don't grab hold of the water, because if you do you will sink and drown. Instead you relax, and float.**_
+_**Peace is not something you wish for. It's something you make, something you do, something you are, and something you give away.**_
 
-Alan Watts
+Robert Fulghum
