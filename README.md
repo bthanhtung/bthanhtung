@@ -1,3 +1,3 @@
-_**Peace is not something you wish for. It's something you make, something you do, something you are, and something you give away.**_
+_**The universe is made of stories, not atoms.**_
 
-Robert Fulghum
+Muriel Rukeyser
