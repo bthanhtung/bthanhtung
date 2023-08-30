@@ -1,3 +1,3 @@
-_**It is not only for what we do that we are held responsible, but also for what we do not do.**_
+_**To have faith is to trust yourself to the water. When you swim you don't grab hold of the water, because if you do you will sink and drown. Instead you relax, and float.**_
 
-Molière
+Alan Watts
