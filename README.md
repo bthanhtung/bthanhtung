@@ -1,3 +1,3 @@
-_**All difficult things have their origin in that which is easy, and great things in that which is small.**_
+_**I can, therefore I am.**_
 
-Laozi
+Simone Weil
