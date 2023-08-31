@@ -1,3 +1,3 @@
-_**The universe is made of stories, not atoms.**_
+_**All difficult things have their origin in that which is easy, and great things in that which is small.**_
 
-Muriel Rukeyser
+Laozi
