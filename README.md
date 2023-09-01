@@ -1,3 +1,3 @@
-_**Life without love is like a tree without blossoms or fruit.**_
+_**We make our own fortunes and we call them fate.**_
 
-Kahlil Gibran
+Benjamin Disraeli
