@@ -1,3 +1,3 @@
-_**The only journey is the one within.**_
+_**Life without love is like a tree without blossoms or fruit.**_
 
-Rainer Maria Rilke
+Kahlil Gibran
