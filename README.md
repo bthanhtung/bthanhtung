@@ -1,3 +1,3 @@
-_**We make our own fortunes and we call them fate.**_
+_**Good actions give strength to ourselves and inspire good actions in others.**_
 
-Benjamin Disraeli
+Plato
