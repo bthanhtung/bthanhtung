@@ -1,3 +1,3 @@
-_**Good actions give strength to ourselves and inspire good actions in others.**_
+_**I am always doing that which I cannot do, in order that I may learn how to do it.**_
 
-Plato
+Pablo Picasso
