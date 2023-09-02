@@ -1,3 +1,3 @@
-_**I am always doing that which I cannot do, in order that I may learn how to do it.**_
+_**I hope our wisdom will grow with our power, and teach us, that the less we use our power the greater it will be.**_
 
-Pablo Picasso
+Thomas Jefferson
