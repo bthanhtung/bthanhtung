@@ -1,3 +1,3 @@
-_**I hope our wisdom will grow with our power, and teach us, that the less we use our power the greater it will be.**_
+_**When watching after yourself, you watch after others. When watching after others, you watch after yourself.**_
 
-Thomas Jefferson
+The Buddha
