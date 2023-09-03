@@ -1,3 +1,3 @@
-_**When watching after yourself, you watch after others. When watching after others, you watch after yourself.**_
+_**He who controls others may be powerful, but he who has mastered himself is mightier still.**_
 
-The Buddha
+Laozi
