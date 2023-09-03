@@ -1,3 +1,3 @@
-_**He who controls others may be powerful, but he who has mastered himself is mightier still.**_
+_**The function of wisdom is to discriminate between good and evil.**_
 
-Laozi
+Cicero
