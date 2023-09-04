@@ -1,3 +1,3 @@
-_**Friendship is essentially a partnership.**_
+_**Always be smarter than the people who hire you.**_
 
-Aristotle
+Lena Horne
