@@ -1,3 +1,3 @@
-_**The function of wisdom is to discriminate between good and evil.**_
+_**To study and not think is a waste. To think and not study is dangerous.**_
 
-Cicero
+Confucius
