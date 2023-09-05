@@ -1,3 +1,3 @@
-_**To get the full value of joy you must have someone to divide it with.**_
+_**Change your life today. Don't gamble on the future, act now, without delay.**_
 
-Mark Twain
+Simone de Beauvoir
