@@ -1,3 +1,3 @@
-_**It is common sense to take a method and try it. If it fails, admit it frankly and try another. But above all, try something.**_
+_**To get the full value of joy you must have someone to divide it with.**_
 
-Franklin D. Roosevelt
+Mark Twain
