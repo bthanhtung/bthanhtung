@@ -1,3 +1,3 @@
-_**Always be smarter than the people who hire you.**_
+_**It is common sense to take a method and try it. If it fails, admit it frankly and try another. But above all, try something.**_
 
-Lena Horne
+Franklin D. Roosevelt
