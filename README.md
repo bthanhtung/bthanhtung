@@ -1,3 +1,3 @@
-_**Wisdom begins at the end.**_
+_**A good head and a good heart are always a formidable combination.**_
 
-Daniel Webster
+Nelson Mandela
