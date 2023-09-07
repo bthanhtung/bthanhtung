@@ -1,3 +1,3 @@
-_**Our character is what we do when we think no one is looking.**_
+_**Almost everything comes from nothing.**_
 
-H. Jackson Brown Jr.
+Henri-Frédéric Amiel
