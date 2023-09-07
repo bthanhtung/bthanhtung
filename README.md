@@ -1,3 +1,3 @@
-_**There is nothing permanent except change.**_
+_**Our character is what we do when we think no one is looking.**_
 
-Heraclitus
+H. Jackson Brown Jr.
