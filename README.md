@@ -1,3 +1,3 @@
-_**Almost everything comes from nothing.**_
+_**True friendship is like sound health; the value of it is seldom known until it is lost.**_
 
-Henri-Frédéric Amiel
+Charles Caleb Colton
