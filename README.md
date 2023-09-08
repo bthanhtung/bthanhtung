@@ -1,3 +1,3 @@
-_**You can't cross the sea merely by standing and staring at the water.**_
+_**The sum of wisdom is that time is never lost that is devoted to work.**_
 
-Rabindranath Tagore
+Ralph Waldo Emerson
