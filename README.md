@@ -1,3 +1,3 @@
-_**True friendship is like sound health; the value of it is seldom known until it is lost.**_
+_**A dream is your creative vision for your life in the future. You must break out of your current comfort zone and become comfortable with the unfamiliar and the unknown.**_
 
-Charles Caleb Colton
+Denis Waitley
