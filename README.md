@@ -1,3 +1,3 @@
-_**The sum of wisdom is that time is never lost that is devoted to work.**_
+_**Friendships are the family we make - not the one we inherit. I've always been someone to whom friendship, elective affinities, is as important as family.**_
 
-Ralph Waldo Emerson
+Salman Rushdie
