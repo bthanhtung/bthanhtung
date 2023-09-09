@@ -1,3 +1,3 @@
-_**We've got to have a dream if we are going to make a dream come true.**_
+_**Do all things with love.**_
 
-Walt Disney
+Og Mandino
