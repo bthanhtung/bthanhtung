@@ -1,3 +1,3 @@
-_**Friendships are the family we make - not the one we inherit. I've always been someone to whom friendship, elective affinities, is as important as family.**_
+_**We've got to have a dream if we are going to make a dream come true.**_
 
-Salman Rushdie
+Walt Disney
