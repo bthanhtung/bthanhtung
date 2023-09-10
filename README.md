@@ -1,3 +1,3 @@
-_**You'll see it when you believe it.**_
+_**It is not wisdom but Authority that makes a law.**_
 
-Wayne Dyer
+Thomas Hobbes
