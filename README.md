@@ -1,3 +1,3 @@
-_**It is not wisdom but Authority that makes a law.**_
+_**Fortune befriends the bold.**_
 
-Thomas Hobbes
+John Dryden
