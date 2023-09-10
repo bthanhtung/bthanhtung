@@ -1,3 +1,3 @@
-_**Do all things with love.**_
+_**You'll see it when you believe it.**_
 
-Og Mandino
+Wayne Dyer
