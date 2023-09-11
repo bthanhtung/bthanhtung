@@ -1,3 +1,3 @@
-_**From error to error one discovers the entire truth.**_
+_**Two of man's basic needs are to love and to share. Both of these needs are satisfied in greater or lesser degree by friendship.**_
 
-Sigmund Freud
+Mother Angelica
