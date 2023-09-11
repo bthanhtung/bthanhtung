@@ -1,3 +1,3 @@
-_**There are things so deep and complex that only intuition can reach it in our stage of development as human beings.**_
+_**From error to error one discovers the entire truth.**_
 
-John Astin
+Sigmund Freud
