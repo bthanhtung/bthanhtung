@@ -1,3 +1,3 @@
-_**Kind words do not cost much. Yet they accomplish much.**_
+_**Ability will never catch up with the demand for it.**_
 
-Blaise Pascal
+Confucius
