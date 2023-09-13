@@ -1,3 +1,3 @@
-_**Inspiration exists, but it has to find us working.**_
+_**I'm a great believer in luck and I find the harder I work, the more I have of it.**_
 
-Pablo Picasso
+Thomas Jefferson
