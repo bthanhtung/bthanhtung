@@ -1,3 +1,3 @@
-_**I have an everyday religion that works for me. Love yourself first, and everything else falls into line.**_
+_**Do you know what my favorite part of the game is? The opportunity to play.**_
 
-Lucille Ball
+Mike Singletary (basketball)
