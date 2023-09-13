@@ -1,3 +1,3 @@
-_**Do you know what my favorite part of the game is? The opportunity to play.**_
+_**Inspiration exists, but it has to find us working.**_
 
-Mike Singletary (basketball)
+Pablo Picasso
