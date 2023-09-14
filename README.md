@@ -1,3 +1,3 @@
-_**Learning without reflection is a waste, reflection without learning is dangerous.**_
+_**All action results from thought, so it is thoughts that matter.**_
 
-Confucius
+Sai Baba
