@@ -1,3 +1,3 @@
-_**From wonder into wonder existence opens.**_
+_**Learning without reflection is a waste, reflection without learning is dangerous.**_
 
-Laozi
+Confucius
