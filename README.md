@@ -1,3 +1,3 @@
-_**All action results from thought, so it is thoughts that matter.**_
+_**If A is success in life, then A equals x plus y plus z. Work is x; y is play; and z is keeping your mouth shut.**_
 
-Sai Baba
+Albert Einstein
