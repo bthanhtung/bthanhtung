@@ -1,3 +1,3 @@
-_**Things do not change; we change.**_
+_**The sum of wisdom is that time is never lost that is devoted to work.**_
 
-Henry David Thoreau
+Ralph Waldo Emerson
