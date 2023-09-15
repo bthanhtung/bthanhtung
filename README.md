@@ -1,3 +1,3 @@
-_**If A is success in life, then A equals x plus y plus z. Work is x; y is play; and z is keeping your mouth shut.**_
+_**Things do not change; we change.**_
 
-Albert Einstein
+Henry David Thoreau
