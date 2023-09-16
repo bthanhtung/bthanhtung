@@ -1,3 +1,3 @@
-_**The sum of wisdom is that time is never lost that is devoted to work.**_
+_**There is only one success: to be able to spend your life in your own way.**_
 
-Ralph Waldo Emerson
+Christopher Morley
