@@ -1,3 +1,3 @@
-_**There is only one success: to be able to spend your life in your own way.**_
+_**It is with words as with sunbeams. The more they are condensed, the deeper they burn.**_
 
-Christopher Morley
+Robert Southey
