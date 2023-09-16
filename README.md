@@ -1,3 +1,3 @@
-_**It is with words as with sunbeams. The more they are condensed, the deeper they burn.**_
+_**No garden is without its weeds.**_
 
-Robert Southey
+Thomas Fuller
