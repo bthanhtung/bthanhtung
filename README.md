@@ -1,3 +1,3 @@
-_**I walk slowly, but I never walk backward.**_
+_**It is in your moments of decision that your destiny is shaped.**_
 
-Abraham Lincoln
+Tony Robbins
