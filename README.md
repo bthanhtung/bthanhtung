@@ -1,3 +1,3 @@
-_**No garden is without its weeds.**_
+_**To exist is to change, to change is to mature, to mature is to go on creating oneself endlessly.**_
 
-Thomas Fuller
+Henri Bergson
