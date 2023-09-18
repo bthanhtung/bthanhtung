@@ -1,3 +1,3 @@
-_**Experience keeps a dear school, but fools will learn in no other.**_
+_**Never put off till tomorrow what you can do today.**_
 
-Benjamin Franklin
+Thomas Jefferson
