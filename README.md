@@ -1,3 +1,3 @@
-_**Victory belongs to the most persevering.**_
+_**Experience keeps a dear school, but fools will learn in no other.**_
 
-Napoleon
+Benjamin Franklin
