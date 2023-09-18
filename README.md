@@ -1,3 +1,3 @@
-_**It is in your moments of decision that your destiny is shaped.**_
+_**Victory belongs to the most persevering.**_
 
-Tony Robbins
+Napoleon
