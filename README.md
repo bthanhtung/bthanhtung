@@ -1,3 +1,3 @@
-_**Wise men speak because they have something to say; Fools because they have to say something.**_
+_**Friendship is like money, easier made than kept.**_
 
-Plato
+Samuel Butler
