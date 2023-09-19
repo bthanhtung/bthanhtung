@@ -1,3 +1,3 @@
-_**Never put off till tomorrow what you can do today.**_
+_**False friendship, like the ivy, decays and ruins the walls it embraces; but true friendship gives new life and animation to the object it supports.**_
 
-Thomas Jefferson
+Richard Burton
