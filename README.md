@@ -1,3 +1,3 @@
-_**False friendship, like the ivy, decays and ruins the walls it embraces; but true friendship gives new life and animation to the object it supports.**_
+_**Wise men speak because they have something to say; Fools because they have to say something.**_
 
-Richard Burton
+Plato
