@@ -1,3 +1,3 @@
-_**There is no duty we so underrate as the duty of being happy. By being happy we sow anonymous benefits upon the world.**_
+_**No one has a finer command of language than the person who keeps his mouth shut.**_
 
-Robert Louis Stevenson
+Sam Rayburn
