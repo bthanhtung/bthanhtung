@@ -1,3 +1,3 @@
-_**Along with success comes a reputation for wisdom.**_
+_**Mistakes are always forgivable, if one has the courage to admit them.**_
 
-Euripides
+Bruce Lee
