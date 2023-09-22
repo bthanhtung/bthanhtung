@@ -1,3 +1,3 @@
-_**Life is about timing.**_
+_**I know but one freedom and that is the freedom of the mind.**_
 
-Carl Lewis
+Antoine de Saint-Exupéry
