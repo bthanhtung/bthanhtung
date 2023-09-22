@@ -1,3 +1,3 @@
-_**No one has a finer command of language than the person who keeps his mouth shut.**_
+_**How is it possible to find meaning in a finite world, given my waist and shirt size?**_
 
-Sam Rayburn
+Woody Allen
