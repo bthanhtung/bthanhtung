@@ -1,3 +1,3 @@
-_**I know but one freedom and that is the freedom of the mind.**_
+_**A short saying often contains much wisdom.**_
 
-Antoine de Saint-Exupéry
+Sophocles
