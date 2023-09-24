@@ -1,3 +1,3 @@
-_**Much wisdom often goes with fewest words.**_
+_**Government of the people, by the people, for the people, shall not perish from the Earth.**_
 
-Sophocles
+Abraham Lincoln
