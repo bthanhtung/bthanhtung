@@ -1,3 +1,3 @@
-_**The power of intuitive understanding will protect you from harm until the end of your days.**_
+_**Much wisdom often goes with fewest words.**_
 
-Laozi
+Sophocles
