@@ -1,3 +1,3 @@
-_**He that never changes his opinions, never corrects his mistakes, and will never be wiser on the morrow than he is today.**_
+_**The power of intuitive understanding will protect you from harm until the end of your days.**_
 
-Tryon Edwards
+Laozi
