@@ -1,3 +1,3 @@
-_**Wherever a man turns he can find someone who needs him.**_
+_**Always bear in mind that your own resolution to succeed is more important than any other.**_
 
-Albert Schweitzer
+Abraham Lincoln
