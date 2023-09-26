@@ -1,3 +1,3 @@
-_**To get the full value of joy you must have someone to divide it with.**_
+_**Fears are nothing more than a state of mind.**_
 
-Mark Twain
+Napoleon Hill
