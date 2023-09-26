@@ -1,3 +1,3 @@
-_**Do not turn back when you are just at the goal.**_
+_**To get the full value of joy you must have someone to divide it with.**_
 
-Publilius Syrus
+Mark Twain
