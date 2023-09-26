@@ -1,3 +1,3 @@
-_**Fears are nothing more than a state of mind.**_
+_**Good timber does not grow with ease; the stronger the wind, the stronger the trees.**_
 
-Napoleon Hill
+J. Willard Marriott
