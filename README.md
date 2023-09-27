@@ -1,3 +1,3 @@
-_**Good timber does not grow with ease; the stronger the wind, the stronger the trees.**_
+_**Miracles come in moments. Be ready and willing.**_
 
-J. Willard Marriott
+Wayne Dyer
