@@ -1,3 +1,3 @@
-_**Miracles come in moments. Be ready and willing.**_
+_**I hope we shall crush in its birth the aristocracy of our monied corporations which dare already to challenge our government to a trial by strength, and bid defiance to the laws of our country.**_
 
-Wayne Dyer
+Thomas Jefferson
