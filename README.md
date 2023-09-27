@@ -1,3 +1,3 @@
-_**I hope we shall crush in its birth the aristocracy of our monied corporations which dare already to challenge our government to a trial by strength, and bid defiance to the laws of our country.**_
+_**I cannot always control what goes on outside. But I can always control what goes on inside.**_
 
-Thomas Jefferson
+Wayne Dyer
