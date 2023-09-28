@@ -1,3 +1,3 @@
-_**I cannot always control what goes on outside. But I can always control what goes on inside.**_
+_**We make a living by what we get, but we make a life by what we give.**_
 
-Wayne Dyer
+Winston Churchill
