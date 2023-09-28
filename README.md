@@ -1,3 +1,3 @@
-_**We make a living by what we get, but we make a life by what we give.**_
+_**Intuition is the very force or activity of the soul in its experience through whatever has been the experience of the soul itself.**_
 
-Winston Churchill
+Henry Reed
