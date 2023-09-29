@@ -1,3 +1,3 @@
-_**Friendship with oneself is all important because without it one cannot be friends with anybody else in the world.**_
+_**Imagination is more important than knowledge. For while knowledge defines all we currently know and understand, imagination points to all we might yet discover and create.**_
 
-Eleanor Roosevelt
+Albert Einstein
