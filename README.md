@@ -1,3 +1,3 @@
-_**Irony is the gaiety of reflection and the joy of wisdom.**_
+_**The beginning is always today.**_
 
-Anatole France
+Mary Wollstonecraft
