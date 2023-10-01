@@ -1,3 +1,3 @@
-_**The winds and waves are always on the side of the ablest navigators.**_
+_**Any sufficiently advanced technology is equivalent to magic.**_
 
-Edward Gibbon
+Arthur C. Clarke
