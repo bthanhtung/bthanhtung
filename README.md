@@ -1,3 +1,3 @@
-_**Love is blind; friendship closes its eyes.**_
+_**The winds and waves are always on the side of the ablest navigators.**_
 
-Friedrich Nietzsche
+Edward Gibbon
