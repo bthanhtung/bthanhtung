@@ -1,3 +1,3 @@
-_**Any sufficiently advanced technology is equivalent to magic.**_
+_**Friendship... is not something you learn in school. But if you haven't learned the meaning of friendship, you really haven't learned anything.**_
 
-Arthur C. Clarke
+Muhammad Ali
