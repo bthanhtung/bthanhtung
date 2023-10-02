@@ -1,3 +1,3 @@
-_**It is the supreme art of the teacher to awaken joy in creative expression and knowledge.**_
+_**The friendship that can cease has never been real.**_
 
-Albert Einstein
+Jerome
