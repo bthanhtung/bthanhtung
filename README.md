@@ -1,3 +1,3 @@
-_**Friendship... is not something you learn in school. But if you haven't learned the meaning of friendship, you really haven't learned anything.**_
+_**It is the supreme art of the teacher to awaken joy in creative expression and knowledge.**_
 
-Muhammad Ali
+Albert Einstein
