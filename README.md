@@ -1,3 +1,3 @@
-_**We have committed the Golden Rule to memory; let us now commit it to life.**_
+_**Goals are the fuel in the furnace of achievement.**_
 
-Edwin Markham
+Brian Tracy
