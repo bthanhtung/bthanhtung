@@ -1,3 +1,3 @@
-_**Goals are the fuel in the furnace of achievement.**_
+_**All truths are easy to understand once they are discovered; the point is to discover them.**_
 
-Brian Tracy
+Galileo Galilei
