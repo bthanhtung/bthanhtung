@@ -1,3 +1,3 @@
-_**All truths are easy to understand once they are discovered; the point is to discover them.**_
+_**Happiness is found in doing, not merely possessing.**_
 
-Galileo Galilei
+Napoleon Hill
