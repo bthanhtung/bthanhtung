@@ -1,3 +1,3 @@
-_**Read as you taste fruit or savor wine, or enjoy friendship, love or life.**_
+_**Friendships are the family we make - not the one we inherit. I've always been someone to whom friendship, elective affinities, is as important as family.**_
 
-George Herbert
+Salman Rushdie
