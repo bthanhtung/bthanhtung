@@ -1,3 +1,3 @@
-_**Happiness is found in doing, not merely possessing.**_
+_**Read as you taste fruit or savor wine, or enjoy friendship, love or life.**_
 
-Napoleon Hill
+George Herbert
