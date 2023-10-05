@@ -1,3 +1,3 @@
-_**Friendships are the family we make - not the one we inherit. I've always been someone to whom friendship, elective affinities, is as important as family.**_
+_**Believe in yourself! Have faith in your abilities! Without a humble but reasonable confidence in your own powers you cannot be successful or happy.**_
 
-Salman Rushdie
+Norman Vincent Peale
