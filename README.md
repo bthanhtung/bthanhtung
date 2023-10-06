@@ -1,3 +1,3 @@
-_**If you love someone, set them free. If they come back, they're yours; if they don't, they never were.**_
+_**Twenty years from now you will be more disappointed by the things that you didn't do than by the ones you did do.**_
 
-Richard Bach
+Mark Twain
