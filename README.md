@@ -1,3 +1,3 @@
-_**I took a speed-reading course and read 'War and Peace' in twenty minutes. It involves Russia.**_
+_**If you love someone, set them free. If they come back, they're yours; if they don't, they never were.**_
 
-Woody Allen
+Richard Bach
