@@ -1,3 +1,3 @@
-_**Believe in yourself! Have faith in your abilities! Without a humble but reasonable confidence in your own powers you cannot be successful or happy.**_
+_**I took a speed-reading course and read 'War and Peace' in twenty minutes. It involves Russia.**_
 
-Norman Vincent Peale
+Woody Allen
