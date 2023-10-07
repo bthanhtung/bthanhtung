@@ -1,3 +1,3 @@
-_**No one has a finer command of language than the person who keeps his mouth shut.**_
+_**The virtue of justice consists in moderation, as regulated by wisdom.**_
 
-Sam Rayburn
+Aristotle
