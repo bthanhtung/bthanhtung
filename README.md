@@ -1,3 +1,3 @@
-_**Twenty years from now you will be more disappointed by the things that you didn't do than by the ones you did do.**_
+_**No one has a finer command of language than the person who keeps his mouth shut.**_
 
-Mark Twain
+Sam Rayburn
