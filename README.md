@@ -1,3 +1,3 @@
-_**The virtue of justice consists in moderation, as regulated by wisdom.**_
+_**You and I are all as much continuous with the physical universe as a wave is continuous with the ocean.**_
 
-Aristotle
+Alan Watts
