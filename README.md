@@ -1,3 +1,3 @@
-_**Living at risk is jumping off the cliff and building your wings on the way down.**_
+_**A man's growth is seen in the successive choirs of his friends**_
 
-Ray Bradbury
+Ralph Waldo Emerson
