@@ -1,3 +1,3 @@
-_**You and I are all as much continuous with the physical universe as a wave is continuous with the ocean.**_
+_**Living at risk is jumping off the cliff and building your wings on the way down.**_
 
-Alan Watts
+Ray Bradbury
