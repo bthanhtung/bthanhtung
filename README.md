@@ -1,3 +1,3 @@
-_**It's supposed to be automatic, but actually you have to push this button.**_
+_**We are all faced with a series of great opportunities brilliantly disguised as impossible situations.**_
 
-John Brunner
+Chuck Swindoll
