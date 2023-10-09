@@ -1,3 +1,3 @@
-_**Belief consists in accepting the affirmations of the soul; Unbelief, in denying them.**_
+_**It's supposed to be automatic, but actually you have to push this button.**_
 
-Ralph Waldo Emerson
+John Brunner
