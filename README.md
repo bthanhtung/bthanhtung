@@ -1,3 +1,3 @@
-_**Sometimes our fate resembles a fruit tree in winter. Who would think that those branches would turn green again and blossom, but we hope it, we know it.**_
+_**Belief consists in accepting the affirmations of the soul; Unbelief, in denying them.**_
 
-Johann Wolfgang von Goethe
+Ralph Waldo Emerson
