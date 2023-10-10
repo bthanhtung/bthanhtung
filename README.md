@@ -1,3 +1,3 @@
-_**Freedom is not worth having if it does not connote freedom to err.**_
+_**When you reach the end of your rope, tie a knot in it and hang on.**_
 
-Mahatma Gandhi
+Franklin D. Roosevelt
