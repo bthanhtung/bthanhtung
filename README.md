@@ -1,3 +1,3 @@
-_**We are all faced with a series of great opportunities brilliantly disguised as impossible situations.**_
+_**You are that vast thing that you see far, far off with great telescopes.**_
 
-Chuck Swindoll
+Alan Watts
