@@ -1,3 +1,3 @@
-_**You are that vast thing that you see far, far off with great telescopes.**_
+_**Freedom is not worth having if it does not connote freedom to err.**_
 
-Alan Watts
+Mahatma Gandhi
