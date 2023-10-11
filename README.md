@@ -1,3 +1,3 @@
-_**You cannot step twice into the same river, for other waters are continually flowing in.**_
+_**I gave my life to become the person I am right now. Was it worth it?**_
 
-Heraclitus
+Richard Bach
