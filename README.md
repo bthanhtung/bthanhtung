@@ -1,3 +1,3 @@
-_**I gave my life to become the person I am right now. Was it worth it?**_
+_**The pessimist sees difficulty in every opportunity. The optimist sees the opportunity in every difficulty.**_
 
-Richard Bach
+Winston Churchill
