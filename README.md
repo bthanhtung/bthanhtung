@@ -1,3 +1,3 @@
-_**When you reach the end of your rope, tie a knot in it and hang on.**_
+_**You cannot step twice into the same river, for other waters are continually flowing in.**_
 
-Franklin D. Roosevelt
+Heraclitus
