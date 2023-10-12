@@ -1,3 +1,3 @@
-_**Doing what you love is the cornerstone of having abundance in your life.**_
+_**A hero is no braver than an ordinary man, but he is braver five minutes longer.**_
 
-Wayne Dyer
+Ralph Waldo Emerson
