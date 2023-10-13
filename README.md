@@ -1,3 +1,3 @@
-_**A hero is no braver than an ordinary man, but he is braver five minutes longer.**_
+_**We the people are the rightful masters of both Congress and the courts, not to overthrow the Constitution but to overthrow the men who pervert the Constitution.**_
 
-Ralph Waldo Emerson
+Abraham Lincoln
