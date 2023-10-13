@@ -1,3 +1,3 @@
-_**Silence at the proper season is wisdom, and better than any speech.**_
+_**How far that little candle throws its beams! So shines a good deed in a naughty world.**_
 
-Plutarch
+William Shakespeare
