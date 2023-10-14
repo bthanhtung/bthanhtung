@@ -1,3 +1,3 @@
-_**How far that little candle throws its beams! So shines a good deed in a naughty world.**_
+_**Love doesn't make the world go round; love is what makes the ride worthwhile.**_
 
-William Shakespeare
+Elizabeth Browning
