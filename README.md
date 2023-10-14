@@ -1,3 +1,3 @@
-_**Love doesn't make the world go round; love is what makes the ride worthwhile.**_
+_**Work while you have the light. You are responsible for the talent that has been entrusted to you.**_
 
-Elizabeth Browning
+Henri-Frédéric Amiel
