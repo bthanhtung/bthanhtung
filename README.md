@@ -1,3 +1,3 @@
-_**By failing to prepare, you are preparing to fail.**_
+_**All action results from thought, so it is thoughts that matter.**_
 
-Benjamin Franklin
+Sai Baba
