@@ -1,3 +1,3 @@
-_**Wisdom begins at the end.**_
+_**By failing to prepare, you are preparing to fail.**_
 
-Daniel Webster
+Benjamin Franklin
