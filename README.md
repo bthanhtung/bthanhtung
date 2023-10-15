@@ -1,3 +1,3 @@
-_**All action results from thought, so it is thoughts that matter.**_
+_**You can't win unless you learn how to lose.**_
 
-Sai Baba
+Kareem Abdul-Jabbar
