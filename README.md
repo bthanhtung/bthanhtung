@@ -1,3 +1,3 @@
-_**You can't win unless you learn how to lose.**_
+_**All our dreams can come true, if we have the courage to pursue them.**_
 
-Kareem Abdul-Jabbar
+Walt Disney
