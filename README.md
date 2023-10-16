@@ -1,3 +1,3 @@
-_**One needs something to believe in, something for which one can have whole-hearted enthusiasm. One needs to feel that one's life has meaning, that one is needed in this world.**_
+_**Technology… is a queer thing. It brings you great gifts with one hand, and it stabs you in the back with the other.**_
 
-Hannah Szenes
+Carrie Snow
