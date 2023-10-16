@@ -1,3 +1,3 @@
-_**All our dreams can come true, if we have the courage to pursue them.**_
+_**One needs something to believe in, something for which one can have whole-hearted enthusiasm. One needs to feel that one's life has meaning, that one is needed in this world.**_
 
-Walt Disney
+Hannah Szenes
