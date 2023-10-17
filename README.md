@@ -1,3 +1,3 @@
-_**I don't turn to greeting cards for wisdom and advice, but they are a fine reflection of the general drift of the culture.**_
+_**Make it your habit not to be critical about small things.**_
 
-Susan Orlean
+Edward Everett Hale
