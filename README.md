@@ -1,3 +1,3 @@
-_**Two of man's basic needs are to love and to share. Both of these needs are satisfied in greater or lesser degree by friendship.**_
+_**I don't turn to greeting cards for wisdom and advice, but they are a fine reflection of the general drift of the culture.**_
 
-Mother Angelica
+Susan Orlean
