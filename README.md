@@ -1,3 +1,3 @@
-_**Change your thoughts and you change your world.**_
+_**Be not afraid of greatness: some are born great, some achieve greatness, and some have greatness thrust upon them.**_
 
-Norman Vincent Peale
+William Shakespeare
