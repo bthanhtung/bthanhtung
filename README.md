@@ -1,3 +1,3 @@
-_**Be not afraid of greatness: some are born great, some achieve greatness, and some have greatness thrust upon them.**_
+_**If you must tell me your opinions, tell me what you believe in. I have plenty of doubts of my own.**_
 
-William Shakespeare
+Johann Wolfgang von Goethe
