@@ -1,3 +1,3 @@
-_**Make it your habit not to be critical about small things.**_
+_**Change your thoughts and you change your world.**_
 
-Edward Everett Hale
+Norman Vincent Peale
