@@ -1,3 +1,3 @@
-_**A man must be big enough to admit his mistakes, smart enough to profit from them, and strong enough to correct them.**_
+_**I owe my solitude to other people.**_
 
-John C. Maxwell
+Alan Watts
