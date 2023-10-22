@@ -1,3 +1,3 @@
-_**Beware of missing chances; otherwise it may be altogether too late someday.**_
+_**Belief consists in accepting the affirmations of the soul; Unbelief, in denying them.**_
 
-Franz Liszt
+Ralph Waldo Emerson
