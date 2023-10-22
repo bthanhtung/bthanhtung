@@ -1,3 +1,3 @@
-_**Belief consists in accepting the affirmations of the soul; Unbelief, in denying them.**_
+_**It's important to know that words don't move mountains. Work, exacting work moves mountains.**_
 
-Ralph Waldo Emerson
+Danilo Dolci
