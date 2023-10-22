@@ -1,3 +1,3 @@
-_**All great men are gifted with intuition. They know without reasoning or analysis, what they need to know.**_
+_**Beware of missing chances; otherwise it may be altogether too late someday.**_
 
-Alexis Carrel
+Franz Liszt
