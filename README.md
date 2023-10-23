@@ -1,3 +1,3 @@
-_**Technology made large populations possible; large populations now make technology indispensable.**_
+_**Marriage: A friendship recognized by the police.**_
 
-Joseph Wood Krutch
+Robert Louis Stevenson
