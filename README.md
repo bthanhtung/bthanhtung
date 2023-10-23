@@ -1,3 +1,3 @@
-_**It's important to know that words don't move mountains. Work, exacting work moves mountains.**_
+_**Technology made large populations possible; large populations now make technology indispensable.**_
 
-Danilo Dolci
+Joseph Wood Krutch
