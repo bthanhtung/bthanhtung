@@ -1,3 +1,3 @@
-_**Each misfortune you encounter will carry in it the seed of tomorrows good luck.**_
+_**Feeling and longing are the motive forces behind all human endeavor and human creations.**_
 
-Og Mandino
+Albert Einstein
