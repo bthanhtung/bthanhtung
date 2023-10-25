@@ -1,3 +1,3 @@
-_**Doing nothing is better than being busy doing nothing.**_
+_**The time to repair the roof is when the sun is shining.**_
 
-Laozi
+John F. Kennedy
