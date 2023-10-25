@@ -1,3 +1,3 @@
-_**The time to repair the roof is when the sun is shining.**_
+_**We have committed the Golden Rule to memory; let us now commit it to life.**_
 
-John F. Kennedy
+Edwin Markham
