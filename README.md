@@ -1,3 +1,3 @@
-_**We have committed the Golden Rule to memory; let us now commit it to life.**_
+_**We should not give up and we should not allow the problem to defeat us.**_
 
-Edwin Markham
+A. P. J. Abdul Kalam
