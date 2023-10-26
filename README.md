@@ -1,3 +1,3 @@
-_**If you wish to be a writer, write.**_
+_**I will not be concerned at other men's not knowing me; I will be concerned at my own want of ability.**_
 
-Epictetus
+Confucius
