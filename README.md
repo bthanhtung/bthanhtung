@@ -1,3 +1,3 @@
-_**Things do not happen. Things are made to happen.**_
+_**Laughter is not at all a bad beginning for a friendship, and it is far the best ending for one.**_
 
-John F. Kennedy
+Oscar Wilde
