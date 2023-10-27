@@ -1,3 +1,3 @@
-_**Laughter is not at all a bad beginning for a friendship, and it is far the best ending for one.**_
+_**Beware lest you lose the substance by grasping at the shadow.**_
 
-Oscar Wilde
+Aesop
