@@ -1,3 +1,3 @@
-_**I will not be concerned at other men's not knowing me; I will be concerned at my own want of ability.**_
+_**Things do not happen. Things are made to happen.**_
 
-Confucius
+John F. Kennedy
