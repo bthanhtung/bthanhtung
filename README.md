@@ -1,3 +1,3 @@
-_**Radiate boundless love towards the entire world…**_
+_**The best cure for the body is a quiet mind.**_
 
-The Buddha
+Napoleon
