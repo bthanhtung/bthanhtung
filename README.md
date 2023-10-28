@@ -1,3 +1,3 @@
-_**Beware lest you lose the substance by grasping at the shadow.**_
+_**If you are bitter, you are like a dry leaf that you can just squash, and you can get blown away by the wind. There is much more wisdom in forgiveness.**_
 
-Aesop
+Vusi Mahlasela
