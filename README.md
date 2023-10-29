@@ -1,3 +1,3 @@
-_**The greatest way to live with honor in this world is to be what we pretend to be.**_
+_**An optimist is a person who sees a green light everywhere, while the pessimist sees only the red spotlight... The truly wise person is color-blind.**_
 
-Socrates
+Albert Schweitzer
