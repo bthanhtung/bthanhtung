@@ -1,3 +1,3 @@
-_**An optimist is a person who sees a green light everywhere, while the pessimist sees only the red spotlight... The truly wise person is color-blind.**_
+_**Promises are the uniquely human way of ordering the future, making it predictable and reliable to the extent that this is humanly possible.**_
 
-Albert Schweitzer
+Hannah Arendt
