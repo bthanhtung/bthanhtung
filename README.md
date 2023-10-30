@@ -1,3 +1,3 @@
-_**A wise man will make more opportunities than he finds.**_
+_**We can only be said to be alive in those moments when our hearts are conscious of our treasures.**_
 
-Francis Bacon
+Thornton Wilder
