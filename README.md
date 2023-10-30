@@ -1,3 +1,3 @@
-_**Promises are the uniquely human way of ordering the future, making it predictable and reliable to the extent that this is humanly possible.**_
+_**A wise man will make more opportunities than he finds.**_
 
-Hannah Arendt
+Francis Bacon
