@@ -1,3 +1,3 @@
-_**We can only be said to be alive in those moments when our hearts are conscious of our treasures.**_
+_**Never bend your head. Always hold it high. Look the world right in the eye.**_
 
-Thornton Wilder
+Helen Keller
