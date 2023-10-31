@@ -1,3 +1,3 @@
-_**Never bend your head. Always hold it high. Look the world right in the eye.**_
+_**There is not one big cosmic meaning for all, there is only the meaning we each give to our life.**_
 
-Helen Keller
+Anaïs Nin
