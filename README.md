@@ -1,3 +1,3 @@
-_**There is not one big cosmic meaning for all, there is only the meaning we each give to our life.**_
+_**These days people seek knowledge, not wisdom. Knowledge is of the past; wisdom is of the future.**_
 
-Anaïs Nin
+Vernon Cooper
