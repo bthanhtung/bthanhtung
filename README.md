@@ -1,3 +1,3 @@
-_**These days people seek knowledge, not wisdom. Knowledge is of the past; wisdom is of the future.**_
+_**Sports do not build character. They reveal it.**_
 
-Vernon Cooper
+Heywood Broun
