@@ -1,3 +1,3 @@
-_**Sports do not build character. They reveal it.**_
+_**Life is divided into the horrible and the miserable.**_
 
-Heywood Broun
+Woody Allen
