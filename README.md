@@ -1,3 +1,3 @@
-_**Success is not final; failure is not fatal: it is the courage to continue that counts.**_
+_**Let go of your attachment to being right, and suddenly your mind is more open. You're able to benefit from the unique viewpoints of others, without being crippled by your own judgement.**_
 
-Winston Churchill
+Ralph Marston
