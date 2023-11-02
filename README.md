@@ -1,3 +1,3 @@
-_**We respect our elders. There is wisdom that comes from experience, and I am not going to stop learning from wise counsel.**_
+_**I am fond of pigs. Dogs look up to us. Cats look down on us. Pigs treat us as equals.**_
 
-Marcia Fudge
+Winston Churchill
