@@ -1,3 +1,3 @@
-_**Let go of your attachment to being right, and suddenly your mind is more open. You're able to benefit from the unique viewpoints of others, without being crippled by your own judgement.**_
+_**One needs something to believe in, something for which one can have whole-hearted enthusiasm. One needs to feel that one's life has meaning, that one is needed in this world.**_
 
-Ralph Marston
+Hannah Szenes
