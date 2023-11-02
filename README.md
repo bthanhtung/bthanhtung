@@ -1,3 +1,3 @@
-_**One needs something to believe in, something for which one can have whole-hearted enthusiasm. One needs to feel that one's life has meaning, that one is needed in this world.**_
+_**We respect our elders. There is wisdom that comes from experience, and I am not going to stop learning from wise counsel.**_
 
-Hannah Szenes
+Marcia Fudge
