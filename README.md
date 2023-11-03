@@ -1,3 +1,3 @@
-_**You are not here merely to make a living. You are here in order to enable the world to live more amply, with greater vision, with a finer spirit of hope and achievement. You are here to enrich the world, and you impoverish yourself if you forget the errand.**_
+_**Friendship marks a life even more deeply than love. Love risks degenerating into obsession, friendship is never anything but sharing.**_
 
-Woodrow Wilson
+Elie Wiesel
