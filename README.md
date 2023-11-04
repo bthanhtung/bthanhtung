@@ -1,3 +1,3 @@
-_**Character develops itself in the stream of life.**_
+_**Those who will play with cats must expect to be scratched.**_
 
-Johann Wolfgang von Goethe
+Miguel de Cervantes
