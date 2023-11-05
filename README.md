@@ -1,3 +1,3 @@
-_**Those who will play with cats must expect to be scratched.**_
+_**In the middle of every difficulty lies opportunity.**_
 
-Miguel de Cervantes
+Albert Einstein
