@@ -1,3 +1,3 @@
-_**I prefer to be true to myself, even at the hazard of incurring the ridicule of others, rather than to be false, and to incur my own abhorrence.**_
+_**The world turns aside to let any man pass who knows where he is going.**_
 
-Frederick Douglass
+Epictetus
