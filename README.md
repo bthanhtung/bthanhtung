@@ -1,3 +1,3 @@
-_**The world turns aside to let any man pass who knows where he is going.**_
+_**Truth, and goodness, and beauty are but different faces of the same all.**_
 
-Epictetus
+Ralph Waldo Emerson
