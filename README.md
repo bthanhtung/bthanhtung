@@ -1,3 +1,3 @@
-_**Truth, and goodness, and beauty are but different faces of the same all.**_
+_**I gave my life to become the person I am right now. Was it worth it?**_
 
-Ralph Waldo Emerson
+Richard Bach
