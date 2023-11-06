@@ -1,3 +1,3 @@
-_**I gave my life to become the person I am right now. Was it worth it?**_
+_**No matter how carefully you plan your goals they will never be more than pipe dreams unless you pursue them with gusto.**_
 
-Richard Bach
+W. Clement Stone
