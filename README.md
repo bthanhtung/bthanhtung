@@ -1,3 +1,3 @@
-_**No matter how carefully you plan your goals they will never be more than pipe dreams unless you pursue them with gusto.**_
+_**The two most powerful warriors are patience and time.**_
 
-W. Clement Stone
+Leo Tolstoy
