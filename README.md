@@ -1,3 +1,3 @@
-_**Imagination is more important than knowledge. For while knowledge defines all we currently know and understand, imagination points to all we might yet discover and create.**_
+_**If you want your life to be more rewarding, you have to change the way you think.**_
 
-Albert Einstein
+Oprah Winfrey
