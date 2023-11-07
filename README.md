@@ -1,3 +1,3 @@
-_**The two most powerful warriors are patience and time.**_
+_**Imagination is more important than knowledge. For while knowledge defines all we currently know and understand, imagination points to all we might yet discover and create.**_
 
-Leo Tolstoy
+Albert Einstein
