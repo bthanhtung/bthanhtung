@@ -1,3 +1,3 @@
-_**If you want your life to be more rewarding, you have to change the way you think.**_
+_**If you spend too much time thinking about a thing, you'll never get it done.**_
 
-Oprah Winfrey
+Bruce Lee
