@@ -1,3 +1,3 @@
-_**If you spend too much time thinking about a thing, you'll never get it done.**_
+_**'All conditioned things are impermanent' — when one sees this with wisdom, one turns away from suffering.**_
 
-Bruce Lee
+The Buddha
