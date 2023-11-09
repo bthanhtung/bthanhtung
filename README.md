@@ -1,3 +1,3 @@
-_**I gave my life to become the person I am right now. Was it worth it?**_
+_**Short words are best and the old words when short are best of all.**_
 
-Richard Bach
+Winston Churchill
