@@ -1,3 +1,3 @@
-_**Laws alone can not secure freedom of expression; in order that every man present his views without penalty there must be spirit of tolerance in the entire population.**_
+_**We cannot be more sensitive to pleasure without being more sensitive to pain.**_
 
-Albert Einstein
+Alan Watts
