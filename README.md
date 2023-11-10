@@ -1,3 +1,3 @@
-_**Be Impeccable with Your Word. Speak with integrity. Say only what you mean. Avoid using the word to speak against yourself or to gossip about others. Use the power of your word in the direction of truth and love.**_
+_**Laws alone can not secure freedom of expression; in order that every man present his views without penalty there must be spirit of tolerance in the entire population.**_
 
-Don Miguel Ruiz
+Albert Einstein
