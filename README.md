@@ -1,3 +1,3 @@
-_**If one does not know to which port one is sailing, no wind is favorable.**_
+_**Love is a serious mental disease.**_
 
-Seneca the Younger
+Plato
