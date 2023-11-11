@@ -1,3 +1,3 @@
-_**Love is a serious mental disease.**_
+_**I, too, do not envision a doctrine of self the clinging to which there would not arise sorrow, lamentation, pain, grief, and despair.**_
 
-Plato
+The Buddha
