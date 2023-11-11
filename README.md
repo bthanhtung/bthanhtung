@@ -1,3 +1,3 @@
-_**We cannot be more sensitive to pleasure without being more sensitive to pain.**_
+_**If one does not know to which port one is sailing, no wind is favorable.**_
 
-Alan Watts
+Seneca the Younger
