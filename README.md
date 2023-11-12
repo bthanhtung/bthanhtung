@@ -1,3 +1,3 @@
-_**You may say I'm a dreamer, but I'm not the only one, I hope someday you will join us, and the world will live as one.**_
+_**I love my past. I love my present. I'm not ashamed of what I've had, and I'm not sad because I have it no longer.**_
 
-John Lennon
+Colette
