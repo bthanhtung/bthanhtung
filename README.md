@@ -1,3 +1,3 @@
-_**I, too, do not envision a doctrine of self the clinging to which there would not arise sorrow, lamentation, pain, grief, and despair.**_
+_**You may say I'm a dreamer, but I'm not the only one, I hope someday you will join us, and the world will live as one.**_
 
-The Buddha
+John Lennon
