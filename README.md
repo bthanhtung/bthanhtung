@@ -1,3 +1,3 @@
-_**I love my past. I love my present. I'm not ashamed of what I've had, and I'm not sad because I have it no longer.**_
+_**Never say there is nothing beautiful in the world anymore. There is always something to make you wonder in the shape of a tree, the trembling of a leaf.**_
 
-Colette
+Albert Schweitzer
