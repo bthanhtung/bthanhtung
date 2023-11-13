@@ -1,3 +1,3 @@
-_**In three words I can sum up everything I've learned about life: it goes on.**_
+_**Love and friendship exclude each other.**_
 
-Robert Frost
+Jean de La Bruyère
