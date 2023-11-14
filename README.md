@@ -1,3 +1,3 @@
-_**Friendship marks a life even more deeply than love. Love risks degenerating into obsession, friendship is never anything but sharing.**_
+_**No work or love will flourish out of guilt, fear, or hollowness of heart, just as no valid plans for the future can be made by those who have no capacity for living now.**_
 
-Elie Wiesel
+Alan Watts
