@@ -1,3 +1,3 @@
-_**No work or love will flourish out of guilt, fear, or hollowness of heart, just as no valid plans for the future can be made by those who have no capacity for living now.**_
+_**I think that we have a great opportunity to impart our wisdom and our knowledge and our experience to this younger generation. It may be different times, but experience transcends time, and wisdom transcends time.**_
 
-Alan Watts
+Victoria Osteen
