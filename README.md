@@ -1,3 +1,3 @@
-_**Just trust yourself, then you will know how to live.**_
+_**Happiness depends upon ourselves.**_
 
-Johann Wolfgang von Goethe
+Aristotle
