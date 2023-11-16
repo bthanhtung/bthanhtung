@@ -1,3 +1,3 @@
-_**Our lives are the only meaningful expression of what we believe and in Whom we believe. And the only real wealth, for any of us, lies in our faith.**_
+_**Difficulties are meant to rouse, not discourage. The human spirit is to grow strong by conflict.**_
 
-Gordon Hinckley
+William Ellery Channing
