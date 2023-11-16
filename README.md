@@ -1,3 +1,3 @@
-_**I define friendship as a bond that transcends all barriers. When you are ready to expect anything and everything from friends, good, bad or ugly... that's what I call true friendship.**_
+_**Accept the things to which fate binds you and love the people with whom fate brings you together but do so with all your heart.**_
 
-Harbhajan Singh
+Marcus Aurelius
