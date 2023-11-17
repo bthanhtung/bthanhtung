@@ -1,3 +1,3 @@
-_**The greatest way to live with honor in this world is to be what we pretend to be.**_
+_**Excellence, then, is a state concerned with choice, lying in a mean, relative to us, this being determined by reason and in the way in which the man of practical wisdom would determine it.**_
 
-Socrates
+Aristotle
