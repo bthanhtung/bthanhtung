@@ -1,3 +1,3 @@
-_**Accept the things to which fate binds you and love the people with whom fate brings you together but do so with all your heart.**_
+_**The greatest way to live with honor in this world is to be what we pretend to be.**_
 
-Marcus Aurelius
+Socrates
