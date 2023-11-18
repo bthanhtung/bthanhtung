@@ -1,3 +1,3 @@
-_**Experience keeps a dear school, but fools will learn in no other.**_
+_**To change one's life, start immediately, do it flamboyantly, no exceptions.**_
 
-Benjamin Franklin
+William James
