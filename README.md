@@ -1,3 +1,3 @@
-_**To change one's life, start immediately, do it flamboyantly, no exceptions.**_
+_**Never accept ultimatums, conventional wisdom, or absolutes.**_
 
-William James
+Christopher Reeve
