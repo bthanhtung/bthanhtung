@@ -1,3 +1,3 @@
-_**All the great performers I have worked with are fueled by a personal dream.**_
+_**The gambling known as business looks with austere disfavor upon the business known as gambling.**_
 
-John Eliot
+Ambrose Bierce
