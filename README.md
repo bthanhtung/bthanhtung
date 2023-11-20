@@ -1,3 +1,3 @@
-_**The gambling known as business looks with austere disfavor upon the business known as gambling.**_
+_**Only when we are no longer afraid do we begin to live.**_
 
-Ambrose Bierce
+Dorothy Thompson
