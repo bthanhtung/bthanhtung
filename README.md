@@ -1,3 +1,3 @@
-_**I believe that a simple and unassuming manner of life is best for everyone, best both for the body and the mind.**_
+_**Quality is not an act; it is a habit.**_
 
-Albert Einstein
+Aristotle
