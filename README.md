@@ -1,3 +1,3 @@
-_**Quality is not an act; it is a habit.**_
+_**The years teach much which the days never know.**_
 
-Aristotle
+Ralph Waldo Emerson
