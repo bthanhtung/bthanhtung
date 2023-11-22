@@ -1,3 +1,3 @@
-_**There is a difference between happiness and wisdom: he that thinks himself the happiest man is really so; but he that thinks himself the wisest is generally the greatest fool.**_
+_**I believe that a simple and unassuming manner of life is best for everyone, best both for the body and the mind.**_
 
-Francis Bacon
+Albert Einstein
