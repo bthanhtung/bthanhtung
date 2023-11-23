@@ -1,3 +1,3 @@
-_**The simplest things are often the truest.**_
+_**Ignorance never settles a question.**_
 
-Richard Bach
+Benjamin Disraeli
