@@ -1,3 +1,3 @@
-_**A house divided against itself cannot stand.**_
+_**The simplest things are often the truest.**_
 
-Abraham Lincoln
+Richard Bach
