@@ -1,3 +1,3 @@
-_**The years teach much which the days never know.**_
+_**A house divided against itself cannot stand.**_
 
-Ralph Waldo Emerson
+Abraham Lincoln
