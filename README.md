@@ -1,3 +1,3 @@
-_**There is no passion to be found playing small - in settling for a life that is less than the one you are capable of living.**_
+_**To be beautiful means to be yourself. You don't need to be accepted by others. You need to accept yourself.**_
 
-Nelson Mandela
+Thích Nhất Hạnh
