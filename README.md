@@ -1,3 +1,3 @@
-_**Ignorance never settles a question.**_
+_**Reflect on your present blessings, of which every man has many; not on your past misfortunes, of which all men have some.**_
 
-Benjamin Disraeli
+Charles Dickens
