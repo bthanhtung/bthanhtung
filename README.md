@@ -1,3 +1,3 @@
-_**Reflect on your present blessings, of which every man has many; not on your past misfortunes, of which all men have some.**_
+_**There is no passion to be found playing small - in settling for a life that is less than the one you are capable of living.**_
 
-Charles Dickens
+Nelson Mandela
