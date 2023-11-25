@@ -1,3 +1,3 @@
-_**To be beautiful means to be yourself. You don't need to be accepted by others. You need to accept yourself.**_
+_**Do not wait; the time will never be 'just right.' Start where you stand, and work with whatever tools you may have at your command, and better tools will be found as you go along.**_
 
-Thích Nhất Hạnh
+George Herbert
