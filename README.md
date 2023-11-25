@@ -1,3 +1,3 @@
-_**Optimism is the faith that leads to achievement. Nothing can be done without hope and confidence.**_
+_**So then, the relationship of self to other is the complete realization that loving yourself is impossible without loving everything defined as other than yourself.**_
 
-Helen Keller
+Alan Watts
