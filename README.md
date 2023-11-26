@@ -1,3 +1,3 @@
-_**Real success is finding your lifework in the work that you love.**_
+_**The virtue of justice consists in moderation, as regulated by wisdom.**_
 
-David McCullough
+Aristotle
