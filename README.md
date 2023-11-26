@@ -1,3 +1,3 @@
-_**So then, the relationship of self to other is the complete realization that loving yourself is impossible without loving everything defined as other than yourself.**_
+_**A hero is no braver than an ordinary man, but he is braver five minutes longer.**_
 
-Alan Watts
+Ralph Waldo Emerson
