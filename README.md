@@ -1,3 +1,3 @@
-_**Wisdom alone is the science of other sciences.**_
+_**Were here for a reason. I believe a bit of the reason is to throw little torches out to lead people through the dark.**_
 
-Plato
+Whoopi Goldberg
