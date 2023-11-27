@@ -1,3 +1,3 @@
-_**The virtue of justice consists in moderation, as regulated by wisdom.**_
+_**Wisdom alone is the science of other sciences.**_
 
-Aristotle
+Plato
