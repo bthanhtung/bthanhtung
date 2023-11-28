@@ -1,3 +1,3 @@
-_**The world cares very little about what a man or woman knows; it is what a man or woman is able to do that counts.**_
+_**Without leaps of imagination, or dreaming, we lose the excitement of possibilities. Dreaming, after all, is a form of planning.**_
 
-Booker T. Washington
+Gloria Steinem
