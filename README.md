@@ -1,3 +1,3 @@
-_**Without leaps of imagination, or dreaming, we lose the excitement of possibilities. Dreaming, after all, is a form of planning.**_
+_**If A is success in life, then A equals x plus y plus z. Work is x; y is play; and z is keeping your mouth shut.**_
 
-Gloria Steinem
+Albert Einstein
