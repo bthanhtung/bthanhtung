@@ -1,3 +1,3 @@
-_**If A is success in life, then A equals x plus y plus z. Work is x; y is play; and z is keeping your mouth shut.**_
+_**Accept the challenges so that you can feel the exhilaration of victory.**_
 
-Albert Einstein
+George S. Patton
