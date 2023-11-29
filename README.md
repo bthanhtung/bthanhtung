@@ -1,3 +1,3 @@
-_**Accept the challenges so that you can feel the exhilaration of victory.**_
+_**The ballot is stronger than the bullet.**_
 
-George S. Patton
+Abraham Lincoln
