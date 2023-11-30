@@ -1,3 +1,3 @@
-_**All great achievements require time.**_
+_**Once you choose hope, anything's possible.**_
 
-Maya Angelou
+Christopher Reeve
