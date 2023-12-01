@@ -1,3 +1,3 @@
-_**What is past is left behind. The future is yet unreached. Whatever quality is present, clearly see it right there.**_
+_**If you don't know where you are going, you will probably end up somewhere else.**_
 
-The Buddha
+Laurence J. Peter
