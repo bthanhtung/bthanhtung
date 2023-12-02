@@ -1,3 +1,3 @@
-_**Liberty, taking the word in its concrete sense, consists in the ability to choose.**_
+_**Be less curious about people and more curious about ideas.**_
 
-Simone Weil
+Marie Curie
