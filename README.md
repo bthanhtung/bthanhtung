@@ -1,3 +1,3 @@
-_**Love is the attempt to form a friendship inspired by beauty.**_
+_**Liberty, taking the word in its concrete sense, consists in the ability to choose.**_
 
-Cicero
+Simone Weil
