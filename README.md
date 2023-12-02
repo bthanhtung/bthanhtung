@@ -1,3 +1,3 @@
-_**Be less curious about people and more curious about ideas.**_
+_**The final wisdom of life requires not the annulment of incongruity but the achievement of serenity within and above it.**_
 
-Marie Curie
+Reinhold Niebuhr
