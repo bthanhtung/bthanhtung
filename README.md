@@ -1,3 +1,3 @@
-_**The final wisdom of life requires not the annulment of incongruity but the achievement of serenity within and above it.**_
+_**Each friend represents a world in us, a world not born until they arrive, and it is only by this meeting that a new world is born.**_
 
-Reinhold Niebuhr
+Anaïs Nin
