@@ -1,3 +1,3 @@
-_**Each friend represents a world in us, a world not born until they arrive, and it is only by this meeting that a new world is born.**_
+_**The only person who never makes mistakes is the person who never does anything.**_
 
-Anaïs Nin
+Denis Waitley
