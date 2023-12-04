@@ -1,3 +1,3 @@
-_**Some people go to priests; others to poetry; I to my friends.**_
+_**Some people thrive on huge, dramatic change. Some people prefer the slow and steady route. Do what's right for you.**_
 
-Virginia Woolf
+Julie Morgenstern
