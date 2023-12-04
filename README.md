@@ -1,3 +1,3 @@
-_**When you are content to be simply yourself and don't compare or compete, everybody will respect you.**_
+_**Some people go to priests; others to poetry; I to my friends.**_
 
-Laozi
+Virginia Woolf
