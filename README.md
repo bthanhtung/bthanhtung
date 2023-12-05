@@ -1,3 +1,3 @@
-_**I love you the more in that I believe you had liked me for my own sake and for nothing else.**_
+_**We must embrace pain and burn it as fuel for our journey.**_
 
-John Keats
+Kenji Miyazawa
