@@ -1,3 +1,3 @@
-_**Know what's important and what isn't. Have the wisdom to know the right thing to do, the integrity to do it, the character to stand up to those who don't, and the courage to stop those who won't.**_
+_**All great men are gifted with intuition. They know without reasoning or analysis, what they need to know.**_
 
-Mark Goulston
+Alexis Carrel
