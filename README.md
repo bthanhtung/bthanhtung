@@ -1,3 +1,3 @@
-_**He who knows that enough is enough will always have enough.**_
+_**The least movement is of importance to all nature. The entire ocean is affected by a pebble.**_
 
-Laozi
+Blaise Pascal
