@@ -1,3 +1,3 @@
-_**We must embrace pain and burn it as fuel for our journey.**_
+_**He who knows that enough is enough will always have enough.**_
 
-Kenji Miyazawa
+Laozi
