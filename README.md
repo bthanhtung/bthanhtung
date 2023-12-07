@@ -1,3 +1,3 @@
-_**Sorrow is knowledge, those that know the most must mourn the deepest, the tree of knowledge is not the tree of life.**_
+_**Friendship... is not something you learn in school. But if you haven't learned the meaning of friendship, you really haven't learned anything.**_
 
-Lord Byron
+Muhammad Ali
