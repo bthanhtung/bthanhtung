@@ -1,3 +1,3 @@
-_**A goal without a plan is just a wish.**_
+_**The smallest deed is better than the greatest intention.**_
 
-Larry Elder
+John Burroughs
