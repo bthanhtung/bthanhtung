@@ -1,3 +1,3 @@
-_**The smallest deed is better than the greatest intention.**_
+_**Sorrow is knowledge, those that know the most must mourn the deepest, the tree of knowledge is not the tree of life.**_
 
-John Burroughs
+Lord Byron
