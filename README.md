@@ -1,3 +1,3 @@
-_**When the world is so complicated, the simple gift of friendship is within all of our hands.**_
+_**Being in humaneness is good. If we select other goodness and thus are far apart from humaneness, how can we be the wise?**_
 
-Maria Shriver
+Confucius
