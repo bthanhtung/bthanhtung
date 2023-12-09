@@ -1,3 +1,3 @@
-_**If there is no struggle, there is no progress.**_
+_**Every man is a damn fool for at least five minutes every day; wisdom consists in not exceeding the limit.**_
 
-Frederick Douglass
+Elbert Hubbard
