@@ -1,3 +1,3 @@
-_**Our passion is our strength.**_
+_**If there is no struggle, there is no progress.**_
 
-Billie Armstrong
+Frederick Douglass
