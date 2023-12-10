@@ -1,3 +1,3 @@
-_**The simplest things are often the truest.**_
+_**The road of excess leads to the palace of wisdom.**_
 
-Richard Bach
+William Blake
