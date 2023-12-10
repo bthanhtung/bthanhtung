@@ -1,3 +1,3 @@
-_**The road of excess leads to the palace of wisdom.**_
+_**Each man has his own vocation; his talent is his call. There is one direction in which all space is open to him.**_
 
-William Blake
+Ralph Waldo Emerson
