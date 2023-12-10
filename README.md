@@ -1,3 +1,3 @@
-_**Every man is a damn fool for at least five minutes every day; wisdom consists in not exceeding the limit.**_
+_**The simplest things are often the truest.**_
 
-Elbert Hubbard
+Richard Bach
