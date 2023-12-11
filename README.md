@@ -1,3 +1,3 @@
-_**Each man has his own vocation; his talent is his call. There is one direction in which all space is open to him.**_
+_**Begin, be bold, and venture to be wise.**_
 
-Ralph Waldo Emerson
+Horace
