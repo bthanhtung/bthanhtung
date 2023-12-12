@@ -1,3 +1,3 @@
-_**I never considered a difference of opinion in politics, in religion, in philosophy, as cause for withdrawing from a friend.**_
+_**When we quit thinking primarily about ourselves and our own self-preservation, we undergo a truly heroic transformation of consciousness.**_
 
-Thomas Jefferson
+Joseph Campbell
