@@ -1,3 +1,3 @@
-_**Creativity comes from trust. Trust your instincts. And never hope more than you work.**_
+_**Good luck is another name for tenacity of purpose.**_
 
-Rita Mae Brown
+Ralph Waldo Emerson
