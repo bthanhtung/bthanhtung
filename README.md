@@ -1,3 +1,3 @@
-_**When we quit thinking primarily about ourselves and our own self-preservation, we undergo a truly heroic transformation of consciousness.**_
+_**Creativity comes from trust. Trust your instincts. And never hope more than you work.**_
 
-Joseph Campbell
+Rita Mae Brown
