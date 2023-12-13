@@ -1,3 +1,3 @@
-_**Good luck is another name for tenacity of purpose.**_
+_**I have always thought the actions of men the best interpreters of their thoughts.**_
 
-Ralph Waldo Emerson
+John Locke
