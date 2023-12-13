@@ -1,3 +1,3 @@
-_**I have always thought the actions of men the best interpreters of their thoughts.**_
+_**True friendship is a plant of slow growth, and must undergo and withstand the shocks of adversity, before it is entitled to the appellation.**_
 
-John Locke
+George Washington
