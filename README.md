@@ -1,3 +1,3 @@
-_**Efficiency is doing things right; effectiveness is doing the right things.**_
+_**There is nothing on this earth more to be prized than true friendship.**_
 
-Peter Drucker
+Thomas Aquinas
