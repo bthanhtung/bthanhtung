@@ -1,3 +1,3 @@
-_**There is nothing on this earth more to be prized than true friendship.**_
+_**Talent is God given. Be humble. Fame is man-given. Be grateful. Conceit is self-given. Be careful.**_
 
-Thomas Aquinas
+John Wooden
