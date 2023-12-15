@@ -1,3 +1,3 @@
-_**A friend in power is a friend lost.**_
+_**Love doesn't make the world go round; love is what makes the ride worthwhile.**_
 
-Henry Adams
+Elizabeth Browning
