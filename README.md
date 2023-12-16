@@ -1,3 +1,3 @@
-_**In order to live free and happily you must sacrifice boredom. It is not always an easy sacrifice.**_
+_**At the center of your being, you have the answer; you know who you are, and you know what you want.**_
 
-Richard Bach
+Laozi
