@@ -1,3 +1,3 @@
-_**Conflict is the gadfly of thought. It stirs us to observation and memory. It instigates to invention. It shocks us out of sheeplike passivity, and sets us at noting and contriving.**_
+_**No valid plans for the future can be made by those who have no capacity for living now.**_
 
-John Dewey
+Alan Watts
