@@ -1,3 +1,3 @@
-_**Life's most persistent and urgent question is, 'What are you doing for others?'**_
+_**Be sure you put your feet in the right place, then stand firm.**_
 
-Martin Luther King Jr.
+Abraham Lincoln
