@@ -1,3 +1,3 @@
-_**No valid plans for the future can be made by those who have no capacity for living now.**_
+_**Life's most persistent and urgent question is, 'What are you doing for others?'**_
 
-Alan Watts
+Martin Luther King Jr.
