@@ -1,3 +1,3 @@
-_**It is impossible to experience one's death objectively and still carry a tune.**_
+_**True friendship ought never to conceal what it thinks.**_
 
-Woody Allen
+Jerome
