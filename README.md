@@ -1,3 +1,3 @@
-_**Be sure you put your feet in the right place, then stand firm.**_
+_**It is impossible to experience one's death objectively and still carry a tune.**_
 
-Abraham Lincoln
+Woody Allen
