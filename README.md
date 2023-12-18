@@ -1,3 +1,3 @@
-_**True friendship ought never to conceal what it thinks.**_
+_**That old law about 'an eye for an eye' leaves everybody blind. The time is always right to do the right thing.**_
 
-Jerome
+Martin Luther King Jr.
