@@ -1,3 +1,3 @@
-_**That old law about 'an eye for an eye' leaves everybody blind. The time is always right to do the right thing.**_
+_**Results! Why, man, I have gotten a lot of results. I know several thousand things that won't work.**_
 
-Martin Luther King Jr.
+Thomas Edison
