@@ -1,3 +1,3 @@
-_**It is not wisdom but Authority that makes a law.**_
+_**Courage is not the absence of fear, but simply moving on with dignity despite that fear.**_
 
-Thomas Hobbes
+Pat Riley
