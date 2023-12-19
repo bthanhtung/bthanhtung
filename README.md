@@ -1,3 +1,3 @@
-_**Results! Why, man, I have gotten a lot of results. I know several thousand things that won't work.**_
+_**It is not wisdom but Authority that makes a law.**_
 
-Thomas Edison
+Thomas Hobbes
