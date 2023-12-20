@@ -1,3 +1,3 @@
-_**You are never given a wish without also being given the power to make it come true. You may have to work for it, however.**_
+_**Technology is destructive only in the hands of people who do not realize that they are one and the same process as the universe.**_
 
-Richard Bach
+Alan Watts
