@@ -1,3 +1,3 @@
-_**Courage is not the absence of fear, but simply moving on with dignity despite that fear.**_
+_**Act as if what you do makes a difference. It does.**_
 
-Pat Riley
+William James
