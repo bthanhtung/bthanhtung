@@ -1,3 +1,3 @@
-_**An invasion of armies can be resisted, but not an idea whose time has come.**_
+_**Today you are you! That is truer than true! There is no one alive who is you-er than you!**_
 
-Victor Hugo
+Dr. Seuss
