@@ -1,3 +1,3 @@
-_**If you don't know where you are going, you will probably end up somewhere else.**_
+_**An invasion of armies can be resisted, but not an idea whose time has come.**_
 
-Laurence J. Peter
+Victor Hugo
