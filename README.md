@@ -1,3 +1,3 @@
-_**When written in Chinese, the word 'crisis' is composed of two characters. One represents danger and the other represents opportunity.**_
+_**Our distrust is very expensive.**_
 
-John F. Kennedy
+Ralph Waldo Emerson
