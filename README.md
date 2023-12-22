@@ -1,3 +1,3 @@
-_**There are things so deep and complex that only intuition can reach it in our stage of development as human beings.**_
+_**When written in Chinese, the word 'crisis' is composed of two characters. One represents danger and the other represents opportunity.**_
 
-John Astin
+John F. Kennedy
