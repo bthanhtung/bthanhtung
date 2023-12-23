@@ -1,3 +1,3 @@
-_**Never find fault with the absent.**_
+_**To enjoy life, we must touch much of it lightly.**_
 
-Alexander Pope
+Voltaire
