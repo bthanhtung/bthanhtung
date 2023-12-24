@@ -1,3 +1,3 @@
-_**I seek constantly to improve my manners and graces, for they are the sugar to which all are attracted.**_
+_**We cannot do everything at once, but we can do something at once.**_
 
-Og Mandino
+Calvin Coolidge
