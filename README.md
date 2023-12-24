@@ -1,3 +1,3 @@
-_**We cannot do everything at once, but we can do something at once.**_
+_**Think as a wise man but communicate in the language of the people.**_
 
-Calvin Coolidge
+William Butler Yeats
