@@ -1,3 +1,3 @@
-_**Think as a wise man but communicate in the language of the people.**_
+_**I never considered a difference of opinion in politics, in religion, in philosophy, as cause for withdrawing from a friend.**_
 
-William Butler Yeats
+Thomas Jefferson
