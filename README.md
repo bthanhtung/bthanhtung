@@ -1,3 +1,3 @@
-_**Friends are those rare people who ask how we are and then wait to hear the answer.**_
+_**Every gift from a friend is a wish for your happiness.**_
 
-Ed Cunningham
+Richard Bach
