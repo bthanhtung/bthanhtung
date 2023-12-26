@@ -1,3 +1,3 @@
-_**The exercise of an extraordinary gift is the supremist pleasure in life.**_
+_**Light tomorrow with today!**_
 
-Mark Twain
+Elizabeth Browning
