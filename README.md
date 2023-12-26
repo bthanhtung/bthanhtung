@@ -1,3 +1,3 @@
-_**Every gift from a friend is a wish for your happiness.**_
+_**The exercise of an extraordinary gift is the supremist pleasure in life.**_
 
-Richard Bach
+Mark Twain
