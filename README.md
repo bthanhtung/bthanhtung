@@ -1,3 +1,3 @@
-_**All achievements, all earned riches, have their beginning in an idea.**_
+_**Friendship is one of our most treasured relationships, but it isn't codified and celebrated; it's never going to give you a party.**_
 
-Napoleon Hill
+Hanya Yanagihara
