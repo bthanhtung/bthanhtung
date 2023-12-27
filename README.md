@@ -1,3 +1,3 @@
-_**Friendship is one of our most treasured relationships, but it isn't codified and celebrated; it's never going to give you a party.**_
+_**I care not so much what I am to others as what I am to myself. I will be rich by myself, and not by borrowing.**_
 
-Hanya Yanagihara
+Michel de Montaigne
