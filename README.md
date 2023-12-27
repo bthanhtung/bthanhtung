@@ -1,3 +1,3 @@
-_**Light tomorrow with today!**_
+_**All achievements, all earned riches, have their beginning in an idea.**_
 
-Elizabeth Browning
+Napoleon Hill
