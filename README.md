@@ -1,3 +1,3 @@
-_**We never live; we are always in the expectation of living.**_
+_**A little more persistence, a little more effort, and what seemed hopeless failure may turn to glorious success.**_
 
-Voltaire
+Elbert Hubbard
