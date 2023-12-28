@@ -1,3 +1,3 @@
-_**A leader or a man of action in a crisis almost always acts subconsciously and then thinks of the reasons for his action.**_
+_**We never live; we are always in the expectation of living.**_
 
-Jawaharlal Nehru
+Voltaire
