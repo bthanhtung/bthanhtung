@@ -1,3 +1,3 @@
-_**One's friends are that part of the human race with which one can be human.**_
+_**Business, you know, may bring you money, but friendship hardly ever does.**_
 
-George Santayana
+Jane Austen
