@@ -1,3 +1,3 @@
-_**A little more persistence, a little more effort, and what seemed hopeless failure may turn to glorious success.**_
+_**Prejudice is a burden that confuses the past, threatens the future and renders the present inaccessible.**_
 
-Elbert Hubbard
+Maya Angelou
