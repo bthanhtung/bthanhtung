@@ -1,3 +1,3 @@
-_**Prejudice is a burden that confuses the past, threatens the future and renders the present inaccessible.**_
+_**One's friends are that part of the human race with which one can be human.**_
 
-Maya Angelou
+George Santayana
