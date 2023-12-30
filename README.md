@@ -1,3 +1,3 @@
-_**Your friend is your needs answered.**_
+_**Only do what your heart tells you.**_
 
-Kahlil Gibran
+Princess Diana
