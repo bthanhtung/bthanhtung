@@ -1,3 +1,3 @@
-_**Only do what your heart tells you.**_
+_**Doing what you love is the cornerstone of having abundance in your life.**_
 
-Princess Diana
+Wayne Dyer
