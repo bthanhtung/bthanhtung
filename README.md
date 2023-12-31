@@ -1,3 +1,3 @@
-_**If you have one true friend, you have more than your share.**_
+_**Courage is what it takes to stand up and speak; courage is also what it takes to sit down and listen.**_
 
-Thomas Fuller
+Winston Churchill
