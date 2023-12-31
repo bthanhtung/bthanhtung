@@ -1,3 +1,3 @@
-_**Doing what you love is the cornerstone of having abundance in your life.**_
+_**If you have one true friend, you have more than your share.**_
 
-Wayne Dyer
+Thomas Fuller
