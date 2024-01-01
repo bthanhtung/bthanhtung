@@ -1,3 +1,3 @@
-_**Courage is what it takes to stand up and speak; courage is also what it takes to sit down and listen.**_
+_**The invariable mark of wisdom is to see the miraculous in the common.**_
 
-Winston Churchill
+Ralph Waldo Emerson
