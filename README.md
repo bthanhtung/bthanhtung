@@ -1,3 +1,3 @@
-_**Never deny a diagnosis but do deny the negative verdict that may go with it.**_
+_**I am a man of fixed and unbending principles, the first of which is to be flexible at all times.**_
 
-Norman Cousins
+Everett Dirksen
