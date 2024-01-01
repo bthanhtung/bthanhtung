@@ -1,3 +1,3 @@
-_**The invariable mark of wisdom is to see the miraculous in the common.**_
+_**Never deny a diagnosis but do deny the negative verdict that may go with it.**_
 
-Ralph Waldo Emerson
+Norman Cousins
