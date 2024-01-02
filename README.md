@@ -1,3 +1,3 @@
-_**Belief consists in accepting the affirmations of the soul; Unbelief, in denying them.**_
+_**I took a speed-reading course and read 'War and Peace' in twenty minutes. It involves Russia.**_
 
-Ralph Waldo Emerson
+Woody Allen
