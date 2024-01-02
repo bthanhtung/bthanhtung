@@ -1,3 +1,3 @@
-_**I am a man of fixed and unbending principles, the first of which is to be flexible at all times.**_
+_**The wise man does not lay up his own treasures. The more he gives to others, the more he has for his own.**_
 
-Everett Dirksen
+Laozi
