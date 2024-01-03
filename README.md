@@ -1,3 +1,3 @@
-_**I took a speed-reading course and read 'War and Peace' in twenty minutes. It involves Russia.**_
+_**Without freedom of thought, there can be no such thing as wisdom - and no such thing as public liberty without freedom of speech.**_
 
-Woody Allen
+Benjamin Franklin
