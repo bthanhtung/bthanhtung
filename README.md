@@ -1,3 +1,3 @@
-_**Life is 10% what happens to you and 90% how you react to it.**_
+_**Knowledge rests not upon truth alone, but upon error also.**_
 
-Chuck Swindoll
+Carl Jung
