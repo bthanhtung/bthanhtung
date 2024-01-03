@@ -1,3 +1,3 @@
-_**Without freedom of thought, there can be no such thing as wisdom - and no such thing as public liberty without freedom of speech.**_
+_**Life is 10% what happens to you and 90% how you react to it.**_
 
-Benjamin Franklin
+Chuck Swindoll
