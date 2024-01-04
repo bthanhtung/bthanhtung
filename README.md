@@ -1,3 +1,3 @@
-_**Truth is generally the best vindication against slander.**_
+_**While we stop to think, we often miss our opportunity.**_
 
-Abraham Lincoln
+Publilius Syrus
