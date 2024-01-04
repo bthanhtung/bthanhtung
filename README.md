@@ -1,3 +1,3 @@
-_**How is it possible to find meaning in a finite world, given my waist and shirt size?**_
+_**Truth is generally the best vindication against slander.**_
 
-Woody Allen
+Abraham Lincoln
