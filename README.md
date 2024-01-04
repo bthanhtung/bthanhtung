@@ -1,3 +1,3 @@
-_**Knowledge rests not upon truth alone, but upon error also.**_
+_**How is it possible to find meaning in a finite world, given my waist and shirt size?**_
 
-Carl Jung
+Woody Allen
