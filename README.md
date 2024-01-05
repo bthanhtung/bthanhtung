@@ -1,3 +1,3 @@
-_**I hear and I forget. I see and I remember. I do and I understand.**_
+_**I have not failed. I've just found 10,000 ways that won't work.**_
 
-Confucius
+Thomas Edison
