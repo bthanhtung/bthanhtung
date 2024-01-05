@@ -1,3 +1,3 @@
-_**While we stop to think, we often miss our opportunity.**_
+_**I hear and I forget. I see and I remember. I do and I understand.**_
 
-Publilius Syrus
+Confucius
