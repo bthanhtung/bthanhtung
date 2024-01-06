@@ -1,3 +1,3 @@
-_**You always have two choices: your commitment versus your fear.**_
+_**A leader is best when people barely know he exists, when his work is done, his aim fulfilled, they will say: we did it ourselves.**_
 
-Sammy Davis Jr.
+Laozi
