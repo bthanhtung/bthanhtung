@@ -1,3 +1,3 @@
-_**A wise man is superior to any insults which can be put upon him, and the best reply to unseemly behavior is patience and moderation.**_
+_**Learning is finding out what you already know.**_
 
-Molière
+Richard Bach
