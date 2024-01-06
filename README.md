@@ -1,3 +1,3 @@
-_**A leader is best when people barely know he exists, when his work is done, his aim fulfilled, they will say: we did it ourselves.**_
+_**A wise man is superior to any insults which can be put upon him, and the best reply to unseemly behavior is patience and moderation.**_
 
-Laozi
+Molière
