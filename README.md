@@ -1,3 +1,3 @@
-_**Learning is finding out what you already know.**_
+_**The thing always happens that you really believe in; and the belief in a thing makes it happen.**_
 
-Richard Bach
+Frank Lloyd Wright
