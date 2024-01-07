@@ -1,3 +1,3 @@
-_**The thing always happens that you really believe in; and the belief in a thing makes it happen.**_
+_**If there is such a thing as a good marriage, it is because it resembles friendship rather than love.**_
 
-Frank Lloyd Wright
+Michel de Montaigne
