@@ -1,3 +1,3 @@
-_**If there is such a thing as a good marriage, it is because it resembles friendship rather than love.**_
+_**Never say there is nothing beautiful in the world anymore. There is always something to make you wonder in the shape of a tree, the trembling of a leaf.**_
 
-Michel de Montaigne
+Albert Schweitzer
