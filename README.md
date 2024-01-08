@@ -1,3 +1,3 @@
-_**We love life, not because we are used to living but because we are used to loving.**_
+_**By going beyond your own problems and taking care of others, you gain inner strength, self-confidence, courage, and a greater sense of calm.**_
 
-Friedrich Nietzsche
+Dalai Lama
