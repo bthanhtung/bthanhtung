@@ -1,3 +1,3 @@
-_**By going beyond your own problems and taking care of others, you gain inner strength, self-confidence, courage, and a greater sense of calm.**_
+_**Friends show their love in times of trouble, not in happiness.**_
 
-Dalai Lama
+Euripides
