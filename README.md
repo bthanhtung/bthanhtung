@@ -1,3 +1,3 @@
-_**Pick battles big enough to matter, small enough to win.**_
+_**True friendship ought never to conceal what it thinks.**_
 
-Jonathan Kozol
+Jerome
