@@ -1,3 +1,3 @@
-_**True friendship ought never to conceal what it thinks.**_
+_**They say that time changes things, but you actually have to change them yourself.**_
 
-Jerome
+Andy Warhol
