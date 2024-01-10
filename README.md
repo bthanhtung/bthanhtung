@@ -1,3 +1,3 @@
-_**They say that time changes things, but you actually have to change them yourself.**_
+_**I walk slowly, but I never walk backward.**_
 
-Andy Warhol
+Abraham Lincoln
