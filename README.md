@@ -1,3 +1,3 @@
-_**I walk slowly, but I never walk backward.**_
+_**Independence is happiness.**_
 
-Abraham Lincoln
+Susan B. Anthony
