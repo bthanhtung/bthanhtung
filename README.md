@@ -1,3 +1,3 @@
-_**Think like a man of action; act like a man of thought.**_
+_**Better be wise by the misfortunes of others than by your own.**_
 
-Henri Bergson
+Aesop
