@@ -1,3 +1,3 @@
-_**Independence is happiness.**_
+_**It has never been my object to record my dreams, just to realize them.**_
 
-Susan B. Anthony
+Man Ray
