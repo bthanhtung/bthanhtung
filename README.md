@@ -1,3 +1,3 @@
-_**Don't ruin the present with the ruined past.**_
+_**First say to yourself what you would be; and then do what you have to do.**_
 
-Ellen Gilchrist
+Epictetus
