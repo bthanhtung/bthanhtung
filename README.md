@@ -1,3 +1,3 @@
-_**Better be wise by the misfortunes of others than by your own.**_
+_**Our passion is our strength.**_
 
-Aesop
+Billie Armstrong
