@@ -1,3 +1,3 @@
-_**Our passion is our strength.**_
+_**Don't ruin the present with the ruined past.**_
 
-Billie Armstrong
+Ellen Gilchrist
