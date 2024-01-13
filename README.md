@@ -1,3 +1,3 @@
-_**Go to your bosom: Knock there and ask your heart what it doth know.**_
+_**It is impossible to love and to be wise.**_
 
-William Shakespeare
+Francis Bacon
