@@ -1,3 +1,3 @@
-_**First say to yourself what you would be; and then do what you have to do.**_
+_**Go to your bosom: Knock there and ask your heart what it doth know.**_
 
-Epictetus
+William Shakespeare
