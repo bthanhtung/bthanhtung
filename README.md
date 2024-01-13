@@ -1,3 +1,3 @@
-_**It is impossible to love and to be wise.**_
+_**Never explain - your friends do not need it and your enemies will not believe you anyway.**_
 
-Francis Bacon
+Elbert Hubbard
