@@ -1,3 +1,3 @@
-_**Happiness depends upon ourselves.**_
+_**Small opportunities are often the beginning of great enterprises.**_
 
-Aristotle
+Demosthenes
