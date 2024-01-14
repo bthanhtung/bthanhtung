@@ -1,3 +1,3 @@
-_**Never explain - your friends do not need it and your enemies will not believe you anyway.**_
+_**Yeah, we all shine on, like the moon, and the stars, and the sun.**_
 
-Elbert Hubbard
+John Lennon
