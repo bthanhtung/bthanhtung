@@ -1,3 +1,3 @@
-_**Small opportunities are often the beginning of great enterprises.**_
+_**Most powerful is he who has himself in his own power.**_
 
-Demosthenes
+Seneca the Younger
