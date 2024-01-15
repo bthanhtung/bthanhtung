@@ -1,3 +1,3 @@
-_**Most powerful is he who has himself in his own power.**_
+_**Every man is a volume if you know how to read him.**_
 
-Seneca the Younger
+William Ellery Channing
