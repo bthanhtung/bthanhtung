@@ -1,3 +1,3 @@
-_**Every man is a volume if you know how to read him.**_
+_**I can't believe that God put us on this earth to be ordinary.**_
 
-William Ellery Channing
+Lou Holtz
