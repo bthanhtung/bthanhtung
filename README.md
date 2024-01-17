@@ -1,3 +1,3 @@
-_**We are what our thoughts have made us; so take care about what you think. Words are secondary. Thoughts live; they travel far.**_
+_**Ignorant men don't know what good they hold in their hands until they've flung it away.**_
 
-Swami Vivekananda
+Sophocles
