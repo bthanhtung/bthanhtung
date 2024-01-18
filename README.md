@@ -1,3 +1,3 @@
-_**The place to improve the world is first in one's own heart and head and hands.**_
+_**True friends stab you in the front.**_
 
-Robert M. Pirsig
+Oscar Wilde
