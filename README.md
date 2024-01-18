@@ -1,3 +1,3 @@
-_**You cannot be lonely if you like the person you're alone with.**_
+_**Don't leave a stone unturned. It's always something, to know you have done the most you could.**_
 
-Wayne Dyer
+Charles Dickens
