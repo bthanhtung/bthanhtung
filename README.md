@@ -1,3 +1,3 @@
-_**If you are bitter, you are like a dry leaf that you can just squash, and you can get blown away by the wind. There is much more wisdom in forgiveness.**_
+_**There are two primary choices in life: to accept conditions as they exist or accept responsibility for changing them.**_
 
-Vusi Mahlasela
+Denis Waitley
