@@ -1,3 +1,3 @@
-_**As we express our gratitude, we must never forget that the highest appreciation is not to utter words, but to live by them.**_
+_**If a man does his best, what else is there?**_
 
-John F. Kennedy
+George S. Patton
