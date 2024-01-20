@@ -1,3 +1,3 @@
-_**If a man does his best, what else is there?**_
+_**Courage is going from failure to failure without losing enthusiasm.**_
 
-George S. Patton
+Winston Churchill
