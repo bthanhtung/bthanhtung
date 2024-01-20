@@ -1,3 +1,3 @@
-_**Courage is going from failure to failure without losing enthusiasm.**_
+_**Love is blind; friendship closes its eyes.**_
 
-Winston Churchill
+Friedrich Nietzsche
