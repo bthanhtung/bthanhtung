@@ -1,3 +1,3 @@
-_**Love is blind; friendship closes its eyes.**_
+_**Time you enjoyed wasting was not wasted.**_
 
-Friedrich Nietzsche
+John Lennon
