@@ -1,3 +1,3 @@
-_**I cannot even imagine where I would be today were it not for that handful of friends who have given me a heart full of joy. Let's face it, friends make life a lot more fun.**_
+_**The beginning of knowledge is the discovery of something we do not understand.**_
 
-Chuck Swindoll
+Frank Herbert
