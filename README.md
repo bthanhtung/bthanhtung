@@ -1,3 +1,3 @@
-_**The beginning of knowledge is the discovery of something we do not understand.**_
+_**Flow with whatever is happening and let your mind be free. Stay centered by accepting whatever you are doing. This is the ultimate.**_
 
-Frank Herbert
+Zhuang Zhou
