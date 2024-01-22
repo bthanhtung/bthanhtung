@@ -1,3 +1,3 @@
-_**Whatever you do in life, surround yourself with smart people who'll argue with you.**_
+_**Nine-tenths of wisdom is being wise in time.**_
 
-John Wooden
+Theodore Roosevelt
