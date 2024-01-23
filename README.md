@@ -1,3 +1,3 @@
-_**I know but one freedom and that is the freedom of the mind.**_
+_**It's supposed to be automatic, but actually you have to push this button.**_
 
-Antoine de Saint-Exupéry
+John Brunner
