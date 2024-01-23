@@ -1,3 +1,3 @@
-_**Nine-tenths of wisdom is being wise in time.**_
+_**This world, after all our science and sciences, is still a miracle; wonderful, inscrutable, magical and more, to whosoever will think of it.**_
 
-Theodore Roosevelt
+Thomas Carlyle
