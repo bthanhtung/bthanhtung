@@ -1,3 +1,3 @@
-_**Only when we are no longer afraid do we begin to live.**_
+_**He who is taught to live upon little owes more to his father's wisdom than he who has a great deal left him does to his father's care.**_
 
-Dorothy Thompson
+William C. Menninger
