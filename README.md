@@ -1,3 +1,3 @@
-_**Friendship may, and often does, grow into love, but love never subsides into friendship.**_
+_**Only when we are no longer afraid do we begin to live.**_
 
-Lord Byron
+Dorothy Thompson
