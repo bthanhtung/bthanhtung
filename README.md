@@ -1,3 +1,3 @@
-_**It's supposed to be automatic, but actually you have to push this button.**_
+_**Friendship may, and often does, grow into love, but love never subsides into friendship.**_
 
-John Brunner
+Lord Byron
