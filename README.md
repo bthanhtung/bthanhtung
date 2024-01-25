@@ -1,3 +1,3 @@
-_**Notice that the stiffest tree is most easily cracked, while the bamboo or willow survives by bending with the wind.**_
+_**He who hath many friends hath none.**_
 
-Bruce Lee
+Aristotle
