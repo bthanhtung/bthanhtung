@@ -1,3 +1,3 @@
-_**Life's challenges are not supposed to paralyze you, they're supposed to help you discover who you are.**_
+_**Moral excellence comes about as a result of habit. We become just by doing just acts, temperate by doing temperate acts, brave by doing brave acts.**_
 
-Bernice Reagon
+Aristotle
