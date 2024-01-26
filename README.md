@@ -1,3 +1,3 @@
-_**We can only be said to be alive in those moments when our hearts are conscious of our treasures.**_
+_**Life's challenges are not supposed to paralyze you, they're supposed to help you discover who you are.**_
 
-Thornton Wilder
+Bernice Reagon
