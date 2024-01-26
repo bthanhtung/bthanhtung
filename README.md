@@ -1,3 +1,3 @@
-_**He who hath many friends hath none.**_
+_**We can only be said to be alive in those moments when our hearts are conscious of our treasures.**_
 
-Aristotle
+Thornton Wilder
