@@ -1,3 +1,3 @@
-_**I am fond of pigs. Dogs look up to us. Cats look down on us. Pigs treat us as equals.**_
+_**A failure is a man who has blundered but is not capable of cashing in on the experience.**_
 
-Winston Churchill
+Elbert Hubbard
