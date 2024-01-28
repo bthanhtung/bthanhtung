@@ -1,3 +1,3 @@
-_**A failure is a man who has blundered but is not capable of cashing in on the experience.**_
+_**All this modern technology just makes people try to do everything at once.**_
 
-Elbert Hubbard
+Bill Watterson
