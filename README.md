@@ -1,3 +1,3 @@
-_**All this modern technology just makes people try to do everything at once.**_
+_**When an opponent comes forward, move in and greet him; if he wants to pull back, send him on his way.**_
 
-Bill Watterson
+Morihei Ueshiba
