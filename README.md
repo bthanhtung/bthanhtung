@@ -1,3 +1,3 @@
-_**True friendship is like sound health; the value of it is seldom known until it is lost.**_
+_**Light tomorrow with today!**_
 
-Charles Caleb Colton
+Elizabeth Browning
