@@ -1,3 +1,3 @@
-_**Be great in act, as you have been in thought.**_
+_**True friendship is like sound health; the value of it is seldom known until it is lost.**_
 
-William Shakespeare
+Charles Caleb Colton
