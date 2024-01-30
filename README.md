@@ -1,3 +1,3 @@
-_**Our kindness may be the most persuasive argument for that which we believe.**_
+_**To fly as fast as thought, you must begin by knowing that you have already arrived.**_
 
-Gordon Hinckley
+Richard Bach
