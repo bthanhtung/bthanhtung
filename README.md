@@ -1,3 +1,3 @@
-_**To fly as fast as thought, you must begin by knowing that you have already arrived.**_
+_**Much wisdom often goes with fewest words.**_
 
-Richard Bach
+Sophocles
