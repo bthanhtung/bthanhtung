@@ -1,3 +1,3 @@
-_**Do you know what my favorite part of the game is? The opportunity to play.**_
+_**Your mind will answer most questions if you learn to relax and wait for the answer.**_
 
-Mike Singletary (basketball)
+William Burroughs
