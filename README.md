@@ -1,3 +1,3 @@
-_**Your mind will answer most questions if you learn to relax and wait for the answer.**_
+_**Learning never exhausts the mind.**_
 
-William Burroughs
+Leonardo da Vinci
