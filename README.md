@@ -1,3 +1,3 @@
-_**Learning never exhausts the mind.**_
+_**In skating over thin ice our safety is in our speed.**_
 
-Leonardo da Vinci
+Ralph Waldo Emerson
