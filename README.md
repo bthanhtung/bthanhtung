@@ -1,3 +1,3 @@
-_**You can't cross the sea merely by standing and staring at the water.**_
+_**The key is to keep company only with people who uplift you, whose presence calls forth your best.**_
 
-Rabindranath Tagore
+Epictetus
