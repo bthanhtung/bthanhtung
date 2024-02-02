@@ -1,3 +1,3 @@
-_**It's important to know that words don't move mountains. Work, exacting work moves mountains.**_
+_**You can't cross the sea merely by standing and staring at the water.**_
 
-Danilo Dolci
+Rabindranath Tagore
