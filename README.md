@@ -1,3 +1,3 @@
-_**In skating over thin ice our safety is in our speed.**_
+_**It's important to know that words don't move mountains. Work, exacting work moves mountains.**_
 
-Ralph Waldo Emerson
+Danilo Dolci
