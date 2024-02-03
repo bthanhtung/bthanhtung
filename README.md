@@ -1,3 +1,3 @@
-_**Better to have loved and lost, than to have never loved at all.**_
+_**There is nothing permanent except change.**_
 
-Augustine of Hippo
+Heraclitus
