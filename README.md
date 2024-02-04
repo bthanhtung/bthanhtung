@@ -1,3 +1,3 @@
-_**There is nothing permanent except change.**_
+_**The world is but a canvas to the imagination.**_
 
-Heraclitus
+Henry David Thoreau
