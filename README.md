@@ -1,3 +1,3 @@
-_**Excellence is not a skill. It is an attitude.**_
+_**You can't win unless you learn how to lose.**_
 
-Ralph Marston
+Kareem Abdul-Jabbar
