@@ -1,3 +1,3 @@
-_**The world is but a canvas to the imagination.**_
+_**Excellence is not a skill. It is an attitude.**_
 
-Henry David Thoreau
+Ralph Marston
