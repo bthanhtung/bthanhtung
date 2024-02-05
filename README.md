@@ -1,3 +1,3 @@
-_**You can't win unless you learn how to lose.**_
+_**Skill to do comes of doing.**_
 
-Kareem Abdul-Jabbar
+Ralph Waldo Emerson
