@@ -1,3 +1,3 @@
-_**Skill to do comes of doing.**_
+_**Some people are born on third base and go through life thinking they hit a triple.**_
 
-Ralph Waldo Emerson
+Barry Switzer
