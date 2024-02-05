@@ -1,3 +1,3 @@
-_**Some people are born on third base and go through life thinking they hit a triple.**_
+_**Whenever you have eliminated the impossible, whatever remains, however improbable, must be the truth.**_
 
-Barry Switzer
+Arthur Conan Doyle
