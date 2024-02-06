@@ -1,3 +1,3 @@
-_**Whenever you have eliminated the impossible, whatever remains, however improbable, must be the truth.**_
+_**We cannot do everything at once, but we can do something at once.**_
 
-Arthur Conan Doyle
+Calvin Coolidge
