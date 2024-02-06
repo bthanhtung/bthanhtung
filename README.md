@@ -1,3 +1,3 @@
-_**No one is useless in this world who lightens the burdens of another.**_
+_**All achievements, all earned riches, have their beginning in an idea.**_
 
-Charles Dickens
+Napoleon Hill
