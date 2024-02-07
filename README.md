@@ -1,3 +1,3 @@
-_**Wisdom often times consists of knowing what to do next.**_
+_**Small opportunities are often the beginning of great enterprises.**_
 
-Herbert Hoover
+Demosthenes
