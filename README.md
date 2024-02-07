@@ -1,3 +1,3 @@
-_**All achievements, all earned riches, have their beginning in an idea.**_
+_**Wisdom often times consists of knowing what to do next.**_
 
-Napoleon Hill
+Herbert Hoover
