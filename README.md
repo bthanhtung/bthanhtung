@@ -1,3 +1,3 @@
-_**The three great essentials to achieve anything worthwhile are: Hard work, Stick-to-itiveness, and Common sense.**_
+_**We don't receive wisdom; we must discover it for ourselves after a journey that no one can take for us or spare us.**_
 
-Thomas Edison
+Marcel Proust
