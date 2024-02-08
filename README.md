@@ -1,3 +1,3 @@
-_**Be glad of life because it gives you the chance to love, to work, to play, and to look up at the stars.**_
+_**The three great essentials to achieve anything worthwhile are: Hard work, Stick-to-itiveness, and Common sense.**_
 
-Henry van Dyke Jr.
+Thomas Edison
