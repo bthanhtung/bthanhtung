@@ -1,3 +1,3 @@
-_**You are the only person on earth who can use your ability.**_
+_**With age comes wisdom and a high sex drive. And the wisdom to enjoy it.**_
 
-Zig Ziglar
+Amber Valletta
