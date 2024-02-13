@@ -1,3 +1,3 @@
-_**There is nothing happens to any person but what was in his power to go through with.**_
+_**It is good even for old men to learn wisdom.**_
 
-Marcus Aurelius
+Aeschylus
