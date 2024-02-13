@@ -1,3 +1,3 @@
-_**The world is but a canvas to the imagination.**_
+_**There is nothing happens to any person but what was in his power to go through with.**_
 
-Henry David Thoreau
+Marcus Aurelius
