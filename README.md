@@ -1,3 +1,3 @@
-_**It is good even for old men to learn wisdom.**_
+_**Formula for success: under promise and over deliver.**_
 
-Aeschylus
+Tom Peters
