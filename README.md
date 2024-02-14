@@ -1,3 +1,3 @@
-_**Whoever doesn't flare up at someone who's angry wins a battle hard to win.**_
+_**It's so simple to be wise. Just think of something stupid to say and then don't say it.**_
 
-The Buddha
+Sam Levenson
