@@ -1,3 +1,3 @@
-_**Formula for success: under promise and over deliver.**_
+_**Whoever doesn't flare up at someone who's angry wins a battle hard to win.**_
 
-Tom Peters
+The Buddha
