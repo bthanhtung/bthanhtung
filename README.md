@@ -1,3 +1,3 @@
-_**It's so simple to be wise. Just think of something stupid to say and then don't say it.**_
+_**Moral excellence comes about as a result of habit. We become just by doing just acts, temperate by doing temperate acts, brave by doing brave acts.**_
 
-Sam Levenson
+Aristotle
