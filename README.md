@@ -1,3 +1,3 @@
-_**A friend is, as it were, a second self.**_
+_**Use what talents you possess; the woods would be very silent if no birds sang there except those that sang best.**_
 
-Cicero
+Henry van Dyke Jr.
