@@ -1,3 +1,3 @@
-_**It is only when the mind and character slumber that the dress can be seen.**_
+_**If we have a positive mental attitude, then even when surrounded by hostility, we shall not lack inner peace.**_
 
-Ralph Waldo Emerson
+Dalai Lama
