@@ -1,3 +1,3 @@
-_**Use what talents you possess; the woods would be very silent if no birds sang there except those that sang best.**_
+_**It is only when the mind and character slumber that the dress can be seen.**_
 
-Henry van Dyke Jr.
+Ralph Waldo Emerson
