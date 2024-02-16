@@ -1,3 +1,3 @@
-_**If we have a positive mental attitude, then even when surrounded by hostility, we shall not lack inner peace.**_
+_**There are no secrets to success. It is the result of preparation, hard work, and learning from failure.**_
 
-Dalai Lama
+Colin Powell
