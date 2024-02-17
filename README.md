@@ -1,3 +1,3 @@
-_**Never interrupt your enemy when he is making a mistake.**_
+_**If you set out to be liked, you would be prepared to compromise on anything at any time, and you would achieve nothing.**_
 
-Napoleon
+Margaret Thatcher
