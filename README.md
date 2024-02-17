@@ -1,3 +1,3 @@
-_**How many cares one loses when one decides not to be something but to be someone.**_
+_**Never interrupt your enemy when he is making a mistake.**_
 
-Coco Chanel
+Napoleon
