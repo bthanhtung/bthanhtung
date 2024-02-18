@@ -1,3 +1,3 @@
-_**If you set out to be liked, you would be prepared to compromise on anything at any time, and you would achieve nothing.**_
+_**You can only grow if you're willing to feel awkward and uncomfortable when you try something new.**_
 
-Margaret Thatcher
+Brian Tracy
