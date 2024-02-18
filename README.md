@@ -1,3 +1,3 @@
-_**With pride, there are many curses. With humility, there come many blessings.**_
+_**Fame usually comes to those who are thinking about something else.**_
 
-Ezra Taft Benson
+Oliver Wendell Holmes Jr.
