@@ -1,3 +1,3 @@
-_**You can only grow if you're willing to feel awkward and uncomfortable when you try something new.**_
+_**With pride, there are many curses. With humility, there come many blessings.**_
 
-Brian Tracy
+Ezra Taft Benson
