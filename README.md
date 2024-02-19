@@ -1,3 +1,3 @@
-_**Fame usually comes to those who are thinking about something else.**_
+_**We're born alone, we live alone, we die alone. Only through our love and friendship can we create the illusion for the moment that we're not alone.**_
 
-Oliver Wendell Holmes Jr.
+Orson Welles
