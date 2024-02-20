@@ -1,3 +1,3 @@
-_**Doing nothing is better than being busy doing nothing.**_
+_**It's not what you look at that matters, it's what you see.**_
 
-Laozi
+Henry David Thoreau
