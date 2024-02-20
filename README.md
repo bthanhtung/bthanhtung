@@ -1,3 +1,3 @@
-_**The supreme art of war is to subdue the enemy without fighting.**_
+_**Doing nothing is better than being busy doing nothing.**_
 
-Sun Tzu
+Laozi
