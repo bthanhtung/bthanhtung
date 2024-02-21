@@ -1,3 +1,3 @@
-_**To me, it doesn't matter how good you are. Sport is all about playing and competing. Whatever you do in cricket and in sport, enjoy it, be positive and try to win.**_
+_**If you wish to be a writer, write.**_
 
-Ian Botham
+Epictetus
