@@ -1,3 +1,3 @@
-_**If you wish to be a writer, write.**_
+_**To lead people walk behind them.**_
 
-Epictetus
+Laozi
