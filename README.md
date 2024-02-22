@@ -1,3 +1,3 @@
-_**Truth is generally the best vindication against slander.**_
+_**Start with what is right rather than what is acceptable.**_
 
-Abraham Lincoln
+Franz Kafka
