@@ -1,3 +1,3 @@
-_**Start with what is right rather than what is acceptable.**_
+_**Life is a succession of moments. To live each one is to succeed.**_
 
-Franz Kafka
+Corita Kent
