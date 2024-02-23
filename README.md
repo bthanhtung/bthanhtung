@@ -1,3 +1,3 @@
-_**Computers are useless. They can only give you answers.**_
+_**Life is what happens while you are making other plans.**_
 
-Pablo Picasso
+John Lennon
