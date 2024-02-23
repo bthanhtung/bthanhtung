@@ -1,3 +1,3 @@
-_**Life is a succession of moments. To live each one is to succeed.**_
+_**Computers are useless. They can only give you answers.**_
 
-Corita Kent
+Pablo Picasso
