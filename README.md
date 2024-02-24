@@ -1,3 +1,3 @@
-_**Beware of missing chances; otherwise it may be altogether too late someday.**_
+_**We are what our thoughts have made us; so take care about what you think. Words are secondary. Thoughts live; they travel far.**_
 
-Franz Liszt
+Swami Vivekananda
