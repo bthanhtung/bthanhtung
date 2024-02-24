@@ -1,3 +1,3 @@
-_**Life is what happens while you are making other plans.**_
+_**Beware of missing chances; otherwise it may be altogether too late someday.**_
 
-John Lennon
+Franz Liszt
