@@ -1,3 +1,3 @@
-_**We are what our thoughts have made us; so take care about what you think. Words are secondary. Thoughts live; they travel far.**_
+_**True knowledge exists in knowing that you know nothing.**_
 
-Swami Vivekananda
+Isocrates
