@@ -1,3 +1,3 @@
-_**True knowledge exists in knowing that you know nothing.**_
+_**Dost thou love life? Then do not squander time, for that is the stuff life is made of.**_
 
-Isocrates
+Benjamin Franklin
