@@ -1,3 +1,3 @@
-_**Dost thou love life? Then do not squander time, for that is the stuff life is made of.**_
+_**Kindness is the golden chain by which society is bound together.**_
 
-Benjamin Franklin
+Johann Wolfgang von Goethe
