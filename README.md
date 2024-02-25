@@ -1,3 +1,3 @@
-_**Kindness is the golden chain by which society is bound together.**_
+_**It is no use saying, 'We are doing our best.' You have got to succeed in doing what is necessary.**_
 
-Johann Wolfgang von Goethe
+Winston Churchill
