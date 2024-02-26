@@ -1,3 +1,3 @@
-_**There never was a good knife made of bad steel.**_
+_**The Superior Man is aware of Righteousness, the inferior man is aware of advantage.**_
 
-Benjamin Franklin
+Confucius
