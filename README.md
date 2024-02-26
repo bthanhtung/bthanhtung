@@ -1,3 +1,3 @@
-_**The Superior Man is aware of Righteousness, the inferior man is aware of advantage.**_
+_**The biggest room in the world is room for improvement.**_
 
-Confucius
+Helmut Schmidt
