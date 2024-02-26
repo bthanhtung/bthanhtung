@@ -1,3 +1,3 @@
-_**It is no use saying, 'We are doing our best.' You have got to succeed in doing what is necessary.**_
+_**There never was a good knife made of bad steel.**_
 
-Winston Churchill
+Benjamin Franklin
