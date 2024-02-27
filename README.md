@@ -1,3 +1,3 @@
-_**The biggest room in the world is room for improvement.**_
+_**Stay committed to your decisions, but stay flexible in your approach.**_
 
-Helmut Schmidt
+Tony Robbins
