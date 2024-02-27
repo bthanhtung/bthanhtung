@@ -1,3 +1,3 @@
-_**Stay committed to your decisions, but stay flexible in your approach.**_
+_**The greatest way to live with honor in this world is to be what we pretend to be.**_
 
-Tony Robbins
+Socrates
