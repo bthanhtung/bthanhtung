@@ -1,3 +1,3 @@
-_**The greatest way to live with honor in this world is to be what we pretend to be.**_
+_**If you don't know where you are going, you will probably end up somewhere else.**_
 
-Socrates
+Laurence J. Peter
