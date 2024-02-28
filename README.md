@@ -1,3 +1,3 @@
-_**Whoso loves, believes the impossible.**_
+_**There is no greater harm than that of time wasted.**_
 
-Elizabeth Browning
+Michelangelo
