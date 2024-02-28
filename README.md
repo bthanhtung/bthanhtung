@@ -1,3 +1,3 @@
-_**You teach best what you most need to learn.**_
+_**Whoso loves, believes the impossible.**_
 
-Richard Bach
+Elizabeth Browning
