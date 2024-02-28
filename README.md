@@ -1,3 +1,3 @@
-_**If you don't know where you are going, you will probably end up somewhere else.**_
+_**You teach best what you most need to learn.**_
 
-Laurence J. Peter
+Richard Bach
