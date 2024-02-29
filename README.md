@@ -1,3 +1,3 @@
-_**To do all that one is able to do, is to be a man; to do all that one would like to do, is to be a god.**_
+_**The sincere friends of this world are as ship lights in the stormiest of nights.**_
 
-Napoleon
+Giotto
