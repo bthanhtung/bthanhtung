@@ -1,3 +1,3 @@
-_**Independence is happiness.**_
+_**Opportunity does not knock, it presents itself when you beat down the door.**_
 
-Susan B. Anthony
+Kyle Chandler
