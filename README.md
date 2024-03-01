@@ -1,3 +1,3 @@
-_**Most of the important things in the world have been accomplished by people who have kept on trying when there seemed to be no hope at all.**_
+_**There is nothing like returning to a place that remains unchanged to find the ways in which you yourself have altered.**_
 
-Dale Carnegie
+Nelson Mandela
