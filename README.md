@@ -1,3 +1,3 @@
-_**There is nothing like returning to a place that remains unchanged to find the ways in which you yourself have altered.**_
+_**Independence is happiness.**_
 
-Nelson Mandela
+Susan B. Anthony
