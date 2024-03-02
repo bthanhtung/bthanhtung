@@ -1,3 +1,3 @@
-_**There is no passion to be found playing small - in settling for a life that is less than the one you are capable of living.**_
+_**It is unwise to be too sure of one's own wisdom. It is healthy to be reminded that the strongest might weaken and the wisest might err.**_
 
-Nelson Mandela
+Mahatma Gandhi
