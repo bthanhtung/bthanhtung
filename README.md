@@ -1,3 +1,3 @@
-_**See the positive side, the potential, and make an effort.**_
+_**There is no passion to be found playing small - in settling for a life that is less than the one you are capable of living.**_
 
-Dalai Lama
+Nelson Mandela
