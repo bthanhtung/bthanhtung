@@ -1,3 +1,3 @@
-_**Opportunity does not knock, it presents itself when you beat down the door.**_
+_**See the positive side, the potential, and make an effort.**_
 
-Kyle Chandler
+Dalai Lama
