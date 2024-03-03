@@ -1,3 +1,3 @@
-_**Anticipate the difficult by managing the easy.**_
+_**The superior man acts before he speaks, and afterwards speaks according to his action.**_
 
-Laozi
+Confucius
