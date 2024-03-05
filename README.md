@@ -1,3 +1,3 @@
-_**The best thing about the future is that it only comes one day at a time.**_
+_**Without courage, wisdom bears no fruit.**_
 
-Abraham Lincoln
+Baltasar Gracián
