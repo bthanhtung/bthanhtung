@@ -1,3 +1,3 @@
-_**Without courage, wisdom bears no fruit.**_
+_**Reading, after a certain age, diverts the mind too much from its creative pursuits. Any man who reads too much and uses his own brain too little falls into lazy habits of thinking.**_
 
-Baltasar Gracián
+Albert Einstein
