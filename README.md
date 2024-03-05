@@ -1,3 +1,3 @@
-_**It is easy to be brave from a safe distance.**_
+_**The best thing about the future is that it only comes one day at a time.**_
 
-Aesop
+Abraham Lincoln
