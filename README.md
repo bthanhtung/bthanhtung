@@ -1,3 +1,3 @@
-_**We the people are the rightful masters of both Congress and the courts, not to overthrow the Constitution but to overthrow the men who pervert the Constitution.**_
+_**A subtle thought that is in error may yet give rise to fruitful inquiry that can establish truths of great value.**_
 
-Abraham Lincoln
+Isaac Asimov
