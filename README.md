@@ -1,3 +1,3 @@
-_**A subtle thought that is in error may yet give rise to fruitful inquiry that can establish truths of great value.**_
+_**The smallest flower is a thought, a life answering to some feature of the Great Whole, of whom they have a persistent intuition.**_
 
-Isaac Asimov
+Honoré de Balzac
