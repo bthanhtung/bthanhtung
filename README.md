@@ -1,3 +1,3 @@
-_**The smallest flower is a thought, a life answering to some feature of the Great Whole, of whom they have a persistent intuition.**_
+_**I have just three things to teach: simplicity, patience, compassion. These three are your greatest treasures.**_
 
-Honoré de Balzac
+Laozi
