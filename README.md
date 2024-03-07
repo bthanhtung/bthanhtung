@@ -1,3 +1,3 @@
-_**I have just three things to teach: simplicity, patience, compassion. These three are your greatest treasures.**_
+_**Time you enjoyed wasting was not wasted.**_
 
-Laozi
+John Lennon
