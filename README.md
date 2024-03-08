@@ -1,3 +1,3 @@
-_**Time you enjoyed wasting was not wasted.**_
+_**When it is obvious that the goals cannot be reached, don't adjust the goals, adjust the action steps.**_
 
-John Lennon
+Confucius
