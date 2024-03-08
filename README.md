@@ -1,3 +1,3 @@
-_**Obstacles are those things you see when you take your eyes off the goal.**_
+_**Our greatness lies not so much in being able to remake the world as being able to remake ourselves.**_
 
-Hannah More
+Mahatma Gandhi
