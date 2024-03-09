@@ -1,3 +1,3 @@
-_**Our greatness lies not so much in being able to remake the world as being able to remake ourselves.**_
+_**To be tested is good. The challenged life may be the best therapist.**_
 
-Mahatma Gandhi
+Gail Sheehy
