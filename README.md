@@ -1,3 +1,3 @@
-_**To be tested is good. The challenged life may be the best therapist.**_
+_**If one is estranged from oneself, then one is estranged from others too. If one is out of touch with oneself, then one cannot touch others.**_
 
-Gail Sheehy
+Anne Lindbergh
