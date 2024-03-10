@@ -1,3 +1,3 @@
-_**America's freedom of religion, and freedom from religion, offers every wisdom tradition an opportunity to address our soul-deep needs: Christianity, Judaism, Islam, Buddhism, Hinduism, secular humanism, agnosticism and atheism among others.**_
+_**You learn to speak by speaking, to study by studying, to run by running, to work by working; in just the same way, you learn to love by loving.**_
 
-Parker Palmer
+Anatole France
