@@ -1,3 +1,3 @@
-_**One should not hurt others if one loves oneself.**_
+_**There is no way to prosperity, prosperity is the way.**_
 
-The Buddha
+Wayne Dyer
