@@ -1,3 +1,3 @@
-_**There is no way to prosperity, prosperity is the way.**_
+_**The truest wisdom is a resolute determination.**_
 
-Wayne Dyer
+Napoleon
