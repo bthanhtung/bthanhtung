@@ -1,3 +1,3 @@
-_**Whenever you have eliminated the impossible, whatever remains, however improbable, must be the truth.**_
+_**When you begin to touch your heart or let your heart be touched, you begin to discover that it's bottomless.**_
 
-Arthur Conan Doyle
+Pema Chödrön
