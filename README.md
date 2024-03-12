@@ -1,3 +1,3 @@
-_**The truest wisdom is a resolute determination.**_
+_**Whenever you have eliminated the impossible, whatever remains, however improbable, must be the truth.**_
 
-Napoleon
+Arthur Conan Doyle
