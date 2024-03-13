@@ -1,3 +1,3 @@
-_**The final proof of greatness lies in being able to endure criticism without resentment.**_
+_**In the sweetness of friendship let there be laughter and sharing of pleasures. For in the dew of little things the heart finds its morning and is refreshed.**_
 
-Elbert Hubbard
+Kahlil Gibran
