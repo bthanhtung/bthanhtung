@@ -1,3 +1,3 @@
-_**My best friend is the one who brings out the best in me.**_
+_**The final proof of greatness lies in being able to endure criticism without resentment.**_
 
-Henry Ford
+Elbert Hubbard
