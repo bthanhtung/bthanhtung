@@ -1,3 +1,3 @@
-_**You and I are all as much continuous with the physical universe as a wave is continuous with the ocean.**_
+_**There is nothing so useless as doing efficiently that which should not be done at all.**_
 
-Alan Watts
+Peter Drucker
