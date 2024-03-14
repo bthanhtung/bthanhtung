@@ -1,3 +1,3 @@
-_**There is nothing so useless as doing efficiently that which should not be done at all.**_
+_**The great myth of our times is that technology is communication.**_
 
-Peter Drucker
+Libby Larsen
