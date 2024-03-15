@@ -1,3 +1,3 @@
-_**Keep me away from the wisdom which does not cry, the philosophy which does not laugh and the greatness which does not bow before children.**_
+_**The world turns aside to let any man pass who knows where he is going.**_
 
-Kahlil Gibran
+Epictetus
