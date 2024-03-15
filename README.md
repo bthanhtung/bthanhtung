@@ -1,3 +1,3 @@
-_**To be tested is good. The challenged life may be the best therapist.**_
+_**Keep me away from the wisdom which does not cry, the philosophy which does not laugh and the greatness which does not bow before children.**_
 
-Gail Sheehy
+Kahlil Gibran
