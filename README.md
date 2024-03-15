@@ -1,3 +1,3 @@
-_**The great myth of our times is that technology is communication.**_
+_**To be tested is good. The challenged life may be the best therapist.**_
 
-Libby Larsen
+Gail Sheehy
