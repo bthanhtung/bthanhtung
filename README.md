@@ -1,3 +1,3 @@
-_**If you have knowledge, let others light their candles in it.**_
+_**Give, even if you only have a little.**_
 
-Margaret Fuller
+The Buddha
