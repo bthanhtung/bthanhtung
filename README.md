@@ -1,3 +1,3 @@
-_**Think as a wise man but communicate in the language of the people.**_
+_**If you have knowledge, let others light their candles in it.**_
 
-William Butler Yeats
+Margaret Fuller
