@@ -1,3 +1,3 @@
-_**Just because something doesn't do what you planned it to do doesn't mean it's useless.**_
+_**A person who never made a mistake never tried anything new.**_
 
-Thomas Edison
+Albert Einstein
