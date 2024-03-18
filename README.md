@@ -1,3 +1,3 @@
-_**All love that has not friendship for its base, is like a mansion built upon the sand.**_
+_**To follow, without halt, one aim: There is the secret of success.**_
 
-Ella Wheeler Wilcox
+Anna Pavlova
