@@ -1,3 +1,3 @@
-_**A person who never made a mistake never tried anything new.**_
+_**All love that has not friendship for its base, is like a mansion built upon the sand.**_
 
-Albert Einstein
+Ella Wheeler Wilcox
