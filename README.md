@@ -1,3 +1,3 @@
-_**To follow, without halt, one aim: There is the secret of success.**_
+_**True happiness arises, in the first place, from the enjoyment of oneself, and in the next, from the friendship and conversation of a few select companions.**_
 
-Anna Pavlova
+Joseph Addison
