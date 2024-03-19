@@ -1,3 +1,3 @@
-_**True happiness arises, in the first place, from the enjoyment of oneself, and in the next, from the friendship and conversation of a few select companions.**_
+_**Look back over the past, with its changing empires that rose and fell, and you can foresee the future, too.**_
 
-Joseph Addison
+Marcus Aurelius
