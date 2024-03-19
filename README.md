@@ -1,3 +1,3 @@
-_**Friendship is certainly the finest balm for the pangs of disappointed love.**_
+_**I can't change the direction of the wind, but I can adjust my sails to always reach my destination.**_
 
-Jane Austen
+Jimmy Dean
