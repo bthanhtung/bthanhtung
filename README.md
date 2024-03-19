@@ -1,3 +1,3 @@
-_**Look back over the past, with its changing empires that rose and fell, and you can foresee the future, too.**_
+_**Friendship is certainly the finest balm for the pangs of disappointed love.**_
 
-Marcus Aurelius
+Jane Austen
