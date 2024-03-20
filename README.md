@@ -1,3 +1,3 @@
-_**Mountains cannot be surmounted except by winding paths.**_
+_**We lost because we told ourselves we lost.**_
 
-Johann Wolfgang von Goethe
+Leo Tolstoy
