@@ -1,3 +1,3 @@
-_**I can't change the direction of the wind, but I can adjust my sails to always reach my destination.**_
+_**Talent is God-given; be humble. Fame is man-given; be thankful. Conceit is self-given; be careful.**_
 
-Jimmy Dean
+Harvey Mackay
