@@ -1,3 +1,3 @@
-_**Talent is God-given; be humble. Fame is man-given; be thankful. Conceit is self-given; be careful.**_
+_**Mountains cannot be surmounted except by winding paths.**_
 
-Harvey Mackay
+Johann Wolfgang von Goethe
