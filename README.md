@@ -1,3 +1,3 @@
-_**We lost because we told ourselves we lost.**_
+_**Friendship, like credit, is highest when it is not used.**_
 
-Leo Tolstoy
+Elbert Hubbard
