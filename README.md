@@ -1,3 +1,3 @@
-_**Friendship, like credit, is highest when it is not used.**_
+_**Ceasing to do evil, Cultivating the good, Purifying the heart: This is the teaching of the Buddhas.**_
 
-Elbert Hubbard
+The Buddha
