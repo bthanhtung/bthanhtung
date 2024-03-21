@@ -1,3 +1,3 @@
-_**Ceasing to do evil, Cultivating the good, Purifying the heart: This is the teaching of the Buddhas.**_
+_**To invent, you need a good imagination and a pile of junk.**_
 
-The Buddha
+Thomas Edison
