@@ -1,3 +1,3 @@
-_**It is through science that we prove, but through intuition that we discover.**_
+_**To be happy is to be able to become aware of oneself without fright.**_
 
-Henri Poincaré
+Walter Benjamin
