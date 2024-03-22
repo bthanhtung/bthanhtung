@@ -1,3 +1,3 @@
-_**To be happy is to be able to become aware of oneself without fright.**_
+_**Always keep an open mind and a compassionate heart.**_
 
-Walter Benjamin
+Phil Jackson
