@@ -1,3 +1,3 @@
-_**Strong people make as many mistakes as weak people. Difference is that strong people admit their mistakes, laugh at them, learn from them. That is how they become strong.**_
+_**Remember always that you not only have the right to be an individual, you have an obligation to be one.**_
 
-Richard Needham
+Eleanor Roosevelt
