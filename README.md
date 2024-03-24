@@ -1,3 +1,3 @@
-_**The simplest things are often the truest.**_
+_**Wishing to be friends is quick work, but friendship is a slow ripening fruit.**_
 
-Richard Bach
+Aristotle
