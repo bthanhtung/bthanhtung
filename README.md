@@ -1,3 +1,3 @@
-_**I am always doing that which I cannot do, in order that I may learn how to do it.**_
+_**No day in which you learn something is a complete loss.**_
 
-Pablo Picasso
+David Eddings
