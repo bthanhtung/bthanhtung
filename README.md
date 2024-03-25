@@ -1,3 +1,3 @@
-_**Wishing to be friends is quick work, but friendship is a slow ripening fruit.**_
+_**I am always doing that which I cannot do, in order that I may learn how to do it.**_
 
-Aristotle
+Pablo Picasso
