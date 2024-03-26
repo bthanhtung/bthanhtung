@@ -1,3 +1,3 @@
-_**Most of our pocket wisdom is conceived for the use of mediocre people, to discourage them from ambitious attempts, and generally console them in their mediocrity.**_
+_**We can change our lives. We can do, have, and be exactly what we wish.**_
 
-Robert Louis Stevenson
+Tony Robbins
