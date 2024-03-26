@@ -1,3 +1,3 @@
-_**The shoe that fits one person pinches another; there is no recipe for living that suits all cases.**_
+_**Never interrupt your enemy when he is making a mistake.**_
 
-Carl Jung
+Napoleon
