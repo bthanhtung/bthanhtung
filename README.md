@@ -1,3 +1,3 @@
-_**We can change our lives. We can do, have, and be exactly what we wish.**_
+_**The shoe that fits one person pinches another; there is no recipe for living that suits all cases.**_
 
-Tony Robbins
+Carl Jung
