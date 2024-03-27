@@ -1,3 +1,3 @@
-_**Argue for your limitations, and sure enough they're yours.**_
+_**When it is obvious that the goals cannot be reached, don't adjust the goals, adjust the action steps.**_
 
-Richard Bach
+Confucius
