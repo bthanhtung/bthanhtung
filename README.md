@@ -1,3 +1,3 @@
-_**Never interrupt your enemy when he is making a mistake.**_
+_**Argue for your limitations, and sure enough they're yours.**_
 
-Napoleon
+Richard Bach
