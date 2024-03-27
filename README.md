@@ -1,3 +1,3 @@
-_**When it is obvious that the goals cannot be reached, don't adjust the goals, adjust the action steps.**_
+_**It is only when the mind and character slumber that the dress can be seen.**_
 
-Confucius
+Ralph Waldo Emerson
