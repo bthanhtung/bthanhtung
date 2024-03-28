@@ -1,3 +1,3 @@
-_**To be wrong is nothing unless you continue to remember it.**_
+_**I'm a great believer in luck and I find the harder I work, the more I have of it.**_
 
-Confucius
+Thomas Jefferson
