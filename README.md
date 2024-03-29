@@ -1,3 +1,3 @@
-_**Genuine sincerity opens people's hearts, while manipulation causes them to close.**_
+_**Never deny a diagnosis but do deny the negative verdict that may go with it.**_
 
-Daisaku Ikeda
+Norman Cousins
