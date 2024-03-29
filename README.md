@@ -1,3 +1,3 @@
-_**Never deny a diagnosis but do deny the negative verdict that may go with it.**_
+_**In wartime, truth is so precious that she should always be attended by a bodyguard of lies.**_
 
-Norman Cousins
+Winston Churchill
