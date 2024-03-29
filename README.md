@@ -1,3 +1,3 @@
-_**Much wisdom often goes with fewest words.**_
+_**Genuine sincerity opens people's hearts, while manipulation causes them to close.**_
 
-Sophocles
+Daisaku Ikeda
