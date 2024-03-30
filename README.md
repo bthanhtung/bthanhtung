@@ -1,3 +1,3 @@
-_**In wartime, truth is so precious that she should always be attended by a bodyguard of lies.**_
+_**There are no limitations to the mind except those we acknowledge.**_
 
-Winston Churchill
+Napoleon Hill
