@@ -1,3 +1,3 @@
-_**There are no limitations to the mind except those we acknowledge.**_
+_**We are all faced with a series of great opportunities brilliantly disguised as impossible situations.**_
 
-Napoleon Hill
+Chuck Swindoll
