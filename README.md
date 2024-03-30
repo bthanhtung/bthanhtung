@@ -1,3 +1,3 @@
-_**We are all faced with a series of great opportunities brilliantly disguised as impossible situations.**_
+_**Wisdom is the reward you get for a lifetime of listening when you'd have preferred to talk.**_
 
-Chuck Swindoll
+Doug Larson
