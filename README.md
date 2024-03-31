@@ -1,3 +1,3 @@
-_**When your desires are strong enough you will appear to possess superhuman powers to achieve.**_
+_**I love my past. I love my present. I'm not ashamed of what I've had, and I'm not sad because I have it no longer.**_
 
-Napoleon Hill
+Colette
