@@ -1,3 +1,3 @@
-_**I love my past. I love my present. I'm not ashamed of what I've had, and I'm not sad because I have it no longer.**_
+_**There is not one big cosmic meaning for all, there is only the meaning we each give to our life.**_
 
-Colette
+Anaïs Nin
