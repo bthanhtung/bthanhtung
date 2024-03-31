@@ -1,3 +1,3 @@
-_**Wisdom is the reward you get for a lifetime of listening when you'd have preferred to talk.**_
+_**When your desires are strong enough you will appear to possess superhuman powers to achieve.**_
 
-Doug Larson
+Napoleon Hill
