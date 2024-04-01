@@ -1,3 +1,3 @@
-_**The journey of a thousand miles begins with one step.**_
+_**One of the advantages of being disorderly is that one is constantly making exciting discoveries.**_
 
-Laozi
+A. A. Milne
