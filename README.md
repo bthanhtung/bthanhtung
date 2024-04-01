@@ -1,3 +1,3 @@
-_**Reason and free inquiry are the only effectual agents against error.**_
+_**The journey of a thousand miles begins with one step.**_
 
-Thomas Jefferson
+Laozi
