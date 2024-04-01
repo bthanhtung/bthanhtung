@@ -1,3 +1,3 @@
-_**There is not one big cosmic meaning for all, there is only the meaning we each give to our life.**_
+_**Reason and free inquiry are the only effectual agents against error.**_
 
-Anaïs Nin
+Thomas Jefferson
