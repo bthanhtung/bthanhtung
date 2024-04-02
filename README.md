@@ -1,3 +1,3 @@
-_**It is not so much our friends' help that helps us, as the confidence of their help.**_
+_**A thing well said will be wit in all languages.**_
 
-Epicurus
+John Dryden
