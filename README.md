@@ -1,3 +1,3 @@
-_**One of the advantages of being disorderly is that one is constantly making exciting discoveries.**_
+_**Life is what happens while you are making other plans.**_
 
-A. A. Milne
+John Lennon
