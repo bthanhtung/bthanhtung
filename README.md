@@ -1,3 +1,3 @@
-_**Kindness is the language which the deaf can hear and the blind can see.**_
+_**Only do what your heart tells you.**_
 
-Mark Twain
+Princess Diana
