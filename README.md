@@ -1,3 +1,3 @@
-_**A thing well said will be wit in all languages.**_
+_**It is through science that we prove, but through intuition that we discover.**_
 
-John Dryden
+Henri Poincaré
