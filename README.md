@@ -1,3 +1,3 @@
-_**It is through science that we prove, but through intuition that we discover.**_
+_**Kindness is the language which the deaf can hear and the blind can see.**_
 
-Henri Poincaré
+Mark Twain
