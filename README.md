@@ -1,3 +1,3 @@
-_**Only do what your heart tells you.**_
+_**Friendship often ends in love, but love in friendship - never.**_
 
-Princess Diana
+Albert Camus
