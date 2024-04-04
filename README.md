@@ -1,3 +1,3 @@
-_**Friendship often ends in love, but love in friendship - never.**_
+_**One loyal friend is worth ten thousand relatives.**_
 
-Albert Camus
+Euripides
