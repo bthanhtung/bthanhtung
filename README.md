@@ -1,3 +1,3 @@
-_**One loyal friend is worth ten thousand relatives.**_
+_**Do all things with love.**_
 
-Euripides
+Og Mandino
