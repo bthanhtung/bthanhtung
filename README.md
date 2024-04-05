@@ -1,3 +1,3 @@
-_**Do all things with love.**_
+_**Ignorant men raise questions that wise men answered a thousand years ago.**_
 
-Og Mandino
+Johann Wolfgang von Goethe
