@@ -1,3 +1,3 @@
-_**Experience is not what happens to you; it's what you do with what happens to you.**_
+_**The power of intuitive understanding will protect you from harm until the end of your days.**_
 
-Aldous Huxley
+Laozi
