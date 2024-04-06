@@ -1,3 +1,3 @@
-_**The power of intuitive understanding will protect you from harm until the end of your days.**_
+_**The more sand that has escaped from the hourglass of our life, the clearer we should see through it.**_
 
-Laozi
+Jean-Paul Sartre
