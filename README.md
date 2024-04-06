@@ -1,3 +1,3 @@
-_**Be like the flower, turn your face to the sun.**_
+_**Experience is not what happens to you; it's what you do with what happens to you.**_
 
-Kahlil Gibran
+Aldous Huxley
