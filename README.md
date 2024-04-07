@@ -1,3 +1,3 @@
-_**Divide each difficulty into as many parts as is feasible and necessary to resolve it.**_
+_**The entrepreneur always searches for change, responds to it, and exploits it as an opportunity.**_
 
-René Descartes
+Peter Drucker
