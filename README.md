@@ -1,3 +1,3 @@
-_**The entrepreneur always searches for change, responds to it, and exploits it as an opportunity.**_
+_**We must be as courteous to a man as we are to a picture, which we are willing to give the advantage of a good light.**_
 
-Peter Drucker
+Ralph Waldo Emerson
