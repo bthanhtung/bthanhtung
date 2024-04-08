@@ -1,3 +1,3 @@
-_**We must be as courteous to a man as we are to a picture, which we are willing to give the advantage of a good light.**_
+_**To profit from good advice requires more wisdom than to give it.**_
 
-Ralph Waldo Emerson
+Wilson Mizner
