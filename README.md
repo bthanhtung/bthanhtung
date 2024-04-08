@@ -1,3 +1,3 @@
-_**To profit from good advice requires more wisdom than to give it.**_
+_**When you judge another, you do not define them, you define yourself.**_
 
-Wilson Mizner
+Wayne Dyer
