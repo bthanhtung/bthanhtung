@@ -1,3 +1,3 @@
-_**When you judge another, you do not define them, you define yourself.**_
+_**The simplest things are often the truest.**_
 
-Wayne Dyer
+Richard Bach
