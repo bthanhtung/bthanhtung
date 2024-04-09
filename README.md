@@ -1,3 +1,3 @@
-_**The two most powerful warriors are patience and time.**_
+_**If you'll not settle for anything less than your best, you will be amazed at what you can accomplish in your lives.**_
 
-Leo Tolstoy
+Vince Lombardi
