@@ -1,3 +1,3 @@
-_**A lot of times people look at the negative side of what they feel they can't do. I always look on the positive side of what I can do.**_
+_**The two most powerful warriors are patience and time.**_
 
-Chuck Norris
+Leo Tolstoy
