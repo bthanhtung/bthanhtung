@@ -1,3 +1,3 @@
-_**You cannot find yourself by going into the past. You can find yourself by coming into the present.**_
+_**The virtue of justice consists in moderation, as regulated by wisdom.**_
 
-Eckhart Tolle
+Aristotle
