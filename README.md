@@ -1,3 +1,3 @@
-_**Imagination is more important than knowledge...**_
+_**Gratitude is the fairest blossom which springs from the soul.**_
 
-Albert Einstein
+Henry K. Beecher
