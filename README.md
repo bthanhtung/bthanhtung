@@ -1,3 +1,3 @@
-_**All men have a sweetness in their life. That is what helps them go on. It is towards that they turn when they feel too worn out.**_
+_**Imagination is more important than knowledge...**_
 
-Albert Camus
+Albert Einstein
