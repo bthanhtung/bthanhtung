@@ -1,3 +1,3 @@
-_**The virtue of justice consists in moderation, as regulated by wisdom.**_
+_**All men have a sweetness in their life. That is what helps them go on. It is towards that they turn when they feel too worn out.**_
 
-Aristotle
+Albert Camus
