@@ -1,3 +1,3 @@
-_**The best way to pay for a lovely moment is to enjoy it.**_
+_**Problems are not stop signs, they are guidelines.**_
 
-Richard Bach
+Robert Schuller
