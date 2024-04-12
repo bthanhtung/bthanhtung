@@ -1,3 +1,3 @@
-_**Problems are not stop signs, they are guidelines.**_
+_**While we stop to think, we often miss our opportunity.**_
 
-Robert Schuller
+Publilius Syrus
