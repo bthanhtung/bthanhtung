@@ -1,3 +1,3 @@
-_**Gratitude is the fairest blossom which springs from the soul.**_
+_**The best way to pay for a lovely moment is to enjoy it.**_
 
-Henry K. Beecher
+Richard Bach
