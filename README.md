@@ -1,3 +1,3 @@
-_**Never do things others can do and will do, if there are things others cannot do or will not do.**_
+_**How far that little candle throws its beams! So shines a good deed in a naughty world.**_
 
-Amelia Earhart
+William Shakespeare
