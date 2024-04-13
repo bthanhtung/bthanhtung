@@ -1,3 +1,3 @@
-_**Life a culmination of the past, an awareness of the present, an indication of the future beyond knowledge, the quality that gives a touch of divinity to matter.**_
+_**Never do things others can do and will do, if there are things others cannot do or will not do.**_
 
-Charles Lindbergh
+Amelia Earhart
