@@ -1,3 +1,3 @@
-_**While we stop to think, we often miss our opportunity.**_
+_**Life a culmination of the past, an awareness of the present, an indication of the future beyond knowledge, the quality that gives a touch of divinity to matter.**_
 
-Publilius Syrus
+Charles Lindbergh
