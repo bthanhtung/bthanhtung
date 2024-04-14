@@ -1,3 +1,3 @@
-_**The philosophy of the school room in one generation will be the philosophy of government in the next.**_
+_**All this worldly wisdom was once the unamiable heresy of some wise man.**_
 
-Abraham Lincoln
+Henry David Thoreau
