@@ -1,3 +1,3 @@
-_**All this worldly wisdom was once the unamiable heresy of some wise man.**_
+_**A lot of times people look at the negative side of what they feel they can't do. I always look on the positive side of what I can do.**_
 
-Henry David Thoreau
+Chuck Norris
