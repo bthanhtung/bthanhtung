@@ -1,3 +1,3 @@
-_**Love is never lost. If not reciprocated, it will flow back and soften and purify the heart.**_
+_**Football is football and talent is talent. But the mindset of your team makes all the difference.**_
 
-Washington Irving
+Robert Griffin III
