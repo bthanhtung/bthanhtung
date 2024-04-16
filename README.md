@@ -1,3 +1,3 @@
-_**Football is football and talent is talent. But the mindset of your team makes all the difference.**_
+_**Never promise more than you can perform.**_
 
-Robert Griffin III
+Publilius Syrus
