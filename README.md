@@ -1,3 +1,3 @@
-_**Never promise more than you can perform.**_
+_**You and I are all as much continuous with the physical universe as a wave is continuous with the ocean.**_
 
-Publilius Syrus
+Alan Watts
