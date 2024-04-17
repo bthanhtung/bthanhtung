@@ -1,3 +1,3 @@
-_**Knowledge is proud that it knows so much; wisdom is humble that it knows no more.**_
+_**Every adversity, every failure, every heartache carries with it the seed of an equal or greater benefit.**_
 
-William Cowper
+Napoleon Hill
