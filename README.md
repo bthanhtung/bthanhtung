@@ -1,3 +1,3 @@
-_**Success is where preparation and opportunity meet.**_
+_**Knowledge is proud that it knows so much; wisdom is humble that it knows no more.**_
 
-Bobby Unser
+William Cowper
