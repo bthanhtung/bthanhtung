@@ -1,3 +1,3 @@
-_**I am always ready to learn although I do not always like being taught.**_
+_**We are stuck with technology when what we really want is just stuff that works.**_
 
-Winston Churchill
+Douglas Adams
