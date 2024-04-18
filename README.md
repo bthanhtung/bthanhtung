@@ -1,3 +1,3 @@
-_**Every adversity, every failure, every heartache carries with it the seed of an equal or greater benefit.**_
+_**Remember that the most valuable antiques are dear old friends.**_
 
-Napoleon Hill
+H. Jackson Brown Jr.
