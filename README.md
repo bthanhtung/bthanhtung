@@ -1,3 +1,3 @@
-_**Remember that the most valuable antiques are dear old friends.**_
+_**I am always ready to learn although I do not always like being taught.**_
 
-H. Jackson Brown Jr.
+Winston Churchill
