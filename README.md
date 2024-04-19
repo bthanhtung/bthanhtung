@@ -1,3 +1,3 @@
-_**We are stuck with technology when what we really want is just stuff that works.**_
+_**Be kind whenever possible. It is always possible.**_
 
-Douglas Adams
+Dalai Lama
