@@ -1,3 +1,3 @@
-_**Be kind whenever possible. It is always possible.**_
+_**The best thing about the future is that it only comes one day at a time.**_
 
-Dalai Lama
+Abraham Lincoln
