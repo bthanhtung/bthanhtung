@@ -1,3 +1,3 @@
-_**The best thing about the future is that it only comes one day at a time.**_
+_**There is nothing impossible to him who will try.**_
 
-Abraham Lincoln
+Alexander the Great
