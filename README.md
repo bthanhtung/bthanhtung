@@ -1,3 +1,3 @@
-_**There is nothing impossible to him who will try.**_
+_**The higher we are placed, the more humbly we should walk.**_
 
-Alexander the Great
+Cicero
