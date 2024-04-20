@@ -1,3 +1,3 @@
-_**The higher we are placed, the more humbly we should walk.**_
+_**The most certain sign of wisdom is cheerfulness.**_
 
-Cicero
+Michel de Montaigne
