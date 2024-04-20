@@ -1,3 +1,3 @@
-_**The most certain sign of wisdom is cheerfulness.**_
+_**Love is the attempt to form a friendship inspired by beauty.**_
 
-Michel de Montaigne
+Cicero
