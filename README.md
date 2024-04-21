@@ -1,3 +1,3 @@
-_**When we quit thinking primarily about ourselves and our own self-preservation, we undergo a truly heroic transformation of consciousness.**_
+_**True wisdom is less presuming than folly. The wise man doubteth often, and changeth his mind; the fool is obstinate, and doubteth not; he knoweth all things but his own ignorance.**_
 
-Joseph Campbell
+Akhenaten
