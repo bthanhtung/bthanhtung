@@ -1,3 +1,3 @@
-_**Don't believe what your eyes are telling you. All they show is limitation. Look with your understanding, find out what you already know, and you'll see the way to fly.**_
+_**Ideals are an imaginative understanding of that which is desirable in that which is possible.**_
 
-Richard Bach
+Walter Lippmann
