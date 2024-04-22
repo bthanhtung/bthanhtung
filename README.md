@@ -1,3 +1,3 @@
-_**Ideals are an imaginative understanding of that which is desirable in that which is possible.**_
+_**There is nothing permanent except change.**_
 
-Walter Lippmann
+Heraclitus
