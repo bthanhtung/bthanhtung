@@ -1,3 +1,3 @@
-_**A rolling stone gathers no moss.**_
+_**The greatest mistake you can make in life is to be continually fearing you will make one.**_
 
-Publilius Syrus
+Elbert Hubbard
