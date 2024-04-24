@@ -1,3 +1,3 @@
-_**The greatest mistake you can make in life is to be continually fearing you will make one.**_
+_**Wisdom is the power to put our time and our knowledge to the proper use.**_
 
-Elbert Hubbard
+Thomas J. Watson
