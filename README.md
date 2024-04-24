@@ -1,3 +1,3 @@
-_**It may happen sometimes that a long debate becomes the cause of a longer friendship. Commonly, those who dispute with one another at last agree.**_
+_**Peace cannot be kept by force. It can only be achieved by understanding.**_
 
-Elbert Hubbard
+Albert Einstein
