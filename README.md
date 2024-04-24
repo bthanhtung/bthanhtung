@@ -1,3 +1,3 @@
-_**Wisdom is the power to put our time and our knowledge to the proper use.**_
+_**It may happen sometimes that a long debate becomes the cause of a longer friendship. Commonly, those who dispute with one another at last agree.**_
 
-Thomas J. Watson
+Elbert Hubbard
