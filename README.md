@@ -1,3 +1,3 @@
-_**Everything that happens as it should, and if you observe carefully, you will find this to be so.**_
+_**If you have the guts to keep making mistakes, your wisdom and intelligence leap forward with huge momentum.**_
 
-Marcus Aurelius
+Holly Near
