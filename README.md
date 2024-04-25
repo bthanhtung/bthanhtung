@@ -1,3 +1,3 @@
-_**Today you are you! That is truer than true! There is no one alive who is you-er than you!**_
+_**Everything that happens as it should, and if you observe carefully, you will find this to be so.**_
 
-Dr. Seuss
+Marcus Aurelius
