@@ -1,3 +1,3 @@
-_**Peace cannot be kept by force. It can only be achieved by understanding.**_
+_**Today you are you! That is truer than true! There is no one alive who is you-er than you!**_
 
-Albert Einstein
+Dr. Seuss
