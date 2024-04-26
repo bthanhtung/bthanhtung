@@ -1,3 +1,3 @@
-_**Happiness is as a butterfly which, when pursued, is always beyond our grasp, but which if you will sit down quietly, may alight upon you.**_
+_**Happiness is not in the mere possession of money; it lies in the joy of achievement, in the thrill of creative effort.**_
 
-Nathaniel Hawthorne
+Franklin D. Roosevelt
