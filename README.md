@@ -1,3 +1,3 @@
-_**If you have the guts to keep making mistakes, your wisdom and intelligence leap forward with huge momentum.**_
+_**We are not animals. We are not a product of what has happened to us in our past. We have the power of choice.**_
 
-Holly Near
+Stephen Covey
