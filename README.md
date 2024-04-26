@@ -1,3 +1,3 @@
-_**We are not animals. We are not a product of what has happened to us in our past. We have the power of choice.**_
+_**Happiness is as a butterfly which, when pursued, is always beyond our grasp, but which if you will sit down quietly, may alight upon you.**_
 
-Stephen Covey
+Nathaniel Hawthorne
