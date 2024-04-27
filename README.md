@@ -1,3 +1,3 @@
-_**All truths are easy to understand once they are discovered; the point is to discover them.**_
+_**He who controls others may be powerful, but he who has mastered himself is mightier still.**_
 
-Galileo Galilei
+Laozi
