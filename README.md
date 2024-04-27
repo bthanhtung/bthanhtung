@@ -1,3 +1,3 @@
-_**Happiness is not in the mere possession of money; it lies in the joy of achievement, in the thrill of creative effort.**_
+_**All truths are easy to understand once they are discovered; the point is to discover them.**_
 
-Franklin D. Roosevelt
+Galileo Galilei
