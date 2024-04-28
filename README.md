@@ -1,3 +1,3 @@
-_**The only limit to your impact is your imagination and commitment.**_
+_**I can't change the direction of the wind, but I can adjust my sails to always reach my destination.**_
 
-Tony Robbins
+Jimmy Dean
