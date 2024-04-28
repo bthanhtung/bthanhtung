@@ -1,3 +1,3 @@
-_**I can't change the direction of the wind, but I can adjust my sails to always reach my destination.**_
+_**When you have got an elephant by the hind legs and he is trying to run away, it's best to let him run.**_
 
-Jimmy Dean
+Abraham Lincoln
