@@ -1,3 +1,3 @@
-_**Experience keeps a dear school, but fools will learn in no other.**_
+_**Hatred is never appeased by hatred in this world. By non-hatred alone is hatred appeased. This is a law eternal.**_
 
-Benjamin Franklin
+The Buddha
