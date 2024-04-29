@@ -1,3 +1,3 @@
-_**Hatred is never appeased by hatred in this world. By non-hatred alone is hatred appeased. This is a law eternal.**_
+_**Reviewing what you have learned and learning anew, you are fit to be a teacher.**_
 
-The Buddha
+Confucius
