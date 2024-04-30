@@ -1,3 +1,3 @@
-_**You cannot have what you do not want.**_
+_**Good people are good because they've come to wisdom through failure. We get very little wisdom from success, you know.**_
 
-John Acosta
+William Saroyan
