@@ -1,3 +1,3 @@
-_**Reviewing what you have learned and learning anew, you are fit to be a teacher.**_
+_**A real friend is one who walks in when the rest of the world walks out.**_
 
-Confucius
+Walter Winchell
