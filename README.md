@@ -1,3 +1,3 @@
-_**A real friend is one who walks in when the rest of the world walks out.**_
+_**You cannot have what you do not want.**_
 
-Walter Winchell
+John Acosta
