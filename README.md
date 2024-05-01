@@ -1,3 +1,3 @@
-_**Whenever something negative happens to you, there is a deep lesson concealed within it.**_
+_**By accepting yourself and being fully what you are, your presence can make others happy.**_
 
-Eckhart Tolle
+Jane Roberts
