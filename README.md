@@ -1,3 +1,3 @@
-_**Good people are good because they've come to wisdom through failure. We get very little wisdom from success, you know.**_
+_**Whenever something negative happens to you, there is a deep lesson concealed within it.**_
 
-William Saroyan
+Eckhart Tolle
