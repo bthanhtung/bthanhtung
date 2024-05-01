@@ -1,3 +1,3 @@
-_**By accepting yourself and being fully what you are, your presence can make others happy.**_
+_**An invasion of armies can be resisted, but not an idea whose time has come.**_
 
-Jane Roberts
+Victor Hugo
