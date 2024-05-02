@@ -1,3 +1,3 @@
-_**A lot of times people look at the negative side of what they feel they can't do. I always look on the positive side of what I can do.**_
+_**Stay committed to your decisions, but stay flexible in your approach.**_
 
-Chuck Norris
+Tony Robbins
