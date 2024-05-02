@@ -1,3 +1,3 @@
-_**An invasion of armies can be resisted, but not an idea whose time has come.**_
+_**A lot of times people look at the negative side of what they feel they can't do. I always look on the positive side of what I can do.**_
 
-Victor Hugo
+Chuck Norris
