@@ -1,3 +1,3 @@
-_**Stay committed to your decisions, but stay flexible in your approach.**_
+_**The final proof of greatness lies in being able to endure criticism without resentment.**_
 
-Tony Robbins
+Elbert Hubbard
