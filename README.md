@@ -1,3 +1,3 @@
-_**Wisdom is nothing but a preparation of the soul, a capacity, a secret art of thinking, feeling and breathing thoughts of unity at every moment of life.**_
+_**Remember always that you not only have the right to be an individual, you have an obligation to be one.**_
 
-Hermann Hesse
+Eleanor Roosevelt
