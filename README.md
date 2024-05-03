@@ -1,3 +1,3 @@
-_**Remember always that you not only have the right to be an individual, you have an obligation to be one.**_
+_**Life shrinks or expands in proportion to one's courage.**_
 
-Eleanor Roosevelt
+Anaïs Nin
