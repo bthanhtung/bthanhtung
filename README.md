@@ -1,3 +1,3 @@
-_**The least of things with a meaning is worth more in life than the greatest of things without it.**_
+_**He who knows that enough is enough will always have enough.**_
 
-Carl Jung
+Laozi
