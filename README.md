@@ -1,3 +1,3 @@
-_**Life shrinks or expands in proportion to one's courage.**_
+_**The least of things with a meaning is worth more in life than the greatest of things without it.**_
 
-Anaïs Nin
+Carl Jung
