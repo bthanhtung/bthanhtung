@@ -1,3 +1,3 @@
-_**He who knows that enough is enough will always have enough.**_
+_**One of the advantages of being disorderly is that one is constantly making exciting discoveries.**_
 
-Laozi
+A. A. Milne
