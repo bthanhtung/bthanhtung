@@ -1,3 +1,3 @@
-_**Life is so constructed that an event does not, cannot, will not, match the expectation.**_
+_**I seek constantly to improve my manners and graces, for they are the sugar to which all are attracted.**_
 
-Charlotte Brontë
+Og Mandino
