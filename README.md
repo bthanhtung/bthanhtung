@@ -1,3 +1,3 @@
-_**One of the advantages of being disorderly is that one is constantly making exciting discoveries.**_
+_**Life is so constructed that an event does not, cannot, will not, match the expectation.**_
 
-A. A. Milne
+Charlotte Brontë
