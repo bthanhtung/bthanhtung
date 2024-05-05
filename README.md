@@ -1,3 +1,3 @@
-_**I seek constantly to improve my manners and graces, for they are the sugar to which all are attracted.**_
+_**As we express our gratitude, we must never forget that the highest appreciation is not to utter words, but to live by them.**_
 
-Og Mandino
+John F. Kennedy
