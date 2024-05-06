@@ -1,3 +1,3 @@
-_**I allow my intuition to lead my path.**_
+_**What we see depends mainly on what we look for.**_
 
-Manuel Puig
+John Lubbock
