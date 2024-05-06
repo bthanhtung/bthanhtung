@@ -1,3 +1,3 @@
-_**As we express our gratitude, we must never forget that the highest appreciation is not to utter words, but to live by them.**_
+_**I allow my intuition to lead my path.**_
 
-John F. Kennedy
+Manuel Puig
