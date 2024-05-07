@@ -1,3 +1,3 @@
-_**Start where you are. Use what you have. Do what you can.**_
+_**You do not become good by trying to be good, but by finding the goodness that is already within you.**_
 
-Arthur Ashe
+Eckhart Tolle
