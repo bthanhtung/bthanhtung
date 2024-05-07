@@ -1,3 +1,3 @@
-_**You do not become good by trying to be good, but by finding the goodness that is already within you.**_
+_**Once you choose hope, anything's possible.**_
 
-Eckhart Tolle
+Christopher Reeve
