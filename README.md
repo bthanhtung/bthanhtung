@@ -1,3 +1,3 @@
-_**Sometimes our fate resembles a fruit tree in winter. Who would think that those branches would turn green again and blossom, but we hope it, we know it.**_
+_**Start where you are. Use what you have. Do what you can.**_
 
-Johann Wolfgang von Goethe
+Arthur Ashe
