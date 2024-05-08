@@ -1,3 +1,3 @@
-_**The higher we are placed, the more humbly we should walk.**_
+_**The secret of success is constancy to purpose.**_
 
-Cicero
+Benjamin Disraeli
