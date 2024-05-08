@@ -1,3 +1,3 @@
-_**Once you choose hope, anything's possible.**_
+_**The higher we are placed, the more humbly we should walk.**_
 
-Christopher Reeve
+Cicero
