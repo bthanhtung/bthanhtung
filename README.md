@@ -1,3 +1,3 @@
-_**Genius unrefined resembles a flash of lightning, but wisdom is like the sun.**_
+_**Begin at once to live and count each separate day as a separate life.**_
 
-Franz Grillparzer
+Seneca the Younger
