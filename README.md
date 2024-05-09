@@ -1,3 +1,3 @@
-_**Simply put, you believer that things or people make you unhappy, but this is not accurate. You make yourself unhappy.**_
+_**Genius unrefined resembles a flash of lightning, but wisdom is like the sun.**_
 
-Wayne Dyer
+Franz Grillparzer
