@@ -1,3 +1,3 @@
-_**All things must come to the soul from its roots, from where it is planted.**_
+_**Simply put, you believer that things or people make you unhappy, but this is not accurate. You make yourself unhappy.**_
 
-Teresa of Ávila
+Wayne Dyer
