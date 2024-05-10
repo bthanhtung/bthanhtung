@@ -1,3 +1,3 @@
-_**Decision is a risk rooted in the courage of being free.**_
+_**Golf is a game in which one endeavors to control a ball with implements ill adapted for the purpose.**_
 
-Paul Tillich
+Woodrow Wilson
