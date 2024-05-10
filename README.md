@@ -1,3 +1,3 @@
-_**Begin at once to live and count each separate day as a separate life.**_
+_**Decision is a risk rooted in the courage of being free.**_
 
-Seneca the Younger
+Paul Tillich
