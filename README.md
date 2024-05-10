@@ -1,3 +1,3 @@
-_**Golf is a game in which one endeavors to control a ball with implements ill adapted for the purpose.**_
+_**The best argument against democracy is a five-minute conversation with the average voter.**_
 
-Woodrow Wilson
+Winston Churchill
