@@ -1,3 +1,3 @@
-_**The best argument against democracy is a five-minute conversation with the average voter.**_
+_**Time stays long enough for anyone who will use it.**_
 
-Winston Churchill
+Leonardo da Vinci
