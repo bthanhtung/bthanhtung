@@ -1,3 +1,3 @@
-_**Life is the flower for which love is the honey.**_
+_**A true friend is one who overlooks your failures and tolerates your success!**_
 
-Victor Hugo
+Doug Larson
