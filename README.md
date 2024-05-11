@@ -1,3 +1,3 @@
-_**Time stays long enough for anyone who will use it.**_
+_**Life is the flower for which love is the honey.**_
 
-Leonardo da Vinci
+Victor Hugo
