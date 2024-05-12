@@ -1,3 +1,3 @@
-_**There are three classes of men; lovers of wisdom, lovers of honor, and lovers of gain.**_
+_**Sports do not build character. They reveal it.**_
 
-Plato
+Heywood Broun
