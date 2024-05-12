@@ -1,3 +1,3 @@
-_**Sports do not build character. They reveal it.**_
+_**The beginning is always today.**_
 
-Heywood Broun
+Mary Wollstonecraft
