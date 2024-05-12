@@ -1,3 +1,3 @@
-_**A true friend is one who overlooks your failures and tolerates your success!**_
+_**There are three classes of men; lovers of wisdom, lovers of honor, and lovers of gain.**_
 
-Doug Larson
+Plato
