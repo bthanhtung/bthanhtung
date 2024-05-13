@@ -1,3 +1,3 @@
-_**Science is organized knowledge. Wisdom is organized life.**_
+_**The only real mistake is the one from which we learn nothing.**_
 
-Immanuel Kant
+John Powell
