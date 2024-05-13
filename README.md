@@ -1,3 +1,3 @@
-_**The only real mistake is the one from which we learn nothing.**_
+_**Courage is not the absence of fear, but simply moving on with dignity despite that fear.**_
 
-John Powell
+Pat Riley
