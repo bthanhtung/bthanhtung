@@ -1,3 +1,3 @@
-_**The beginning is always today.**_
+_**Science is organized knowledge. Wisdom is organized life.**_
 
-Mary Wollstonecraft
+Immanuel Kant
