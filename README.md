@@ -1,3 +1,3 @@
-_**Wisdom comes alone through suffering.**_
+_**Nobody made a greater mistake than he who did nothing because he could do only a little.**_
 
-Aeschylus
+Edmund Burke
