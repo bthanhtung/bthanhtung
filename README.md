@@ -1,3 +1,3 @@
-_**Nobody made a greater mistake than he who did nothing because he could do only a little.**_
+_**Your talent is God's gift to you. What you do with it is your gift back to God.**_
 
-Edmund Burke
+Leo Buscaglia
