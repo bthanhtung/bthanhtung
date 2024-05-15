@@ -1,3 +1,3 @@
-_**Cherish your visions and your dreams as they are the children of your soul; the blueprints of your ultimate achievements.**_
+_**I have not failed. I've just found 10,000 ways that won't work.**_
 
-Napoleon Hill
+Thomas Edison
