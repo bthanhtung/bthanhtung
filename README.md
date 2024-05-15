@@ -1,3 +1,3 @@
-_**Your talent is God's gift to you. What you do with it is your gift back to God.**_
+_**Absence makes the heart grow fonder.**_
 
-Leo Buscaglia
+Thomas Haynes Bayly
