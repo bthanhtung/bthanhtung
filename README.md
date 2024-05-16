@@ -1,3 +1,3 @@
-_**The greatest discovery of our generation is that human beings can alter their lives by altering their attitudes of mind. As you think, so shall you be.**_
+_**Friendship improves happiness and abates misery, by the doubling of our joy and the dividing of our grief.**_
 
-William James
+Cicero
