@@ -1,3 +1,3 @@
-_**By living deeply in the present moment we can understand the past better and we can prepare for a better future.**_
+_**Nobody will believe in you unless you believe in yourself.**_
 
-Thích Nhất Hạnh
+Liberace
