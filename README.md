@@ -1,3 +1,3 @@
-_**Friendship improves happiness and abates misery, by the doubling of our joy and the dividing of our grief.**_
+_**By living deeply in the present moment we can understand the past better and we can prepare for a better future.**_
 
-Cicero
+Thích Nhất Hạnh
