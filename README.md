@@ -1,3 +1,3 @@
-_**I endeavor to be wise when I cannot be merry, easy when I cannot be glad, content with what cannot be mended and patient when there is no redress.**_
+_**No one can make you feel inferior without your consent.**_
 
-Elizabeth Montagu
+Eleanor Roosevelt
