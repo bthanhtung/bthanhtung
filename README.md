@@ -1,3 +1,3 @@
-_**Important principles may, and must, be inflexible.**_
+_**No man is free who is not master of himself.**_
 
-Abraham Lincoln
+Epictetus
