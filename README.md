@@ -1,3 +1,3 @@
-_**No man is free who is not master of himself.**_
+_**Friendship is Love without his wings!**_
 
-Epictetus
+Lord Byron
