@@ -1,3 +1,3 @@
-_**We can do no great things, only small things with great love.**_
+_**When I let go of what I am, I become what I might be.**_
 
-Mother Teresa
+Laozi
