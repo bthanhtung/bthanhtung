@@ -1,3 +1,3 @@
-_**Friendship is Love without his wings!**_
+_**We can do no great things, only small things with great love.**_
 
-Lord Byron
+Mother Teresa
