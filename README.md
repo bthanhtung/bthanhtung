@@ -1,3 +1,3 @@
-_**When I let go of what I am, I become what I might be.**_
+_**I am always doing that which I cannot do, in order that I may learn how to do it.**_
 
-Laozi
+Pablo Picasso
