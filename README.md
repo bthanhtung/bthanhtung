@@ -1,3 +1,3 @@
-_**Nothing in life is to be feared. It is only to be understood.**_
+_**Dost thou love life? Then do not squander time, for that is the stuff life is made of.**_
 
-Marie Curie
+Benjamin Franklin
