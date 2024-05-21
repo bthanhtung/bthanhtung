@@ -1,3 +1,3 @@
-_**Today you are you! That is truer than true! There is no one alive who is you-er than you!**_
+_**No yesterdays are ever wasted for those who give themselves to today.**_
 
-Dr. Seuss
+Brendan Behan
