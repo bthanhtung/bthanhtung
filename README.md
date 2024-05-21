@@ -1,3 +1,3 @@
-_**Dost thou love life? Then do not squander time, for that is the stuff life is made of.**_
+_**Today you are you! That is truer than true! There is no one alive who is you-er than you!**_
 
-Benjamin Franklin
+Dr. Seuss
