@@ -1,3 +1,3 @@
-_**No yesterdays are ever wasted for those who give themselves to today.**_
+_**I'd rather regret the things I've done than regret the things I haven't done.**_
 
-Brendan Behan
+Lucille Ball
