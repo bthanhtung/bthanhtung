@@ -1,3 +1,3 @@
-_**Our doubts are traitors and make us lose the good we often might win, by fearing to attempt.**_
+_**All the world is a stage, And all the men and women merely players. They have their exits and entrances; Each man in his time plays many parts.**_
 
-Jane Addams
+William Shakespeare
