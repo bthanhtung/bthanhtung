@@ -1,3 +1,3 @@
-_**I'd rather regret the things I've done than regret the things I haven't done.**_
+_**Our doubts are traitors and make us lose the good we often might win, by fearing to attempt.**_
 
-Lucille Ball
+Jane Addams
