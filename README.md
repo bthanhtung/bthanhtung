@@ -1,3 +1,3 @@
-_**Let there be no purpose in friendship save the deepening of the spirit.**_
+_**There is only one corner of the universe you can be certain of improving, and that's your own self.**_
 
-Kahlil Gibran
+Aldous Huxley
