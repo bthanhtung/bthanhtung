@@ -1,3 +1,3 @@
-_**Those who will play with cats must expect to be scratched.**_
+_**The hours of folly are measured by the clock; but of wisdom, no clock can measure.**_
 
-Miguel de Cervantes
+William Blake
