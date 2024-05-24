@@ -1,3 +1,3 @@
-_**The hours of folly are measured by the clock; but of wisdom, no clock can measure.**_
+_**Meditation is the dissolution of thoughts in eternal awareness or Pure consciousness without objectification, knowing without thinking, merging finitude in infinity.**_
 
-William Blake
+Voltaire
