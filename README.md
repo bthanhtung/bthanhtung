@@ -1,3 +1,3 @@
-_**Friendship is held to be the severest test of character. It is easy, we think, to be loyal to a family and clan, whose blood is in your own veins.**_
+_**If you live to be a hundred, I want to live to be a hundred minus one day, so I never have to live without you.**_
 
-Charles Eastman
+A. A. Milne
