@@ -1,3 +1,3 @@
-_**We love life, not because we are used to living but because we are used to loving.**_
+_**Minds, like bodies, will often fall into a pimpled, ill-conditioned state from mere excess of comfort.**_
 
-Friedrich Nietzsche
+Charles Dickens
