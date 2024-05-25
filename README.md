@@ -1,3 +1,3 @@
-_**Action is the foundational key to all success.**_
+_**We love life, not because we are used to living but because we are used to loving.**_
 
-Pablo Picasso
+Friedrich Nietzsche
