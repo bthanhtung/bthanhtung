@@ -1,3 +1,3 @@
-_**Minds, like bodies, will often fall into a pimpled, ill-conditioned state from mere excess of comfort.**_
+_**We do not quit playing because we grow old, we grow old because we quit playing.**_
 
-Charles Dickens
+Oliver Wendell Holmes Jr.
