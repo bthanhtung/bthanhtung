@@ -1,3 +1,3 @@
-_**We do not quit playing because we grow old, we grow old because we quit playing.**_
+_**No person is your friend who demands your silence or denies your right to grow.**_
 
-Oliver Wendell Holmes Jr.
+Alice Walker
