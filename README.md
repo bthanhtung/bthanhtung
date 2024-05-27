@@ -1,3 +1,3 @@
-_**A subtle thought that is in error may yet give rise to fruitful inquiry that can establish truths of great value.**_
+_**To choose what is difficult all one's days, as if it were easy, that is faith.**_
 
-Isaac Asimov
+W. H. Auden
