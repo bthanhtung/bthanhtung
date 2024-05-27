@@ -1,3 +1,3 @@
-_**To choose what is difficult all one's days, as if it were easy, that is faith.**_
+_**Life is a gift, and it offers us the privilege, opportunity, and responsibility to give something back by becoming more**_
 
-W. H. Auden
+Tony Robbins
