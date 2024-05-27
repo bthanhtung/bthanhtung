@@ -1,3 +1,3 @@
-_**I can, therefore I am.**_
+_**A subtle thought that is in error may yet give rise to fruitful inquiry that can establish truths of great value.**_
 
-Simone Weil
+Isaac Asimov
