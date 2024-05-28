@@ -1,3 +1,3 @@
-_**Gratitude is not only the greatest of virtues, but the parent of all the others.**_
+_**You can't put a limit on anything. The more you dream, the farther you get.**_
 
-Cicero
+Michael Phelps
