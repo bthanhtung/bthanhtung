@@ -1,3 +1,3 @@
-_**You can only grow if you're willing to feel awkward and uncomfortable when you try something new.**_
+_**Every man takes the limits of his own field of vision for the limits of the world.**_
 
-Brian Tracy
+Arthur Schopenhauer
