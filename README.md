@@ -1,3 +1,3 @@
-_**Every man takes the limits of his own field of vision for the limits of the world.**_
+_**All this modern technology just makes people try to do everything at once.**_
 
-Arthur Schopenhauer
+Bill Watterson
