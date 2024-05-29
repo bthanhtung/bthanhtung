@@ -1,3 +1,3 @@
-_**You can't put a limit on anything. The more you dream, the farther you get.**_
+_**You can only grow if you're willing to feel awkward and uncomfortable when you try something new.**_
 
-Michael Phelps
+Brian Tracy
