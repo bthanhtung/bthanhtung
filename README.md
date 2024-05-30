@@ -1,3 +1,3 @@
-_**Only through our connectedness to others can we really know and enhance the self. And only through working on the self can we begin to enhance our connectedness to others.**_
+_**True silence is the rest of the mind; it is to the spirit what sleep is to the body, nourishment and refreshment.**_
 
-Harriet Lerner
+William Penn
