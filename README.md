@@ -1,3 +1,3 @@
-_**True silence is the rest of the mind; it is to the spirit what sleep is to the body, nourishment and refreshment.**_
+_**I violated the Noah rule: Predicting rain doesn't count; building arks does.**_
 
-William Penn
+Warren Buffett
