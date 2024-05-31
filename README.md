@@ -1,3 +1,3 @@
-_**Imagination disposes of everything; it creates beauty, justice, and happiness, which are everything in this world.**_
+_**Constant kindness can accomplish much. As the sun makes ice melt, kindness causes misunderstanding, mistrust, and hostility to evaporate.**_
 
-Blaise Pascal
+Albert Schweitzer
