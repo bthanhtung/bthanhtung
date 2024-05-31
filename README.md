@@ -1,3 +1,3 @@
-_**I violated the Noah rule: Predicting rain doesn't count; building arks does.**_
+_**Imagination disposes of everything; it creates beauty, justice, and happiness, which are everything in this world.**_
 
-Warren Buffett
+Blaise Pascal
