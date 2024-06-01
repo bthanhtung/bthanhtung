@@ -1,3 +1,3 @@
-_**When one door of happiness closes, another opens; but often we look so long at the closed door that we do not see the one which has been opened for us.**_
+_**We don't receive wisdom; we must discover it for ourselves after a journey that no one can take for us or spare us.**_
 
-Helen Keller
+Marcel Proust
