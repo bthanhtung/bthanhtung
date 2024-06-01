@@ -1,3 +1,3 @@
-_**Act as if what you do makes a difference. It does.**_
+_**What you do today can improve all your tomorrows.**_
 
-William James
+Ralph Marston
