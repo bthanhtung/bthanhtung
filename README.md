@@ -1,3 +1,3 @@
-_**What you do today can improve all your tomorrows.**_
+_**An invasion of armies can be resisted, but not an idea whose time has come.**_
 
-Ralph Marston
+Victor Hugo
