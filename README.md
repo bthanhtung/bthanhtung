@@ -1,3 +1,3 @@
-_**Adversity causes some men to break, others to break records.**_
+_**Happiness is as a butterfly which, when pursued, is always beyond our grasp, but which if you will sit down quietly, may alight upon you.**_
 
-William Arthur Ward
+Nathaniel Hawthorne
