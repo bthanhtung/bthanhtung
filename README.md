@@ -1,3 +1,3 @@
-_**Happiness is as a butterfly which, when pursued, is always beyond our grasp, but which if you will sit down quietly, may alight upon you.**_
+_**The world is round so that friendship may encircle it.**_
 
-Nathaniel Hawthorne
+Pierre Teilhard de Chardin
