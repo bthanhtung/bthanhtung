@@ -1,3 +1,3 @@
-_**The world is round so that friendship may encircle it.**_
+_**There are three faithful friends - an old wife, an old dog, and ready money.**_
 
-Pierre Teilhard de Chardin
+Benjamin Franklin
