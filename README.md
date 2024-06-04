@@ -1,3 +1,3 @@
-_**There are three faithful friends - an old wife, an old dog, and ready money.**_
+_**The great myth of our times is that technology is communication.**_
 
-Benjamin Franklin
+Libby Larsen
