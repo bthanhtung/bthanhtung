@@ -1,3 +1,3 @@
-_**The great myth of our times is that technology is communication.**_
+_**Fame usually comes to those who are thinking about something else.**_
 
-Libby Larsen
+Oliver Wendell Holmes Jr.
