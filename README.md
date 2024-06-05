@@ -1,3 +1,3 @@
-_**Fame usually comes to those who are thinking about something else.**_
+_**Know, first, who you are, and then adorn yourself accordingly.**_
 
-Oliver Wendell Holmes Jr.
+Epictetus
