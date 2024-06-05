@@ -1,3 +1,3 @@
-_**The eye sees only what the mind is prepared to comprehend.**_
+_**Step with care and great tact and remember that Life's a Great Balancing Act.**_
 
-Henri Bergson
+Dr. Seuss
