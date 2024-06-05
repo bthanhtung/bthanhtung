@@ -1,3 +1,3 @@
-_**Know, first, who you are, and then adorn yourself accordingly.**_
+_**The eye sees only what the mind is prepared to comprehend.**_
 
-Epictetus
+Henri Bergson
