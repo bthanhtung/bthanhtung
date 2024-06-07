@@ -1,3 +1,3 @@
-_**Gratitude is riches. Complaint is poverty.**_
+_**To choose what is difficult all one's days, as if it were easy, that is faith.**_
 
-Doris Day
+W. H. Auden
