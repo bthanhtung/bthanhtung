@@ -1,3 +1,3 @@
-_**Kindness is the golden chain by which society is bound together.**_
+_**Gratitude is riches. Complaint is poverty.**_
 
-Johann Wolfgang von Goethe
+Doris Day
