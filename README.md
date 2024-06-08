@@ -1,3 +1,3 @@
-_**It is impossible to love and to be wise.**_
+_**We know what we are but know not what we may be.**_
 
-Francis Bacon
+William Shakespeare
