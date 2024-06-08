@@ -1,3 +1,3 @@
-_**We know what we are but know not what we may be.**_
+_**They say that time changes things, but you actually have to change them yourself.**_
 
-William Shakespeare
+Andy Warhol
