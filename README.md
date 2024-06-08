@@ -1,3 +1,3 @@
-_**To choose what is difficult all one's days, as if it were easy, that is faith.**_
+_**It is impossible to love and to be wise.**_
 
-W. H. Auden
+Francis Bacon
