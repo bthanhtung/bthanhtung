@@ -1,3 +1,3 @@
-_**Don't talk about what you have done or what you are going to do.**_
+_**In the business world, everyone is paid in two coins: cash and experience. Take the experience first; the cash will come later.**_
 
-Thomas Jefferson
+Harold Geneen
