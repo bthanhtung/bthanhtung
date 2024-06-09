@@ -1,3 +1,3 @@
-_**They say that time changes things, but you actually have to change them yourself.**_
+_**Don't talk about what you have done or what you are going to do.**_
 
-Andy Warhol
+Thomas Jefferson
