@@ -1,3 +1,3 @@
-_**In the business world, everyone is paid in two coins: cash and experience. Take the experience first; the cash will come later.**_
+_**I hope our wisdom will grow with our power, and teach us, that the less we use our power the greater it will be.**_
 
-Harold Geneen
+Thomas Jefferson
