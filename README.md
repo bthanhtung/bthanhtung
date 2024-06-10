@@ -1,3 +1,3 @@
-_**Once you choose hope, anything's possible.**_
+_**He who wishes to secure the good of others, has already secured his own.**_
 
-Christopher Reeve
+Confucius
