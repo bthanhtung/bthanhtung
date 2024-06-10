@@ -1,3 +1,3 @@
-_**It's important to know that words don't move mountains. Work, exacting work moves mountains.**_
+_**Once you choose hope, anything's possible.**_
 
-Danilo Dolci
+Christopher Reeve
