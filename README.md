@@ -1,3 +1,3 @@
-_**I hope our wisdom will grow with our power, and teach us, that the less we use our power the greater it will be.**_
+_**It's important to know that words don't move mountains. Work, exacting work moves mountains.**_
 
-Thomas Jefferson
+Danilo Dolci
