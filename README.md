@@ -1,3 +1,3 @@
-_**If you want a thing done well, do it yourself.**_
+_**Happiness is the reward we get for living to the highest right we know.**_
 
-Napoleon
+Richard Bach
