@@ -1,3 +1,3 @@
-_**If you have made mistakes, there is always another chance for you. You may have a fresh start any moment you choose.**_
+_**The final proof of greatness lies in being able to endure criticism without resentment.**_
 
-Mary Pickford
+Elbert Hubbard
