@@ -1,3 +1,3 @@
-_**The final proof of greatness lies in being able to endure criticism without resentment.**_
+_**The less effort, the faster and more powerful you will be.**_
 
-Elbert Hubbard
+Bruce Lee
