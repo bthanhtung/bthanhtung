@@ -1,3 +1,3 @@
-_**Stay committed to your decisions, but stay flexible in your approach.**_
+_**No valid plans for the future can be made by those who have no capacity for living now.**_
 
-Tony Robbins
+Alan Watts
