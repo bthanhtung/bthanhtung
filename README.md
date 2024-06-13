@@ -1,3 +1,3 @@
-_**The less effort, the faster and more powerful you will be.**_
+_**The key to wisdom is this - constant and frequent questioning, for by doubting we are led to question and by questioning we arrive at the truth.**_
 
-Bruce Lee
+Peter Abelard
