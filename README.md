@@ -1,3 +1,3 @@
-_**Error is discipline through which we advance.**_
+_**Every time you smile at someone, it is an action of love, a gift to that person, a beautiful thing.**_
 
-William Ellery Channing
+Mother Teresa
