@@ -1,3 +1,3 @@
-_**You are that vast thing that you see far, far off with great telescopes.**_
+_**Error is discipline through which we advance.**_
 
-Alan Watts
+William Ellery Channing
