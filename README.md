@@ -1,3 +1,3 @@
-_**No valid plans for the future can be made by those who have no capacity for living now.**_
+_**You are that vast thing that you see far, far off with great telescopes.**_
 
 Alan Watts
