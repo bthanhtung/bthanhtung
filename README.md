@@ -1,3 +1,3 @@
-_**Through perseverance many people win success out of what seemed destined to be certain failure.**_
+_**Always keep an open mind and a compassionate heart.**_
 
-Benjamin Disraeli
+Phil Jackson
