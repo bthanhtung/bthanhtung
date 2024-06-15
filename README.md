@@ -1,3 +1,3 @@
-_**Every time you smile at someone, it is an action of love, a gift to that person, a beautiful thing.**_
+_**No valid plans for the future can be made by those who have no capacity for living now.**_
 
-Mother Teresa
+Alan Watts
