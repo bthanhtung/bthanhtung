@@ -1,3 +1,3 @@
-_**No valid plans for the future can be made by those who have no capacity for living now.**_
+_**Through perseverance many people win success out of what seemed destined to be certain failure.**_
 
-Alan Watts
+Benjamin Disraeli
