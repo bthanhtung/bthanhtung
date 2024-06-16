@@ -1,3 +1,3 @@
-_**Always keep an open mind and a compassionate heart.**_
+_**They say that time changes things, but you actually have to change them yourself.**_
 
-Phil Jackson
+Andy Warhol
