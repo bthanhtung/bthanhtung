@@ -1,3 +1,3 @@
-_**A good hockey player plays where the puck is. A great hockey player plays where the puck is going to be.**_
+_**It is important to our friends to believe that we are unreservedly frank with them, and important to friendship that we are not.**_
 
-Wayne Gretzky
+Mignon McLaughlin
