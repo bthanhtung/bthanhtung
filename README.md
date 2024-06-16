@@ -1,3 +1,3 @@
-_**They say that time changes things, but you actually have to change them yourself.**_
+_**A good hockey player plays where the puck is. A great hockey player plays where the puck is going to be.**_
 
-Andy Warhol
+Wayne Gretzky
