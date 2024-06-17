@@ -1,3 +1,3 @@
-_**Friendship brings in a lot of honesty and trust into any relationship, especially a marriage.**_
+_**Knowledge rests not upon truth alone, but upon error also.**_
 
-Farhan Akhtar
+Carl Jung
