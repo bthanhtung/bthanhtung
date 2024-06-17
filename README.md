@@ -1,3 +1,3 @@
-_**Knowledge rests not upon truth alone, but upon error also.**_
+_**Argue for your limitations, and sure enough they're yours.**_
 
-Carl Jung
+Richard Bach
