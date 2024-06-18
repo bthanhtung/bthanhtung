@@ -1,3 +1,3 @@
-_**You were not born a winner, and you were not born a loser. You are what you make yourself be.**_
+_**Even if you're on the right track, you'll get run over if you just sit there.**_
 
-Lou Holtz
+Will Rogers
