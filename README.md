@@ -1,3 +1,3 @@
-_**Even if you're on the right track, you'll get run over if you just sit there.**_
+_**Friendship is Love without his wings!**_
 
-Will Rogers
+Lord Byron
