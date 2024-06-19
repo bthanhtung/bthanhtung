@@ -1,3 +1,3 @@
-_**Friendship is Love without his wings!**_
+_**Where all think alike, no one thinks very much.**_
 
-Lord Byron
+Walter Lippmann
