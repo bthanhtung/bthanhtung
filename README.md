@@ -1,3 +1,3 @@
-_**What is past is left behind. The future is yet unreached. Whatever quality is present, clearly see it right there.**_
+_**They must often change, who would be constant in happiness or wisdom.**_
 
-The Buddha
+Confucius
