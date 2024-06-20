@@ -1,3 +1,3 @@
-_**To get the full value of joy you must have someone to divide it with.**_
+_**What is past is left behind. The future is yet unreached. Whatever quality is present, clearly see it right there.**_
 
-Mark Twain
+The Buddha
