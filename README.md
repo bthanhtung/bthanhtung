@@ -1,3 +1,3 @@
-_**I was thrown out of college for cheating on the metaphysics exam; I looked into the soul of the boy sitting next to me.**_
+_**Wherever a man turns he can find someone who needs him.**_
 
-Woody Allen
+Albert Schweitzer
