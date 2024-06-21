@@ -1,3 +1,3 @@
-_**They must often change, who would be constant in happiness or wisdom.**_
+_**If you can dream it, you can do it.**_
 
-Confucius
+Walt Disney
