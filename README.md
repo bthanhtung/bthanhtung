@@ -1,3 +1,3 @@
-_**The greatest discovery of our generation is that human beings can alter their lives by altering their attitudes of mind. As you think, so shall you be.**_
+_**I'm not afraid of storms, for I'm learning how to sail my ship.**_
 
-William James
+Louisa May Alcott
