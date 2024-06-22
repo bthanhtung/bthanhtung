@@ -1,3 +1,3 @@
-_**I'm not afraid of storms, for I'm learning how to sail my ship.**_
+_**You always succeed in producing a result.**_
 
-Louisa May Alcott
+Tony Robbins
