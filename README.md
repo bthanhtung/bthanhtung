@@ -1,3 +1,3 @@
-_**Truth, and goodness, and beauty are but different faces of the same all.**_
+_**Love and friendship exclude each other.**_
 
-Ralph Waldo Emerson
+Jean de La Bruyère
