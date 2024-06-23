@@ -1,3 +1,3 @@
-_**You always succeed in producing a result.**_
+_**Truth, and goodness, and beauty are but different faces of the same all.**_
 
-Tony Robbins
+Ralph Waldo Emerson
