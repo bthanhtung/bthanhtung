@@ -1,3 +1,3 @@
-_**Love and friendship exclude each other.**_
+_**Knowing others is wisdom, knowing yourself is Enlightenment.**_
 
-Jean de La Bruyère
+Laozi
