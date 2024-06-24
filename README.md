@@ -1,3 +1,3 @@
-_**Only those who dare to fail greatly can ever achieve greatly.**_
+_**Science gives us knowledge, but only philosophy can give us wisdom.**_
 
-Robert F. Kennedy
+Will Durant
