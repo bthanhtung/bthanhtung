@@ -1,3 +1,3 @@
-_**You really can change the world if you care enough.**_
+_**Only those who dare to fail greatly can ever achieve greatly.**_
 
-Marian Wright Edelman
+Robert F. Kennedy
