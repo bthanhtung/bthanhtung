@@ -1,3 +1,3 @@
-_**Knowing others is wisdom, knowing yourself is Enlightenment.**_
+_**You really can change the world if you care enough.**_
 
-Laozi
+Marian Wright Edelman
