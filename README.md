@@ -1,3 +1,3 @@
-_**Be kind whenever possible. It is always possible.**_
+_**If you spend your whole life waiting for the storm, you'll never enjoy the sunshine.**_
 
-Dalai Lama
+Morris West
