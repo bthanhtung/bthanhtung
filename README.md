@@ -1,3 +1,3 @@
-_**Now this is not the end. It is not even the beginning of the end. But it is, perhaps, the end of the beginning.**_
+_**Motivation is the art of getting people to do what you want them to do because they want to do it.**_
 
-Winston Churchill
+Dwight D. Eisenhower
