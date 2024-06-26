@@ -1,3 +1,3 @@
-_**If you spend your whole life waiting for the storm, you'll never enjoy the sunshine.**_
+_**Now this is not the end. It is not even the beginning of the end. But it is, perhaps, the end of the beginning.**_
 
-Morris West
+Winston Churchill
