@@ -1,3 +1,3 @@
-_**Motivation is the art of getting people to do what you want them to do because they want to do it.**_
+_**Being entirely honest with oneself is a good exercise.**_
 
-Dwight D. Eisenhower
+Sigmund Freud
