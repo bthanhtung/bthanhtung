@@ -1,3 +1,3 @@
-_**Being entirely honest with oneself is a good exercise.**_
+_**Success is where preparation and opportunity meet.**_
 
-Sigmund Freud
+Bobby Unser
