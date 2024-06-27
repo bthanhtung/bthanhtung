@@ -1,3 +1,3 @@
-_**But the attitude of faith is to let go, and become open to truth, whatever it might turn out to be.**_
+_**When a friend is in trouble, don't annoy him by asking if there is anything you can do. Think up something appropriate and do it.**_
 
-Alan Watts
+A. Powell Davies
