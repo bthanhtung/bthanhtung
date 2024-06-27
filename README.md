@@ -1,3 +1,3 @@
-_**Success is where preparation and opportunity meet.**_
+_**But the attitude of faith is to let go, and become open to truth, whatever it might turn out to be.**_
 
-Bobby Unser
+Alan Watts
