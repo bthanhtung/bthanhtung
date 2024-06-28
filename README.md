@@ -1,3 +1,3 @@
-_**When a friend is in trouble, don't annoy him by asking if there is anything you can do. Think up something appropriate and do it.**_
+_**Do I speak at the right time, or not? Do I speak of facts, or not? Do I speak gently or harshly? Do I speak profitable words or not? Do I speak with a kindly heart, or inwardly malicious?**_
 
-A. Powell Davies
+The Buddha
