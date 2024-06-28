@@ -1,3 +1,3 @@
-_**Learning never exhausts the mind.**_
+_**The pine stays green in winter... wisdom in hardship.**_
 
-Leonardo da Vinci
+Norman Douglas
