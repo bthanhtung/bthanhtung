@@ -1,3 +1,3 @@
-_**You can only grow if you're willing to feel awkward and uncomfortable when you try something new.**_
+_**To choose what is difficult all one's days, as if it were easy, that is faith.**_
 
-Brian Tracy
+W. H. Auden
