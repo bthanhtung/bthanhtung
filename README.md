@@ -1,3 +1,3 @@
-_**The only way to have a friend is to be one.**_
+_**You can only grow if you're willing to feel awkward and uncomfortable when you try something new.**_
 
-Ralph Waldo Emerson
+Brian Tracy
