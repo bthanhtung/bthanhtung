@@ -1,3 +1,3 @@
-_**The pine stays green in winter... wisdom in hardship.**_
+_**The only way to have a friend is to be one.**_
 
-Norman Douglas
+Ralph Waldo Emerson
