@@ -1,3 +1,3 @@
-_**Radiate boundless love towards the entire world…**_
+_**Life without love is like a tree without blossoms or fruit.**_
 
-The Buddha
+Kahlil Gibran
