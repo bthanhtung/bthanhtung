@@ -1,3 +1,3 @@
-_**To choose what is difficult all one's days, as if it were easy, that is faith.**_
+_**Don't believe what your eyes are telling you. All they show is limitation. Look with your understanding, find out what you already know, and you'll see the way to fly.**_
 
-W. H. Auden
+Richard Bach
