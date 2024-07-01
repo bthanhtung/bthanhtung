@@ -1,3 +1,3 @@
-_**Know how to listen, and you will profit even from those who talk badly.**_
+_**Know what's important and what isn't. Have the wisdom to know the right thing to do, the integrity to do it, the character to stand up to those who don't, and the courage to stop those who won't.**_
 
-Plutarch
+Mark Goulston
