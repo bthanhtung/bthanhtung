@@ -1,3 +1,3 @@
-_**Life without love is like a tree without blossoms or fruit.**_
+_**Know how to listen, and you will profit even from those who talk badly.**_
 
-Kahlil Gibran
+Plutarch
