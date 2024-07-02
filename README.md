@@ -1,3 +1,3 @@
-_**It is important to our friends to believe that we are unreservedly frank with them, and important to friendship that we are not.**_
+_**There is no charm equal to tenderness of heart.**_
 
-Mignon McLaughlin
+Jane Austen
