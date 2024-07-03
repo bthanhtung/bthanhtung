@@ -1,3 +1,3 @@
-_**The greatest achievement of humanity is not its works of art, science, or technology, but the recognition of its own dysfunction.**_
+_**Some do not understand that we must die, But those who do realize this settle their quarrels.**_
 
-Eckhart Tolle
+The Buddha
