@@ -1,3 +1,3 @@
-_**There is no charm equal to tenderness of heart.**_
+_**Genuine sincerity opens people's hearts, while manipulation causes them to close.**_
 
-Jane Austen
+Daisaku Ikeda
