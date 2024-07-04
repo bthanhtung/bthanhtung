@@ -1,3 +1,3 @@
-_**The only way to have a friend is to be one.**_
+_**Never pretend to a love which you do not actually feel, for love is not ours to command.**_
 
-Ralph Waldo Emerson
+Alan Watts
