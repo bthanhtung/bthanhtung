@@ -1,3 +1,3 @@
-_**Never pretend to a love which you do not actually feel, for love is not ours to command.**_
+_**All is flux; nothing stays still.**_
 
-Alan Watts
+Heraclitus
