@@ -1,3 +1,3 @@
-_**Trust only movement. Life happens at the level of events, not of words. Trust movement.**_
+_**Life without love is like a tree without blossoms or fruit.**_
 
-Alfred Adler
+Kahlil Gibran
