@@ -1,3 +1,3 @@
-_**Life without love is like a tree without blossoms or fruit.**_
+_**Should a seeker not find a companion who is better or equal, let them resolutely pursue a solitary course.**_
 
-Kahlil Gibran
+The Buddha
