@@ -1,3 +1,3 @@
-_**Should a seeker not find a companion who is better or equal, let them resolutely pursue a solitary course.**_
+_**Think as a wise man but communicate in the language of the people.**_
 
-The Buddha
+William Butler Yeats
