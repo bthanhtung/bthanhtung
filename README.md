@@ -1,3 +1,3 @@
-_**Think as a wise man but communicate in the language of the people.**_
+_**A man should look for what is, and not for what he thinks should be.**_
 
-William Butler Yeats
+Albert Einstein
