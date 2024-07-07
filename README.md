@@ -1,3 +1,3 @@
-_**Most of our pocket wisdom is conceived for the use of mediocre people, to discourage them from ambitious attempts, and generally console them in their mediocrity.**_
+_**Some of the best lessons we ever learn are learned from past mistakes. The error of the past is the wisdom and success of the future.**_
 
-Robert Louis Stevenson
+Dale Turner
