@@ -1,3 +1,3 @@
-_**A man should look for what is, and not for what he thinks should be.**_
+_**Wisdom is always an overmatch for strength.**_
 
-Albert Einstein
+Phil Jackson
