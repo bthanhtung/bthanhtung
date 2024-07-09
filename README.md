@@ -1,3 +1,3 @@
-_**Nothing is at last sacred but the integrity of your own mind.**_
+_**The lure of the distant and the difficult is deceptive. The great opportunity is where you are.**_
 
-Ralph Waldo Emerson
+John Burroughs
