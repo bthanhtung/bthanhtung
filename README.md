@@ -1,3 +1,3 @@
-_**The lure of the distant and the difficult is deceptive. The great opportunity is where you are.**_
+_**You are the only person on earth who can use your ability.**_
 
-John Burroughs
+Zig Ziglar
