@@ -1,3 +1,3 @@
-_**Believe in yourself! Have faith in your abilities! Without a humble but reasonable confidence in your own powers you cannot be successful or happy.**_
+_**Nothing is at last sacred but the integrity of your own mind.**_
 
-Norman Vincent Peale
+Ralph Waldo Emerson
