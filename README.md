@@ -1,3 +1,3 @@
-_**If you smile when no one else is around, you really mean it.**_
+_**See the positive side, the potential, and make an effort.**_
 
-Andy Rooney
+Dalai Lama
