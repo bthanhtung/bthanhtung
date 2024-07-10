@@ -1,3 +1,3 @@
-_**You are the only person on earth who can use your ability.**_
+_**Everything has beauty, but not everyone sees it.**_
 
-Zig Ziglar
+Confucius
