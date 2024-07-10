@@ -1,3 +1,3 @@
-_**Everything has beauty, but not everyone sees it.**_
+_**If you smile when no one else is around, you really mean it.**_
 
-Confucius
+Andy Rooney
