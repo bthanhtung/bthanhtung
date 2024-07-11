@@ -1,3 +1,3 @@
-_**The best cure for the body is a quiet mind.**_
+_**The less effort, the faster and more powerful you will be.**_
 
-Napoleon
+Bruce Lee
