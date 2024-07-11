@@ -1,3 +1,3 @@
-_**The less effort, the faster and more powerful you will be.**_
+_**The best and most beautiful things in the world cannot be seen, nor touched... but are felt in the heart.**_
 
-Bruce Lee
+Helen Keller
