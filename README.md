@@ -1,3 +1,3 @@
-_**See the positive side, the potential, and make an effort.**_
+_**The best cure for the body is a quiet mind.**_
 
-Dalai Lama
+Napoleon
