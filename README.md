@@ -1,3 +1,3 @@
-_**A man must be big enough to admit his mistakes, smart enough to profit from them, and strong enough to correct them.**_
+_**So long as a person is capable of self-renewal they are a living being.**_
 
-John C. Maxwell
+Henri-Frédéric Amiel
