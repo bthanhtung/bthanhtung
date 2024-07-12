@@ -1,3 +1,3 @@
-_**The best and most beautiful things in the world cannot be seen, nor touched... but are felt in the heart.**_
+_**The greater part of human pain is unnecessary. It is self-created as long as the unobserved mind runs your life.**_
 
-Helen Keller
+Eckhart Tolle
