@@ -1,3 +1,3 @@
-_**The greater part of human pain is unnecessary. It is self-created as long as the unobserved mind runs your life.**_
+_**A man must be big enough to admit his mistakes, smart enough to profit from them, and strong enough to correct them.**_
 
-Eckhart Tolle
+John C. Maxwell
