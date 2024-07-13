@@ -1,3 +1,3 @@
-_**Do what you can. Want what you have. Be who you are.**_
+_**You got to be careful if you don't know where you're going, because you might not get there.**_
 
-Forrest Church
+Yogi Berra
