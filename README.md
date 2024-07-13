@@ -1,3 +1,3 @@
-_**You got to be careful if you don't know where you're going, because you might not get there.**_
+_**One's friends are that part of the human race with which one can be human.**_
 
-Yogi Berra
+George Santayana
