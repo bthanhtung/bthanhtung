@@ -1,3 +1,3 @@
-_**If a man going down into a river, swollen and swiftly flowing, is carried away by the current — how can he help others across? – The Buddha**_
+_**Chance is always powerful. Let your hook be always cast; in the pool where you least expect it, there will be a fish.**_
 
-The Buddha
+Ovid
