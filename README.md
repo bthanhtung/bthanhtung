@@ -1,3 +1,3 @@
-_**People are not lazy. They simply have impotent goals - that is, goals that do not inspire them.**_
+_**Success is not the key to happiness. Happiness is the key to success. If you love what you are doing, you will be successful.**_
 
-Tony Robbins
+Albert Schweitzer
