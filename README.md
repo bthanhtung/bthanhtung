@@ -1,3 +1,3 @@
-_**Chance is always powerful. Let your hook be always cast; in the pool where you least expect it, there will be a fish.**_
+_**If you want to succeed you should strike out on new paths, rather than travel the worn paths of accepted success.**_
 
-Ovid
+John Locke
