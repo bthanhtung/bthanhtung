@@ -1,3 +1,3 @@
-_**Success is not the key to happiness. Happiness is the key to success. If you love what you are doing, you will be successful.**_
+_**Only I can change my life. No one can do it for me.**_
 
-Albert Schweitzer
+Carol Burnett
