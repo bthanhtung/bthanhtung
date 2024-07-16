@@ -1,3 +1,3 @@
-_**Friendship... is not something you learn in school. But if you haven't learned the meaning of friendship, you really haven't learned anything.**_
+_**All things must come to the soul from its roots, from where it is planted.**_
 
-Muhammad Ali
+Teresa of Ávila
