@@ -1,3 +1,3 @@
-_**Wisdom comes alone through suffering.**_
+_**Trust yourself. You know more than you think you do.**_
 
-Aeschylus
+Benjamin Spock
