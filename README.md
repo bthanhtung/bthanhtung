@@ -1,3 +1,3 @@
-_**Trust yourself. You know more than you think you do.**_
+_**True wisdom comes to each of us when we realize how little we understand about life, ourselves, and the world around us.**_
 
-Benjamin Spock
+Isocrates
