@@ -1,3 +1,3 @@
-_**All things must come to the soul from its roots, from where it is planted.**_
+_**Wisdom comes alone through suffering.**_
 
-Teresa of Ávila
+Aeschylus
