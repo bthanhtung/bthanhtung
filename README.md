@@ -1,3 +1,3 @@
-_**We all live with the objective of being happy; our lives are all different and yet the same.**_
+_**Every friendship is different because everyone's personality is different.**_
 
-Anne Frank
+Nargis Fakhri
