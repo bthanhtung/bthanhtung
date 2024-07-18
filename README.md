@@ -1,3 +1,3 @@
-_**Stay committed to your decisions, but stay flexible in your approach.**_
+_**We all live with the objective of being happy; our lives are all different and yet the same.**_
 
-Tony Robbins
+Anne Frank
