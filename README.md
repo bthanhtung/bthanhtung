@@ -1,3 +1,3 @@
-_**Every friendship is different because everyone's personality is different.**_
+_**The cautious seldom err.**_
 
-Nargis Fakhri
+Confucius
