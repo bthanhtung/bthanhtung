@@ -1,3 +1,3 @@
-_**The cautious seldom err.**_
+_**We should not judge people by their peak of excellence; but by the distance they have traveled from the point where they started.**_
 
-Confucius
+Henry Ward Beecher
