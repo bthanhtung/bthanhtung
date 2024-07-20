@@ -1,3 +1,3 @@
-_**We should not judge people by their peak of excellence; but by the distance they have traveled from the point where they started.**_
+_**The best and most beautiful things in the world cannot be seen, nor touched... but are felt in the heart.**_
 
-Henry Ward Beecher
+Helen Keller
