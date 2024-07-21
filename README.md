@@ -1,3 +1,3 @@
-_**You won't skid if you stay in a rut.**_
+_**Being entirely honest with oneself is a good exercise.**_
 
-Kin Hubbard
+Sigmund Freud
