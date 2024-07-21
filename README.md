@@ -1,3 +1,3 @@
-_**Being entirely honest with oneself is a good exercise.**_
+_**True friendship can afford true knowledge. It does not depend on darkness and ignorance.**_
 
-Sigmund Freud
+Henry David Thoreau
