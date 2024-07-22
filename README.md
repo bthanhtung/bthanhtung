@@ -1,3 +1,3 @@
-_**True friendship can afford true knowledge. It does not depend on darkness and ignorance.**_
+_**Technology is the campfire around which we tell our stories.**_
 
-Henry David Thoreau
+Laurie Anderson
