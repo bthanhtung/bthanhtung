@@ -1,3 +1,3 @@
-_**Marriage: A friendship recognized by the police.**_
+_**If you can't explain it simply, you don't understand it well enough.**_
 
-Robert Louis Stevenson
+Albert Einstein
