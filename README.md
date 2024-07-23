@@ -1,3 +1,3 @@
-_**If you can't explain it simply, you don't understand it well enough.**_
+_**When you discover your mission, you will feel its demand. It will fill you with enthusiasm and a burning desire to get to work on it.**_
 
-Albert Einstein
+W. Clement Stone
