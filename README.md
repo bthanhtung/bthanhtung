@@ -1,3 +1,3 @@
-_**Quick decisions are unsafe decisions.**_
+_**Go put your creed into the deed. Nor speak with double tongue.**_
 
-Sophocles
+Ralph Waldo Emerson
