@@ -1,3 +1,3 @@
-_**What is not started today is never finished tomorrow.**_
+_**Start where you are. Use what you have. Do what you can.**_
 
-Johann Wolfgang von Goethe
+Arthur Ashe
