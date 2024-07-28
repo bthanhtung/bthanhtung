@@ -1,3 +1,3 @@
-_**Start where you are. Use what you have. Do what you can.**_
+_**There never was a good knife made of bad steel.**_
 
-Arthur Ashe
+Benjamin Franklin
