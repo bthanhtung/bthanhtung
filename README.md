@@ -1,3 +1,3 @@
-_**When one door of happiness closes, another opens; but often we look so long at the closed door that we do not see the one which has been opened for us.**_
+_**If you have one true friend, you have more than your share.**_
 
-Helen Keller
+Thomas Fuller
