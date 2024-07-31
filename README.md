@@ -1,3 +1,3 @@
-_**Before you can inspire with emotion, you must be swamped with it yourself. Before you can move their tears, your own must flow. To convince them, you must yourself believe.**_
+_**I hear and I forget. I see and I remember. I do and I understand.**_
 
-Winston Churchill
+Confucius
