@@ -1,3 +1,3 @@
-_**But friendship is precious, not only in the shade, but in the sunshine of life, and thanks to a benevolent arrangement the greater part of life is sunshine.**_
+_**Before you can inspire with emotion, you must be swamped with it yourself. Before you can move their tears, your own must flow. To convince them, you must yourself believe.**_
 
-Thomas Jefferson
+Winston Churchill
