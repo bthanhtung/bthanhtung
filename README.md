@@ -1,3 +1,3 @@
-_**I hear and I forget. I see and I remember. I do and I understand.**_
+_**When in doubt, don't.**_
 
-Confucius
+Benjamin Franklin
