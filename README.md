@@ -1,3 +1,3 @@
-_**When in doubt, don't.**_
+_**Life is a gift, and it offers us the privilege, opportunity, and responsibility to give something back by becoming more**_
 
-Benjamin Franklin
+Tony Robbins
