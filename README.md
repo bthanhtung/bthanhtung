@@ -1,3 +1,3 @@
-_**Friendship with oneself is all important because without it one cannot be friends with anybody else in the world.**_
+_**People are so constituted that everybody would rather undertake what they see others do, whether they have an aptitude for it or not.**_
 
-Eleanor Roosevelt
+Johann Wolfgang von Goethe
