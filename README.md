@@ -1,3 +1,3 @@
-_**People are so constituted that everybody would rather undertake what they see others do, whether they have an aptitude for it or not.**_
+_**Humanity is acquiring all the right technology for all the wrong reasons.**_
 
-Johann Wolfgang von Goethe
+Buckminster Fuller
