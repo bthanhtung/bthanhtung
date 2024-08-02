@@ -1,3 +1,3 @@
-_**I love my past. I love my present. I'm not ashamed of what I've had, and I'm not sad because I have it no longer.**_
+_**Friendship with oneself is all important because without it one cannot be friends with anybody else in the world.**_
 
-Colette
+Eleanor Roosevelt
