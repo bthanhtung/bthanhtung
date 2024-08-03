@@ -1,3 +1,3 @@
-_**Humanity is acquiring all the right technology for all the wrong reasons.**_
+_**All serious daring starts from within.**_
 
-Buckminster Fuller
+Harriet Beecher Stowe
