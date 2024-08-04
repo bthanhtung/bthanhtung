@@ -1,3 +1,3 @@
-_**All serious daring starts from within.**_
+_**No alibi will save you from accepting the responsibility.**_
 
-Harriet Beecher Stowe
+Napoleon Hill
