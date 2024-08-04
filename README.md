@@ -1,3 +1,3 @@
-_**No alibi will save you from accepting the responsibility.**_
+_**Setting an example is not the main means of influencing another, it is the only means.**_
 
-Napoleon Hill
+Albert Einstein
