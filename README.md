@@ -1,3 +1,3 @@
-_**The beginning of knowledge is the discovery of something we do not understand.**_
+_**I have often regretted my speech, never my silence.**_
 
-Frank Herbert
+Publilius Syrus
