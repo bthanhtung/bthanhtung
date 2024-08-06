@@ -1,3 +1,3 @@
-_**Who sows virtue reaps honor.**_
+_**There are many ways of going forward, but only one way of standing still.**_
 
-Leonardo da Vinci
+Franklin D. Roosevelt
