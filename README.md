@@ -1,3 +1,3 @@
-_**There are many ways of going forward, but only one way of standing still.**_
+_**Happiness is not something ready-made. It comes from your own actions.**_
 
-Franklin D. Roosevelt
+Dalai Lama
