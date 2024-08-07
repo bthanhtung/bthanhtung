@@ -1,3 +1,3 @@
-_**An appeaser is one who feeds a crocodile, hoping it will eat him last.**_
+_**If you look into your own heart, and you find nothing wrong there, what is there to worry about? What is there to fear?**_
 
-Winston Churchill
+Confucius
