@@ -1,3 +1,3 @@
-_**Happiness is not something ready-made. It comes from your own actions.**_
+_**You can fool all the people some of the time, and some of the people all the time, but you cannot fool all the people all the time.**_
 
-Dalai Lama
+Abraham Lincoln
