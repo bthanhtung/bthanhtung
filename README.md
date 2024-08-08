@@ -1,3 +1,3 @@
-_**If you look into your own heart, and you find nothing wrong there, what is there to worry about? What is there to fear?**_
+_**I'd rather regret the things that I have done than the things that I have not done.**_
 
-Confucius
+Lucille Ball
