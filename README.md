@@ -1,3 +1,3 @@
-_**Where there is love there is life.**_
+_**Time you enjoy wasting, was not wasted.**_
 
-Mahatma Gandhi
+John Lennon
