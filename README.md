@@ -1,3 +1,3 @@
-_**It is the nature of the wise to resist pleasures, but the foolish to be a slave to them.**_
+_**Where there is love there is life.**_
 
-Epictetus
+Mahatma Gandhi
