@@ -1,3 +1,3 @@
-_**I walk slowly, but I never walk backward.**_
+_**It is the nature of the wise to resist pleasures, but the foolish to be a slave to them.**_
 
-Abraham Lincoln
+Epictetus
