@@ -1,3 +1,3 @@
-_**The moment one gives close attention to anything, even a blade of grass, it becomes a mysterious, awesome, indescribably magnificent world in itself.**_
+_**Step with care and great tact and remember that Life's a Great Balancing Act.**_
 
-Henry Miller
+Dr. Seuss
