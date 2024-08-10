@@ -1,3 +1,3 @@
-_**Time you enjoy wasting, was not wasted.**_
+_**Every friendship is different because everyone's personality is different.**_
 
-John Lennon
+Nargis Fakhri
