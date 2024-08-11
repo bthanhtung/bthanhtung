@@ -1,3 +1,3 @@
-_**Step with care and great tact and remember that Life's a Great Balancing Act.**_
+_**There are no secrets to success. It is the result of preparation, hard work, and learning from failure.**_
 
-Dr. Seuss
+Colin Powell
