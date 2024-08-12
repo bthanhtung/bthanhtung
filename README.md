@@ -1,3 +1,3 @@
-_**I hope our wisdom will grow with our power, and teach us, that the less we use our power the greater it will be.**_
+_**Winners never quit and quitters never win.**_
 
-Thomas Jefferson
+Vince Lombardi
