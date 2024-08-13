@@ -1,3 +1,3 @@
-_**Winners never quit and quitters never win.**_
+_**The greatest minds are capable of the greatest vices as well as of the greatest virtues.**_
 
-Vince Lombardi
+René Descartes
