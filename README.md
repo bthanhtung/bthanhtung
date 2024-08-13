@@ -1,3 +1,3 @@
-_**When an opponent comes forward, move in and greet him; if he wants to pull back, send him on his way.**_
+_**Most great people have attained their greatest success just one step beyond their greatest failure.**_
 
-Morihei Ueshiba
+Napoleon Hill
