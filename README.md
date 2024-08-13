@@ -1,3 +1,3 @@
-_**The greatest minds are capable of the greatest vices as well as of the greatest virtues.**_
+_**When an opponent comes forward, move in and greet him; if he wants to pull back, send him on his way.**_
 
-René Descartes
+Morihei Ueshiba
