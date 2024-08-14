@@ -1,3 +1,3 @@
-_**Adversity has the effect of eliciting talents, which in prosperous circumstances would have lain dormant.**_
+_**The free man is he who does not fear to go to the end of his thought.**_
 
-Horace
+Léon Blum
