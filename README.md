@@ -1,3 +1,3 @@
-_**Difficulties increase the nearer we get to the goal.**_
+_**Irony is the gaiety of reflection and the joy of wisdom.**_
 
-Johann Wolfgang von Goethe
+Anatole France
