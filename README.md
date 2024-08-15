@@ -1,3 +1,3 @@
-_**Irony is the gaiety of reflection and the joy of wisdom.**_
+_**It takes courage to grow up and become who you really are.**_
 
-Anatole France
+E. E. Cummings
