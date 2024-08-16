@@ -1,3 +1,3 @@
-_**It takes courage to grow up and become who you really are.**_
+_**All truths are easy to understand once they are discovered; the point is to discover them.**_
 
-E. E. Cummings
+Galileo Galilei
