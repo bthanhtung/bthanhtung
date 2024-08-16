@@ -1,3 +1,3 @@
-_**All truths are easy to understand once they are discovered; the point is to discover them.**_
+_**Russia is a riddle wrapped in a mystery inside an enigma.**_
 
-Galileo Galilei
+Winston Churchill
