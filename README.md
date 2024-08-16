@@ -1,3 +1,3 @@
-_**Russia is a riddle wrapped in a mystery inside an enigma.**_
+_**'As I am, so are these. As are these, so am I.' Drawing the parallel to yourself, neither kill nor get others to kill.**_
 
-Winston Churchill
+The Buddha
