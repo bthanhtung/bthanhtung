@@ -1,3 +1,3 @@
-_**Success is not final; failure is not fatal: it is the courage to continue that counts.**_
+_**Success consists of going from failure to failure without loss of enthusiasm.**_
 
 Winston Churchill
