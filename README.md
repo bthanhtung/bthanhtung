@@ -1,3 +1,3 @@
-_**Success consists of going from failure to failure without loss of enthusiasm.**_
+_**Respect should be earned by actions, and not acquired by years.**_
 
-Winston Churchill
+Frank Lloyd Wright
