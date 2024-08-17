@@ -1,3 +1,3 @@
-_**'As I am, so are these. As are these, so am I.' Drawing the parallel to yourself, neither kill nor get others to kill.**_
+_**Success is not final; failure is not fatal: it is the courage to continue that counts.**_
 
-The Buddha
+Winston Churchill
