@@ -1,3 +1,3 @@
-_**Mind is everything: muscle, pieces of rubber. All that I am, I am because of my mind.**_
+_**Irony is the gaiety of reflection and the joy of wisdom.**_
 
-Paavo Nurmi
+Anatole France
