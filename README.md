@@ -1,3 +1,3 @@
-_**Wise kings generally have wise counselors; and he must be a wise man himself who is capable of distinguishing one.**_
+_**Mind is everything: muscle, pieces of rubber. All that I am, I am because of my mind.**_
 
-Diogenes
+Paavo Nurmi
