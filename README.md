@@ -1,3 +1,3 @@
-_**Irony is the gaiety of reflection and the joy of wisdom.**_
+_**First say to yourself what you would be; and then do what you have to do.**_
 
-Anatole France
+Epictetus
