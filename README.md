@@ -1,3 +1,3 @@
-_**First say to yourself what you would be; and then do what you have to do.**_
+_**I'm not afraid of storms, for I'm learning how to sail my ship.**_
 
-Epictetus
+Louisa May Alcott
