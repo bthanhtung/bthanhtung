@@ -1,3 +1,3 @@
-_**I'm not afraid of storms, for I'm learning how to sail my ship.**_
+_**The thing that is disliked by me is also disliked by others. Since I dislike this thing, how can I inflict it on someone else?**_
 
-Louisa May Alcott
+The Buddha
