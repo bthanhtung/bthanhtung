@@ -1,3 +1,3 @@
-_**Never bend your head. Always hold it high. Look the world right in the eye.**_
+_**To free us from the expectations of others, to give us back to ourselves... there lies the great, singular power of self-respect.**_
 
-Helen Keller
+Joan Didion
