@@ -1,3 +1,3 @@
-_**The thing that is disliked by me is also disliked by others. Since I dislike this thing, how can I inflict it on someone else?**_
+_**Never bend your head. Always hold it high. Look the world right in the eye.**_
 
-The Buddha
+Helen Keller
