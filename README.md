@@ -1,3 +1,3 @@
-_**All wisdom does not reside in Delhi.**_
+_**Silence at the proper season is wisdom, and better than any speech.**_
 
-P. Chidambaram
+Plutarch
