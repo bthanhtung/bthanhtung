@@ -1,3 +1,3 @@
-_**If you can dream it, you can do it.**_
+_**All wisdom does not reside in Delhi.**_
 
-Walt Disney
+P. Chidambaram
