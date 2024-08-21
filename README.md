@@ -1,3 +1,3 @@
-_**Silence at the proper season is wisdom, and better than any speech.**_
+_**Whenever you find yourself on the side of the majority, it is time to pause and reflect.**_
 
-Plutarch
+Mark Twain
