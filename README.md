@@ -1,3 +1,3 @@
-_**Time stays long enough for anyone who will use it.**_
+_**Most people are about as happy as they make up their minds to be**_
 
-Leonardo da Vinci
+Abraham Lincoln
