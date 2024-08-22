@@ -1,3 +1,3 @@
-_**Whenever you find yourself on the side of the majority, it is time to pause and reflect.**_
+_**Time stays long enough for anyone who will use it.**_
 
-Mark Twain
+Leonardo da Vinci
