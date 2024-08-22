@@ -1,3 +1,3 @@
-_**Most people are about as happy as they make up their minds to be**_
+_**The bird of paradise alights only upon the hand that does not grasp.**_
 
-Abraham Lincoln
+John Berry
