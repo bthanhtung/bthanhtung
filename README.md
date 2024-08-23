@@ -1,3 +1,3 @@
-_**Friends... they cherish one another's hopes. They are kind to one another's dreams.**_
+_**It is not the possession of truth, but the success which attends the seeking after it, that enriches the seeker and brings happiness to him.**_
 
-Henry David Thoreau
+Max Planck
