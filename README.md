@@ -1,3 +1,3 @@
-_**The bird of paradise alights only upon the hand that does not grasp.**_
+_**We don't know a millionth of one percent about anything.**_
 
-John Berry
+Thomas Edison
