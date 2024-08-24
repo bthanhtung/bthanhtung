@@ -1,3 +1,3 @@
-_**It is not the possession of truth, but the success which attends the seeking after it, that enriches the seeker and brings happiness to him.**_
+_**He who is fixed to a star does not change his mind.**_
 
-Max Planck
+Leonardo da Vinci
