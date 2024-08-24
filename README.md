@@ -1,3 +1,3 @@
-_**He who is fixed to a star does not change his mind.**_
+_**Let yourself be silently drawn by the stronger pull of what you really love.**_
 
-Leonardo da Vinci
+Rumi
