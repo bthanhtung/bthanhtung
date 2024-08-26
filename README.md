@@ -1,3 +1,3 @@
-_**There is no charm equal to tenderness of heart.**_
+_**No person is your friend who demands your silence or denies your right to grow.**_
 
-Jane Austen
+Alice Walker
