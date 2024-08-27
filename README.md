@@ -1,3 +1,3 @@
-_**Be like the flower, turn your face to the sun.**_
+_**Never explain - your friends do not need it and your enemies will not believe you anyway.**_
 
-Kahlil Gibran
+Elbert Hubbard
