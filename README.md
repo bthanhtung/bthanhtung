@@ -1,3 +1,3 @@
-_**The greatest obstacle to connecting with our joy is resentment.**_
+_**Be like the flower, turn your face to the sun.**_
 
-Pema Chödrön
+Kahlil Gibran
