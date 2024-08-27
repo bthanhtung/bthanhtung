@@ -1,3 +1,3 @@
-_**No person is your friend who demands your silence or denies your right to grow.**_
+_**The greatest obstacle to connecting with our joy is resentment.**_
 
-Alice Walker
+Pema Chödrön
