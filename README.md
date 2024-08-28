@@ -1,3 +1,3 @@
-_**Never explain - your friends do not need it and your enemies will not believe you anyway.**_
+_**A true friend is the greatest of all blessings, and that which we take the least care of all to acquire.**_
 
-Elbert Hubbard
+François de La Rochefoucauld
