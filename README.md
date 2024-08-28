@@ -1,3 +1,3 @@
-_**A true friend is the greatest of all blessings, and that which we take the least care of all to acquire.**_
+_**Mediocrity knows nothing higher than itself, but talent instantly recognizes genius.**_
 
-François de La Rochefoucauld
+Arthur Conan Doyle
