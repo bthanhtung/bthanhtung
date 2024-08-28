@@ -1,3 +1,3 @@
-_**Mediocrity knows nothing higher than itself, but talent instantly recognizes genius.**_
+_**I can't believe that God put us on this earth to be ordinary.**_
 
-Arthur Conan Doyle
+Lou Holtz
