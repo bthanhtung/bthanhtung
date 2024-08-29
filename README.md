@@ -1,3 +1,3 @@
-_**Men are disturbed not by things, but by the view which they take of them.**_
+_**There are only two ways to live your life. One is as though nothing is a miracle. The other is as though everything is a miracle.**_
 
-Epictetus
+Albert Einstein
