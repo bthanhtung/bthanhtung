@@ -1,3 +1,3 @@
-_**The man who trusts men will make fewer mistakes than he who distrusts them.**_
+_**Men are disturbed not by things, but by the view which they take of them.**_
 
-Camillo Benso, Count of Cavour
+Epictetus
