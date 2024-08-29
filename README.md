@@ -1,3 +1,3 @@
-_**I can't believe that God put us on this earth to be ordinary.**_
+_**The man who trusts men will make fewer mistakes than he who distrusts them.**_
 
-Lou Holtz
+Camillo Benso, Count of Cavour
