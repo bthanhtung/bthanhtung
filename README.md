@@ -1,3 +1,3 @@
-_**The strong bond of friendship is not always a balanced equation; friendship is not always about giving and taking in equal shares. Instead, friendship is grounded in a feeling that you know exactly who will be there for you when you need something, no matter what or when.**_
+_**No matter how carefully you plan your goals they will never be more than pipe dreams unless you pursue them with gusto.**_
 
-Simon Sinek
+W. Clement Stone
