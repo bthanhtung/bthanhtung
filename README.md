@@ -1,3 +1,3 @@
-_**No matter how carefully you plan your goals they will never be more than pipe dreams unless you pursue them with gusto.**_
+_**To be wronged is nothing unless you continue to remember it.**_
 
-W. Clement Stone
+Confucius
