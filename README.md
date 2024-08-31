@@ -1,3 +1,3 @@
-_**To be wronged is nothing unless you continue to remember it.**_
+_**Happiness is the reward we get for living to the highest right we know.**_
 
-Confucius
+Richard Bach
