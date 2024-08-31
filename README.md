@@ -1,3 +1,3 @@
-_**The best cure for the body is a quiet mind.**_
+_**Reality is merely an illusion, albeit a very persistent one.**_
 
-Napoleon
+Albert Einstein
