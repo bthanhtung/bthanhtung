@@ -1,3 +1,3 @@
-_**Happiness is the reward we get for living to the highest right we know.**_
+_**The best cure for the body is a quiet mind.**_
 
-Richard Bach
+Napoleon
