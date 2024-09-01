@@ -1,3 +1,3 @@
-_**When the solution is simple, God is answering.**_
+_**He who is contented is rich.**_
 
-Albert Einstein
+Laozi
