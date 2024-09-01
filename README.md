@@ -1,3 +1,3 @@
-_**Do one thing every day that scares you.**_
+_**When the solution is simple, God is answering.**_
 
-Eleanor Roosevelt
+Albert Einstein
