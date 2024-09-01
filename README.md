@@ -1,3 +1,3 @@
-_**Reality is merely an illusion, albeit a very persistent one.**_
+_**Do one thing every day that scares you.**_
 
-Albert Einstein
+Eleanor Roosevelt
