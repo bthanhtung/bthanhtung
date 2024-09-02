@@ -1,3 +1,3 @@
-_**He who is contented is rich.**_
+_**In friendship as well as love, ignorance very often contributes more to our happiness than knowledge.**_
 
-Laozi
+François de La Rochefoucauld
