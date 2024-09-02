@@ -1,3 +1,3 @@
-_**In friendship as well as love, ignorance very often contributes more to our happiness than knowledge.**_
+_**The only way to have a friend is to be one.**_
 
-François de La Rochefoucauld
+Ralph Waldo Emerson
