@@ -1,3 +1,3 @@
-_**The only way to have a friend is to be one.**_
+_**The higher we are placed, the more humbly we should walk.**_
 
-Ralph Waldo Emerson
+Cicero
