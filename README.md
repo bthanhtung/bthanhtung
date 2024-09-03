@@ -1,3 +1,3 @@
-_**The more light you allow within you, the brighter the world you live in will be.**_
+_**Chaos and Order are not enemies, only opposites.**_
 
-Shakti Gawain
+Richard Garriott
