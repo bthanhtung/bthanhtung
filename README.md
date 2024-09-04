@@ -1,3 +1,3 @@
-_**Pure, holy simplicity confounds all the wisdom of this world and the wisdom of the flesh.**_
+_**The art challenges the technology, and the technology inspires the art.**_
 
-Francis of Assisi
+John Lasseter
