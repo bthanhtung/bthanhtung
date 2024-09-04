@@ -1,3 +1,3 @@
-_**The art challenges the technology, and the technology inspires the art.**_
+_**Begin, be bold, and venture to be wise.**_
 
-John Lasseter
+Horace
