@@ -1,3 +1,3 @@
-_**Chaos and Order are not enemies, only opposites.**_
+_**Pure, holy simplicity confounds all the wisdom of this world and the wisdom of the flesh.**_
 
-Richard Garriott
+Francis of Assisi
