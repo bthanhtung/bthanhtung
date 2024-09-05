@@ -1,3 +1,3 @@
-_**It is impossible to experience one's death objectively and still carry a tune.**_
+_**I have not failed. I've just found 10,000 ways that won't work.**_
 
-Woody Allen
+Thomas Edison
