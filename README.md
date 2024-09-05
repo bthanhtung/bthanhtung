@@ -1,3 +1,3 @@
-_**Love at first sight is easy to understand; it's when two people have been looking at each other for a lifetime that it becomes a miracle.**_
+_**It is impossible to experience one's death objectively and still carry a tune.**_
 
-Amy Bloom
+Woody Allen
