@@ -1,3 +1,3 @@
-_**There is no failure except in no longer trying.**_
+_**If one is lucky, a solitary fantasy can totally transform one million realities.**_
 
-Elbert Hubbard
+Maya Angelou
