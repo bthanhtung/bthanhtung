@@ -1,3 +1,3 @@
-_**If one is lucky, a solitary fantasy can totally transform one million realities.**_
+_**I seek constantly to improve my manners and graces, for they are the sugar to which all are attracted.**_
 
-Maya Angelou
+Og Mandino
