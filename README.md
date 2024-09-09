@@ -1,3 +1,3 @@
-_**Begin, be bold, and venture to be wise.**_
+_**He who knows, does not speak. He who speaks, does not know.**_
 
-Horace
+Laozi
