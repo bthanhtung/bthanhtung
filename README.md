@@ -1,3 +1,3 @@
-_**Sometimes it is better to lose and do the right thing than to win and do the wrong thing.**_
+_**The best way to pay for a lovely moment is to enjoy it.**_
 
-Tony Blair
+Richard Bach
