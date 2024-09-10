@@ -1,3 +1,3 @@
-_**He who knows, does not speak. He who speaks, does not know.**_
+_**Sometimes it is better to lose and do the right thing than to win and do the wrong thing.**_
 
-Laozi
+Tony Blair
