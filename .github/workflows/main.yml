@@ -62,7 +62,7 @@ jobs:
       run: |
         git config --global user.email "bthanhtung.se@gmail.com"
         git config --global user.name "bthanhtung"
-        git pull
+        git pull origin master
         git add .
         git commit -m "Updated README.md" || echo "No changes to commit"
         git push origin master
