@@ -6,6 +6,6 @@
     "generate": "node index.js"
   },
   "dependencies": {
-    "axios": "^0.20.0"
+    "axios": "^1.7.7"
   }
 }
