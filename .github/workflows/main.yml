@@ -60,8 +60,8 @@ jobs:
     - name: Update README.md
       # Push file README.md đã được thay đổi lên github
       run: |
-        git pull origin master
-        git fetch --all
+        git fetch origin
+        git reset --hard origin/master
         git config --global user.email "bthanhtung.se@gmail.com"
         git config --global user.name "bthanhtung"
         git add .
