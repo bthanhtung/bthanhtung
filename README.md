@@ -1,5 +1,5 @@
 # 👋 Hey there, I'm TungDaDev!
-**a young passionate Software Development from Viet Nam. I enjoy solving problems and implementing the best backend system for users**
+**A young passionate Software Developer from Viet Nam. I enjoy solving problems and implementing the best backend system for user.**
 
 ![LinkedIn](https://img.shields.io/badge/linkedin-%230077B5.svg?style=flat-square&logo=linkedin&logoColor=white&link=https://www.linkedin.com/in/TungDaDev/)
 ![X](https://img.shields.io/badge/X-%23000000.svg?style=flat-square&logo=X&logoColor=white&link=https://www.x.com/in/_bthanhtung_/)
@@ -30,7 +30,7 @@
 ![ChatGPT](https://img.shields.io/badge/ChatGPT-74aa9c?style=flat-square&logo=openai&logoColor=white)
 ![IntelliJ IDEA](https://img.shields.io/badge/IntelliJIDEA-000000.svg?style=flat-square&logo=intellij-idea&logoColor=white)
 
-With a deep passion for **Customer Experience, Fintech, InfoSec,** and **AI-driven technologies**. I specialize in turning complex challenges into scalable, innovative solutions.
+With a deep passion for **User Experience, Fintech** and **Webservice technologies**. I specialize in turning complex challenges into scalable, innovative solutions.
 
 - 🔭 Currently working on top-company about Payment & Wallet.
 - 🌱 Always expanding my knowledge and contributing to company and open-source communities.
