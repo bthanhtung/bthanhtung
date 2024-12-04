@@ -48,6 +48,12 @@ jobs:
     runs-on: ubuntu-latest
 
     steps:
+    - name: Update and reinstall CA certificates
+      run: |
+        sudo apt update
+        sudo apt install --reinstall ca-certificates
+    
+    steps:
     - uses: actions/checkout@v3
     - uses: actions/setup-node@v3
       # Khởi tạo môi trường NodeJS
@@ -60,8 +66,6 @@ jobs:
     - name: Update README.md
       # Push file README.md đã được thay đổi lên github
       run: |
-        #git fetch origin
-        #git reset --hard origin/master
         git config --global user.email "bthanhtung.se@gmail.com"
         git config --global user.name "bthanhtung"
         git fetch origin
