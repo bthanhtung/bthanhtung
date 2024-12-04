@@ -1,9 +1,9 @@
 # 👋 Hey there, I'm TungDaDev!
 **A young passionate Software Developer from Viet Nam. I enjoy solving problems and implementing the best backend system for user.**
 
-![LinkedIn](https://img.shields.io/badge/linkedin-%230077B5.svg?style=flat-square&logo=linkedin&logoColor=white&link=https://www.linkedin.com/in/TungDaDev/)
+<!-- ![LinkedIn](https://img.shields.io/badge/linkedin-%230077B5.svg?style=flat-square&logo=linkedin&logoColor=white&link=https://www.linkedin.com/in/TungDaDev/)
 ![X](https://img.shields.io/badge/X-%23000000.svg?style=flat-square&logo=X&logoColor=white&link=https://www.x.com/in/_bthanhtung_/)
-[![Gmail](https://img.shields.io/badge/-bthanhtung.ite@gmail.com-c14438?style=flat-square&logo=Gmail&logoColor=white&link=mailto:bthanhtung.ite@gmail.com)](mailto:bthanhtung.ite@gmail.com)
+[![Gmail](https://img.shields.io/badge/-bthanhtung.ite@gmail.com-c14438?style=flat-square&logo=Gmail&logoColor=white&link=mailto:bthanhtung.ite@gmail.com)](mailto:bthanhtung.ite@gmail.com) -->
 
 ## ⚡ Technologies
 ![Java](https://img.shields.io/badge/-Java-E34A86?style=flat-square&logo=java)
