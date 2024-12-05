@@ -5,6 +5,15 @@
 ![X](https://img.shields.io/badge/X-%23000000.svg?style=flat-square&logo=X&logoColor=white&link=https://www.x.com/in/_bthanhtung_/)
 [![Gmail](https://img.shields.io/badge/-bthanhtung.ite@gmail.com-c14438?style=flat-square&logo=Gmail&logoColor=white&link=mailto:bthanhtung.ite@gmail.com)](mailto:bthanhtung.ite@gmail.com) -->
 
+<p align="center">
+	<a href="https://www.linkedin.com/in/TungDaDev/" target="_blank"><img alt="LinkedIn" src="https://img.shields.io/badge/linkedin-%230077B5.svg?style=flat-square&logo=linkedin&logoColor=white"></a>
+	<a href="mailto:bthanhtung.ite@gmail.com" target="_blank"><img alt="Gmail" src="https://img.shields.io/badge/Gmail-D14836?style=flat-square&logo=gmail&logoColor=white"></a>
+    <a href="https://www.x.com/in/_bthanhtung_/" target="_blank"><img alt="x.com" src="https://img.shields.io/badge/X-%23000000.svg?style=flat-square&logo=X&logoColor=white"></a>
+    <a href="https://www.facebook.com/TungDaDev" target="_blank"><img alt="Facebook" src="https://img.shields.io/badge/Facebook-%231877F2.svg?style=flat-square&logo=Facebook&logoColor=white"></a>
+    <a href="https://discord.gg/TungDaDev" target="_blank"><img alt="Discord" src="https://img.shields.io/badge/Discord-%235865F2.svg?style=flat-square&logo=discord&logoColor=white"></a>
+    <a href="https://t.me/TungDaDev" target="_blank"><img alt="Skype" src="https://img.shields.io/badge/Telegram-2CA5E0?style=flat-square&logo=telegram&logoColor=white"></a>
+</p>
+
 ## ⚡ Technologies
 ![Java](https://img.shields.io/badge/-Java-E34A86?style=flat-square&logo=java)
 ![JavaScript](https://img.shields.io/badge/Code-JavaScript-informational?style=flat&logo=javascript&color=F7DF1E)
