@@ -43,3 +43,8 @@ With a deep passion for **User Experience, Fintech** and **Web-service technolog
 - 🔭 Currently working on top-company about Payment & Wallet.
 - 🌱 Always expanding my knowledge and contributing to company and open-source communities.
 - 🚀 On the way to realizing life's goals and missions.
+
+## ⚡ Funny project
+- [My Blog](https://tungbt-blog.netlify.app/)
+- [Quotes Random](https://tungbt-quote.netlify.app/)
+- [Tet-Countdown](https://tungbt-count-down.netlify.app/)
