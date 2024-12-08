@@ -45,6 +45,9 @@ With a deep passion for **User Experience, Fintech** and **Web-service technolog
 - 🚀 On the way to realizing life's goals and missions.
 
 ## ⚡ Funny project
-- [My Blog](https://tungbt-blog.netlify.app/)
-- [Quotes Random](https://tungbt-quote.netlify.app/)
-- [Tet-Countdown](https://tungbt-count-down.netlify.app/)
+<ul>
+  <li><a href="https://tungbt-blog.netlify.app/" target="_blank">Blog</a></li>
+  <li><a href="https://tungbt-quote.netlify.app/" target="_blank">Quotes Random</a></li>
+  <li><a href="https://tungbt-count-down.netlify.app/" target="_blank">Tet Countdown</a></li>
+  <li><a href="https://tungdadev-merry-christmas.netlify.app/" target="_blank">Merry Christmas</a></li>
+</ul>
