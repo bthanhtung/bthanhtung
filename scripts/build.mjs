@@ -82,22 +82,29 @@ async function data() {
   const repos = (await gh(`/users/${USER}/repos?per_page=100&type=owner`)).filter(r => !r.fork);
   const d = { repos: repos.length, stars: repos.reduce((a, r) => a + r.stargazers_count, 0), langs: {}, contrib: null };
   for (const r of repos) if (r.language) d.langs[r.language] = (d.langs[r.language] || 0) + 1;
-  if (!TOKEN) return d;
-  const q = `query { user(login: "${USER}") { contributionsCollection { totalCommitContributions totalPullRequestContributions totalIssueContributions
-      contributionCalendar { totalContributions weeks { contributionDays { contributionCount date } } } } } }`;
-  const r = await fetch('https://api.github.com/graphql', { method: 'POST', headers: { Authorization: `Bearer ${TOKEN}`, 'User-Agent': USER }, body: JSON.stringify({ query: q }) });
-  const j = await r.json();
-  const c = j?.data?.user?.contributionsCollection;
-  if (!c) { console.warn('GraphQL failed, REST only:', JSON.stringify(j).slice(0, 200)); return d; }
-  const days = c.contributionCalendar.weeks.flatMap(w => w.contributionDays);
-  let streak = 0;
-  for (let i = days.length - 1; i >= 0; i--) {         // today may still be empty: start counting from yesterday
-    if (days[i].contributionCount > 0) streak++; else if (i < days.length - 1) break;
+  // Count commits straight from the history of my own repos (last 12 months). The profile contribution
+  // calendar can read 0 when activity is hidden, but repo history is always public.
+  const since = new Date(Date.now() - 365 * 864e5).toISOString(), days = new Map();
+  let commits = 0;
+  for (const r of repos) {
+    for (let page = 1; page <= 10; page++) {
+      let list;
+      try { list = await gh(`/repos/${USER}/${r.name}/commits?author=${USER}&since=${since}&per_page=100&page=${page}`); }
+      catch { break; }                                   // empty repo -> 409
+      for (const c of list) {
+        const day = new Date(Date.parse(c.commit.author.date) + 7 * 36e5).toISOString().slice(0, 10);   // Viet Nam time
+        days.set(day, (days.get(day) || 0) + 1); commits++;
+      }
+      if (list.length < 100) break;
+    }
   }
-  d.contrib = {
-    total: c.contributionCalendar.totalContributions, commits: c.totalCommitContributions, prs: c.totalPullRequestContributions,
-    streak, weeks: c.contributionCalendar.weeks.map(w => w.contributionDays.reduce((a, x) => a + x.contributionCount, 0)),
-  };
+  const dayKey = k => new Date(Date.now() + 7 * 36e5 - k * 864e5).toISOString().slice(0, 10);
+  let streak = 0;
+  for (let k = days.has(dayKey(0)) ? 0 : 1; days.has(dayKey(k)); k++) streak++;   // today may still be empty
+  const weeks = Array.from({ length: 53 }, (_, w) => {
+    let n = 0; for (let k = 0; k < 7; k++) n += days.get(dayKey((52 - w) * 7 + 6 - k)) || 0; return n;
+  });
+  d.contrib = { commits, active: days.size, streak, weeks };
   return d;
 }
 
@@ -105,8 +112,8 @@ async function data() {
 const LANG_COLOR = { Rust: '#dea584', TypeScript: '#3178c6', JavaScript: '#f1e05a', Java: '#b07219', Go: '#00ADD8', CSS: '#663399', HTML: '#e34c26', TeX: '#3D6117', Python: '#3572A5', Shell: '#89e051' };
 function stats(t, d) {
   const items = [
-    ['contributions · 12 mo', d.contrib ? d.contrib.total : '—'],
     ['commits · 12 mo', d.contrib ? d.contrib.commits : '—'],
+    ['active days · 12 mo', d.contrib ? d.contrib.active : '—'],
     ['current streak', d.contrib ? `${d.contrib.streak}d` : '—'],
     ['public repos', d.repos],
     ['stars earned', d.stars],
@@ -175,4 +182,4 @@ for (const [k, t] of Object.entries(THEMES)) fs.writeFileSync(`assets/banner-${k
 const d = await data().catch(e => { console.warn('data:', e.message); return null; });
 if (d) for (const [k, t] of Object.entries(THEMES)) fs.writeFileSync(`assets/stats-${k}.svg`, stats(t, d));
 fs.writeFileSync('README.md', quote(fs.readFileSync('README.md', 'utf8')));
-console.log('built', d ? `(${d.contrib ? 'GraphQL' : 'REST'} data)` : '(no data)');
+console.log('built', d ? `(${d.contrib.commits} commits, ${d.contrib.active} active days)` : '(no data)');
