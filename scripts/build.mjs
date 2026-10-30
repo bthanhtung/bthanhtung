@@ -13,7 +13,7 @@ const THEMES = {
 const esc = s => String(s).replace(/&/g, '&amp;').replace(/</g, '&lt;').replace(/>/g, '&gt;');
 
 // ---------- tech chips under the tagline ----------
-const STACK = ['Java', 'Spring Boot', 'Node.js', 'React', 'Go', 'Rust'];
+const STACK = ['Java', 'Spring Boot', 'Node.js', 'React', 'Go', 'Rust', 'AI'];
 function stack(t) {
   let x = 64;
   return STACK.map((n, i) => {
