@@ -56,7 +56,7 @@ function banner(t) {
   <text x="64" y="256" font-family="${SANS}" font-size="17" fill="${t.dim}">Building financial &amp; payment systems  —  🇻🇳 Viet Nam</text>
   <g font-family="${MONO}" font-size="13" fill="${t.dim}">
     <rect x="64" y="282" width="10" height="10" rx="5" fill="${t.c}"><animate attributeName="opacity" values="1;.25;1" dur="2s" repeatCount="indefinite"/></rect>
-    <text x="84" y="291">open to interesting problems · tungdadev.com</text>
+    <text x="84" y="291">co-founder @ davintek.com · writing at tungdadev.com</text>
   </g>
 
   <g transform="translate(0 0)">

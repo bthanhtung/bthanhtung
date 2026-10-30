@@ -7,6 +7,8 @@
 
 <p align="center">
   <a href="https://www.tungdadev.com/"><img alt="Blog" src="https://img.shields.io/badge/blog-tungdadev.com-22d3ee?style=for-the-badge&logo=rss&logoColor=white&labelColor=0d1117"></a>
+  <a href="https://davintek.com/"><img alt="Davintek" src="https://img.shields.io/badge/Co--Founder-davintek.com-f59e0b?style=for-the-badge&labelColor=0d1117"></a>
+  <br>
   <a href="https://www.linkedin.com/in/TungDaDev/"><img alt="LinkedIn" src="https://img.shields.io/badge/LinkedIn-0A66C2?style=for-the-badge&logo=linkedin&logoColor=white&labelColor=0d1117"></a>
   <a href="https://x.com/_bthanhtung_"><img alt="X" src="https://img.shields.io/badge/X-e6edf3?style=for-the-badge&logo=x&logoColor=white&labelColor=0d1117&color=30363d"></a>
   <a href="https://www.facebook.com/TungDaDev"><img alt="Facebook" src="https://img.shields.io/badge/Facebook-1877F2?style=for-the-badge&logo=facebook&logoColor=white&labelColor=0d1117"></a>
@@ -18,6 +20,7 @@
 const tungdadev = {
   role:        "Software Engineer | Builder | Learner | Writer",
   building:    ["financial systems", "payment platforms", "e-wallets"],
+  company:     "Co-Founder @ Davintek — davintek.com",
   location:    "Viet Nam 🇻🇳",
   sideProject: "squad-devkit — one manager agent, on-demand AI workers",
   writing:     "tungdadev.com",
