@@ -54,7 +54,7 @@ const tungdadev = {
   <tr>
     <td width="50%" valign="top">
       <a href="https://github.com/bthanhtung/snap-frame"><b>📸 snap-frame</b></a> &nbsp;<img alt="TypeScript" src="https://img.shields.io/badge/TypeScript-3178c6?style=flat-square&logo=typescript&logoColor=white">
-      <br><sub>Turns raw photos into gallery-style shots with automated EXIF frames. <a href="https://snap-frame-ebon.vercel.app">Live demo →</a></sub>
+      <br><sub>62 film looks (Kodak, Fujifilm, B&amp;W…) and 34 frames with EXIF captions, right in the browser — photos never leave your device. <a href="https://snap-frame.tungdadev.com">Live demo →</a></sub>
     </td>
     <td width="50%" valign="top">
       <a href="https://github.com/bthanhtung/latex-resume-builder"><b>📄 latex-resume-builder</b></a> &nbsp;<img alt="TeX" src="https://img.shields.io/badge/LaTeX-3D6117?style=flat-square&logo=latex&logoColor=white">
