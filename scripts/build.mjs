@@ -47,14 +47,10 @@ function banner(t) {
   <rect width="1200" height="340" rx="18" fill="url(#glow2)"/>
   <rect x=".5" y=".5" width="1199" height="339" rx="18" fill="none" stroke="${t.line}"/>
 
-  <text x="64" y="104" font-family="${MONO}" font-size="16" letter-spacing="3" fill="${t.dim}">HELLO, WORLD — I'M</text>
-  <text x="60" y="182" font-family="${SANS}" font-size="78" font-weight="800" letter-spacing="-2" fill="url(#g)">TungDaDev</text>
-  <text x="64" y="226" font-family="${SANS}" font-size="21" fill="${t.text}"><tspan font-weight="700">Software Engineer</tspan> | Builder | Learner | Writer</text>
-  <text x="64" y="256" font-family="${SANS}" font-size="17" fill="${t.dim}">Building financial &amp; payment systems  —  🇻🇳 Viet Nam</text>
-  <g font-family="${MONO}" font-size="13" fill="${t.dim}">
-    <rect x="64" y="282" width="10" height="10" rx="5" fill="${t.c}"><animate attributeName="opacity" values="1;.25;1" dur="2s" repeatCount="indefinite"/></rect>
-    <text x="84" y="291">co-founder @ davintek.com · writing at tungdadev.com</text>
-  </g>
+  <text x="64" y="118" font-family="${MONO}" font-size="16" letter-spacing="3" fill="${t.dim}">HELLO, WORLD — I'M</text>
+  <text x="60" y="196" font-family="${SANS}" font-size="78" font-weight="800" letter-spacing="-2" fill="url(#g)">TungDaDev</text>
+  <text x="64" y="240" font-family="${SANS}" font-size="21" fill="${t.text}"><tspan font-weight="700">Software Engineer</tspan> | Builder | Learner | Writer</text>
+  <text x="64" y="270" font-family="${SANS}" font-size="17" fill="${t.dim}">Building financial &amp; payment systems  —  🇻🇳 Viet Nam</text>
 
   <g transform="translate(0 0)">
     <rect x="620" y="50" width="530" height="262" rx="12" fill="${t.panel}" stroke="${t.line}"/>

@@ -1,16 +1,16 @@
-<a href="https://www.tungdadev.com/">
-  <picture>
-    <source media="(prefers-color-scheme: dark)" srcset="assets/banner-dark.svg">
-    <img alt="TungDaDev — Software Engineer, Builder, Learner, Writer. Building financial and payment systems." src="assets/banner-light.svg" width="100%">
-  </picture>
-</a>
+<picture>
+  <source media="(prefers-color-scheme: dark)" srcset="assets/banner-dark.svg">
+  <img alt="TungDaDev — Software Engineer, Builder, Learner, Writer. Building financial and payment systems." src="assets/banner-light.svg" width="100%">
+</picture>
+
+<p align="center">🟢 &nbsp;founder @ <a href="https://davintek.com/"><b>davintek.com</b></a> &nbsp;·&nbsp; writing @ <a href="https://www.tungdadev.com/"><b>tungdadev.com</b></a></p>
 
 <p align="center">
   <a href="https://www.tungdadev.com/"><img alt="Blog" src="https://img.shields.io/badge/blog-tungdadev.com-22d3ee?style=for-the-badge&logo=rss&logoColor=white&labelColor=0d1117"></a>
-  <a href="https://davintek.com/"><img alt="Davintek" src="https://img.shields.io/badge/Co--Founder-davintek.com-f59e0b?style=for-the-badge&labelColor=0d1117"></a>
+  <a href="https://davintek.com/"><img alt="Davintek" src="https://img.shields.io/badge/Founder-davintek.com-f59e0b?style=for-the-badge&labelColor=0d1117"></a>
   <br>
   <a href="https://www.linkedin.com/in/TungDaDev/"><img alt="LinkedIn" src="https://img.shields.io/badge/LinkedIn-0A66C2?style=for-the-badge&logo=linkedin&logoColor=white&labelColor=0d1117"></a>
-  <a href="https://x.com/_bthanhtung_"><img alt="X" src="https://img.shields.io/badge/X-e6edf3?style=for-the-badge&logo=x&logoColor=white&labelColor=0d1117&color=30363d"></a>
+  <a href="https://x.com/cris_torvalds"><img alt="X" src="https://img.shields.io/badge/X-e6edf3?style=for-the-badge&logo=x&logoColor=white&labelColor=0d1117&color=30363d"></a>
   <a href="https://www.facebook.com/TungDaDev"><img alt="Facebook" src="https://img.shields.io/badge/Facebook-1877F2?style=for-the-badge&logo=facebook&logoColor=white&labelColor=0d1117"></a>
   <a href="https://t.me/TungDaDev"><img alt="Telegram" src="https://img.shields.io/badge/Telegram-26A5E4?style=for-the-badge&logo=telegram&logoColor=white&labelColor=0d1117"></a>
   <a href="mailto:bthanhtung.ite@gmail.com"><img alt="Email" src="https://img.shields.io/badge/Email-a78bfa?style=for-the-badge&logo=gmail&logoColor=white&labelColor=0d1117"></a>
@@ -20,7 +20,7 @@
 const tungdadev = {
   role:        "Software Engineer | Builder | Learner | Writer",
   building:    ["financial systems", "payment platforms", "e-wallets"],
-  company:     "Co-Founder @ Davintek — davintek.com",
+  company:     "Founder @ Davintek — davintek.com",
   location:    "Viet Nam 🇻🇳",
   sideProject: "squad-devkit — one manager agent, on-demand AI workers",
   writing:     "tungdadev.com",
@@ -73,19 +73,19 @@ const tungdadev = {
       <br><sub><a href="https://www.tungdadev.com/">tungdadev.com →</a></sub>
     </td>
     <td width="25%" align="center" valign="top">
-      <a href="https://tungbt-quote.netlify.app/"><b>💬 Quotes Random</b></a>
+      <a href="https://quote.tungdadev.com/"><b>💬 Quotes Random</b></a>
       <br><sub>A random quote, one click away</sub>
-      <br><sub><a href="https://tungbt-quote.netlify.app/">live</a> · <a href="https://github.com/bthanhtung/quote-random">source</a></sub>
+      <br><sub><a href="https://quote.tungdadev.com/">live</a> · <a href="https://github.com/bthanhtung/quote-random">source</a></sub>
     </td>
     <td width="25%" align="center" valign="top">
-      <a href="https://tungbt-count-down.netlify.app/"><b>🧧 Tet Countdown</b></a>
+      <a href="https://saptet.tungdadev.com/"><b>🧧 Tet Countdown</b></a>
       <br><sub>Countdown to Lunar New Year</sub>
-      <br><sub><a href="https://tungbt-count-down.netlify.app/">live</a> · <a href="https://github.com/bthanhtung/count-down">source</a></sub>
+      <br><sub><a href="https://saptet.tungdadev.com/">live</a> · <a href="https://github.com/bthanhtung/count-down">source</a></sub>
     </td>
     <td width="25%" align="center" valign="top">
-      <a href="https://tungdadev-merry-christmas.netlify.app/"><b>🎄 Merry Christmas</b></a>
+      <a href="https://christmas.tungdadev.com/"><b>🎄 Merry Christmas</b></a>
       <br><sub>A little Christmas greeting page</sub>
-      <br><sub><a href="https://tungdadev-merry-christmas.netlify.app/">live</a> · <a href="https://github.com/bthanhtung/merry-christmas">source</a></sub>
+      <br><sub><a href="https://christmas.tungdadev.com/">live</a> · <a href="https://github.com/bthanhtung/merry-christmas">source</a></sub>
     </td>
   </tr>
 </table>
