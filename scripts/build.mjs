@@ -12,6 +12,20 @@ const THEMES = {
 };
 const esc = s => String(s).replace(/&/g, '&amp;').replace(/</g, '&lt;').replace(/>/g, '&gt;');
 
+// ---------- tech chips under the tagline ----------
+const STACK = ['Java', 'Spring Boot', 'Node.js', 'React', 'Go', 'Rust'];
+function stack(t) {
+  let x = 64;
+  return STACK.map((n, i) => {
+    const w = n.length * 8.2 + 22, c = i % 2 ? t.b : t.a;
+    const g = `<g opacity="0"><animate attributeName="opacity" from="0" to="1" begin="${.4 + i * .12}s" dur=".5s" fill="freeze"/>
+    <rect x="${x}" y="268" width="${w}" height="28" rx="14" fill="${c}" fill-opacity=".12" stroke="${c}" stroke-opacity=".45"/>
+    <text x="${x + w / 2}" y="287" text-anchor="middle" font-family="${MONO}" font-size="13" fill="${t.text}">${n}</text></g>`;
+    x += w + 8;
+    return g;
+  }).join('');
+}
+
 // ---------- banner ----------
 function banner(t) {
   const lines = [
@@ -47,10 +61,11 @@ function banner(t) {
   <rect width="1200" height="340" rx="18" fill="url(#glow2)"/>
   <rect x=".5" y=".5" width="1199" height="339" rx="18" fill="none" stroke="${t.line}"/>
 
-  <text x="64" y="118" font-family="${MONO}" font-size="16" letter-spacing="3" fill="${t.dim}">HELLO, WORLD — I'M</text>
-  <text x="60" y="196" font-family="${SANS}" font-size="78" font-weight="800" letter-spacing="-2" fill="url(#g)">TungDaDev</text>
-  <text x="64" y="240" font-family="${SANS}" font-size="21" fill="${t.text}"><tspan font-weight="700">Software Engineer</tspan> | Builder | Learner | Writer</text>
-  <text x="64" y="270" font-family="${SANS}" font-size="17" fill="${t.dim}">Building financial &amp; payment systems  —  🇻🇳 Viet Nam</text>
+  <text x="64" y="100" font-family="${MONO}" font-size="16" letter-spacing="3" fill="${t.dim}">HELLO, WORLD — I'M</text>
+  <text x="60" y="176" font-family="${SANS}" font-size="78" font-weight="800" letter-spacing="-2" fill="url(#g)">TungDaDev</text>
+  <text x="64" y="218" font-family="${SANS}" font-size="21" fill="${t.text}"><tspan font-weight="700">Software Engineer</tspan> | Builder | Learner | Writer</text>
+  <text x="64" y="248" font-family="${SANS}" font-size="17" fill="${t.dim}">Building financial &amp; payment systems  —  🇻🇳 Viet Nam</text>
+  ${stack(t)}
 
   <g transform="translate(0 0)">
     <rect x="620" y="50" width="530" height="262" rx="12" fill="${t.panel}" stroke="${t.line}"/>
