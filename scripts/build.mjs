@@ -1,11 +1,8 @@
-// Builds the profile assets: banner (light/dark), stats card (light/dark) and the quote of the day.
-//   node scripts/build.mjs            uses GITHUB_TOKEN when set (GraphQL: contributions, streak),
-//                                     otherwise falls back to the public REST API (repos, stars, languages)
-// Everything is a plain SVG committed to the repo, so the README never depends on third-party card services.
+// Builds the profile assets: banner (light/dark) and the quote of the day.
+//   node scripts/build.mjs
+// The banner is a plain SVG committed to the repo, so the README never depends on third-party card services.
 import fs from 'node:fs';
 
-const USER = 'bthanhtung';
-const TOKEN = process.env.GITHUB_TOKEN || process.env.GH_TOKEN;
 const MONO = "ui-monospace,SFMono-Regular,'SF Mono',Menlo,Consolas,'Liberation Mono',monospace";
 const SANS = "-apple-system,BlinkMacSystemFont,'Segoe UI',Helvetica,Arial,sans-serif";
 
@@ -72,82 +69,6 @@ function banner(t) {
 </svg>\n`;
 }
 
-// ---------- data ----------
-async function gh(path) {
-  const r = await fetch(`https://api.github.com${path}`, { headers: { 'User-Agent': USER, ...(TOKEN ? { Authorization: `Bearer ${TOKEN}` } : {}) } });
-  if (!r.ok) throw new Error(`${path}: ${r.status}`);
-  return r.json();
-}
-async function data() {
-  const repos = (await gh(`/users/${USER}/repos?per_page=100&type=owner`)).filter(r => !r.fork);
-  const d = { repos: repos.length, stars: repos.reduce((a, r) => a + r.stargazers_count, 0), langs: {}, contrib: null };
-  for (const r of repos) if (r.language) d.langs[r.language] = (d.langs[r.language] || 0) + 1;
-  // Count commits straight from the history of my own repos (last 12 months). The profile contribution
-  // calendar can read 0 when activity is hidden, but repo history is always public.
-  const since = new Date(Date.now() - 365 * 864e5).toISOString(), days = new Map();
-  let commits = 0;
-  for (const r of repos) {
-    for (let page = 1; page <= 10; page++) {
-      let list;
-      try { list = await gh(`/repos/${USER}/${r.name}/commits?author=${USER}&since=${since}&per_page=100&page=${page}`); }
-      catch { break; }                                   // empty repo -> 409
-      for (const c of list) {
-        const day = new Date(Date.parse(c.commit.author.date) + 7 * 36e5).toISOString().slice(0, 10);   // Viet Nam time
-        days.set(day, (days.get(day) || 0) + 1); commits++;
-      }
-      if (list.length < 100) break;
-    }
-  }
-  const dayKey = k => new Date(Date.now() + 7 * 36e5 - k * 864e5).toISOString().slice(0, 10);
-  let streak = 0;
-  for (let k = days.has(dayKey(0)) ? 0 : 1; days.has(dayKey(k)); k++) streak++;   // today may still be empty
-  const weeks = Array.from({ length: 53 }, (_, w) => {
-    let n = 0; for (let k = 0; k < 7; k++) n += days.get(dayKey((52 - w) * 7 + 6 - k)) || 0; return n;
-  });
-  d.contrib = { commits, active: days.size, streak, weeks };
-  return d;
-}
-
-// ---------- stats card ----------
-const LANG_COLOR = { Rust: '#dea584', TypeScript: '#3178c6', JavaScript: '#f1e05a', Java: '#b07219', Go: '#00ADD8', CSS: '#663399', HTML: '#e34c26', TeX: '#3D6117', Python: '#3572A5', Shell: '#89e051' };
-function stats(t, d) {
-  const items = [
-    ['commits · 12 mo', d.contrib ? d.contrib.commits : '—'],
-    ['active days · 12 mo', d.contrib ? d.contrib.active : '—'],
-    ['current streak', d.contrib ? `${d.contrib.streak}d` : '—'],
-    ['public repos', d.repos],
-    ['stars earned', d.stars],
-  ];
-  const cells = items.map(([k, v], i) => {
-    const x = 36 + i * 168;
-    return `<g><text x="${x}" y="78" font-family="${SANS}" font-size="34" font-weight="800" fill="${t.text}">${esc(v)}</text>
-      <text x="${x}" y="102" font-family="${MONO}" font-size="12" fill="${t.dim}">${esc(k)}</text></g>`;
-  }).join('');
-  // weekly activity sparkline
-  let spark = '';
-  if (d.contrib) {
-    const w = d.contrib.weeks, mx = Math.max(1, ...w), bw = 860 / w.length;
-    spark = w.map((v, i) => {
-      const h = Math.max(2, (v / mx) * 56);
-      return `<rect x="${36 + i * bw}" y="${196 - h}" width="${Math.max(2, bw - 3)}" height="${h}" rx="2" fill="url(#bar)"/>`;
-    }).join('');
-    spark += `<text x="36" y="216" font-family="${MONO}" font-size="11" fill="${t.dim}">weekly activity · last 12 months</text>`;
-  } else spark = `<text x="36" y="180" font-family="${MONO}" font-size="12" fill="${t.dim}">activity graph appears after the first workflow run</text>`;
-  // languages
-  const L = Object.entries(d.langs).sort((a, b) => b[1] - a[1]).slice(0, 5), tot = L.reduce((a, x) => a + x[1], 0) || 1;
-  let lx = 36;
-  const bar = L.map(([n, c]) => { const w = 860 * c / tot, r = `<rect x="${lx}" y="244" width="${w}" height="10" fill="${LANG_COLOR[n] || t.dim}"/>`; lx += w; return r; }).join('');
-  let tx = 36;
-  const legend = L.map(([n, c]) => { const s = `<circle cx="${tx + 5}" cy="276" r="5" fill="${LANG_COLOR[n] || t.dim}"/><text x="${tx + 16}" y="280" font-family="${MONO}" font-size="12" fill="${t.dim}">${esc(n)} ${Math.round(100 * c / tot)}%</text>`; tx += 30 + (n.length + 4) * 7.6; return s; }).join('');
-  return `<svg xmlns="http://www.w3.org/2000/svg" width="932" height="306" viewBox="0 0 932 306" role="img" aria-label="GitHub stats for ${USER}">
-  <defs><linearGradient id="bar" x1="0" y1="1" x2="0" y2="0"><stop offset="0" stop-color="${t.a}"/><stop offset="1" stop-color="${t.b}"/></linearGradient>
-  <clipPath id="lb"><rect x="36" y="244" width="860" height="10" rx="5"/></clipPath></defs>
-  <rect x=".5" y=".5" width="931" height="305" rx="14" fill="${t.bg}" stroke="${t.line}"/>
-  <text x="36" y="36" font-family="${MONO}" font-size="13" letter-spacing="2" fill="${t.a}">$ git log --author=tungdadev --stat</text>
-  ${cells}${spark}<g clip-path="url(#lb)">${bar}</g>${legend}
-</svg>\n`;
-}
-
 // ---------- quote of the day (only rewrites between the markers) ----------
 const QUOTES = [
   ['Talk is cheap. Show me the code.', 'Linus Torvalds'],
@@ -179,7 +100,5 @@ function quote(readme) {
 
 fs.mkdirSync('assets', { recursive: true });
 for (const [k, t] of Object.entries(THEMES)) fs.writeFileSync(`assets/banner-${k}.svg`, banner(t));
-const d = await data().catch(e => { console.warn('data:', e.message); return null; });
-if (d) for (const [k, t] of Object.entries(THEMES)) fs.writeFileSync(`assets/stats-${k}.svg`, stats(t, d));
 fs.writeFileSync('README.md', quote(fs.readFileSync('README.md', 'utf8')));
-console.log('built', d ? `(${d.contrib.commits} commits, ${d.contrib.active} active days)` : '(no data)');
+console.log('built banner + quote');

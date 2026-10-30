@@ -90,22 +90,6 @@ const tungdadev = {
   </tr>
 </table>
 
-### 📈 Activity
-
-<p align="center">
-  <picture>
-    <source media="(prefers-color-scheme: dark)" srcset="assets/stats-dark.svg">
-    <img alt="GitHub stats" src="assets/stats-light.svg" width="100%">
-  </picture>
-</p>
-
-<p align="center">
-  <picture>
-    <source media="(prefers-color-scheme: dark)" srcset="https://raw.githubusercontent.com/bthanhtung/bthanhtung/output/github-snake-dark.svg">
-    <img alt="Contribution snake" src="https://raw.githubusercontent.com/bthanhtung/bthanhtung/output/github-snake.svg">
-  </picture>
-</p>
-
 <!--QUOTE:START-->
 <p align="center"><sub><i>“The function of good software is to make the complex appear to be simple.”</i> — Grady Booch</sub></p>
 <!--QUOTE:END-->
