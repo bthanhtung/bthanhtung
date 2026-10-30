@@ -60,6 +60,33 @@ const tungdadev = {
   </tr>
 </table>
 
+### 🎈 Just for fun
+
+<table>
+  <tr>
+    <td width="25%" align="center" valign="top">
+      <a href="https://www.tungdadev.com/"><b>✍️ Blog</b></a>
+      <br><sub>Engineering, systems &amp; life</sub>
+      <br><sub><a href="https://www.tungdadev.com/">tungdadev.com →</a></sub>
+    </td>
+    <td width="25%" align="center" valign="top">
+      <a href="https://tungbt-quote.netlify.app/"><b>💬 Quotes Random</b></a>
+      <br><sub>A random quote, one click away</sub>
+      <br><sub><a href="https://tungbt-quote.netlify.app/">live</a> · <a href="https://github.com/bthanhtung/quote-random">source</a></sub>
+    </td>
+    <td width="25%" align="center" valign="top">
+      <a href="https://tungbt-count-down.netlify.app/"><b>🧧 Tet Countdown</b></a>
+      <br><sub>Countdown to Lunar New Year</sub>
+      <br><sub><a href="https://tungbt-count-down.netlify.app/">live</a> · <a href="https://github.com/bthanhtung/count-down">source</a></sub>
+    </td>
+    <td width="25%" align="center" valign="top">
+      <a href="https://tungdadev-merry-christmas.netlify.app/"><b>🎄 Merry Christmas</b></a>
+      <br><sub>A little Christmas greeting page</sub>
+      <br><sub><a href="https://tungdadev-merry-christmas.netlify.app/">live</a> · <a href="https://github.com/bthanhtung/merry-christmas">source</a></sub>
+    </td>
+  </tr>
+</table>
+
 ### 📈 Activity
 
 <p align="center">
