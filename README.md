@@ -1,7 +1,7 @@
 <a href="https://www.tungdadev.com/">
   <picture>
     <source media="(prefers-color-scheme: dark)" srcset="assets/banner-dark.svg">
-    <img alt="TungDaDev — backend engineer building payments and wallets" src="assets/banner-light.svg" width="100%">
+    <img alt="TungDaDev — Software Engineer, Builder, Learner, Writer. Building financial and payment systems." src="assets/banner-light.svg" width="100%">
   </picture>
 </a>
 
@@ -16,13 +16,13 @@
 
 ```ts
 const tungdadev = {
-  role:      "Backend Engineer",
-  domain:    ["Payments", "Wallets", "Fintech"],
-  location:  "Viet Nam 🇻🇳",
-  building:  "squad-devkit — one manager agent, on-demand AI workers",
-  writing:   "tungdadev.com",
-  believes:  "There is nothing impossible for those who have strong will.",
-  askMeAbout: ["distributed systems", "Spring & Node in production", "AI coding agents"],
+  role:        "Software Engineer | Builder | Learner | Writer",
+  building:    ["financial systems", "payment platforms", "e-wallets"],
+  location:    "Viet Nam 🇻🇳",
+  sideProject: "squad-devkit — one manager agent, on-demand AI workers",
+  writing:     "tungdadev.com",
+  believes:    "There is nothing impossible for those who have strong will.",
+  askMeAbout:  ["distributed systems", "Spring, Node & React in production", "AI coding agents"],
 } as const;
 ```
 
@@ -30,8 +30,8 @@ const tungdadev = {
 
 <p>
   <picture>
-    <source media="(prefers-color-scheme: dark)" srcset="https://skillicons.dev/icons?i=java%2Cspring%2Cnodejs%2Cnestjs%2Cts%2Cgo%2Crust%2Cpostgres%2Cmysql%2Credis%2Ckafka%2Cdocker%2Ckubernetes%2Cgithubactions%2Clinux%2Carch&perline=16&theme=dark">
-    <img alt="Java, Spring, Node.js, NestJS, TypeScript, Go, Rust, PostgreSQL, MySQL, Redis, Kafka, Docker, Kubernetes, GitHub Actions, Linux, Arch" src="https://skillicons.dev/icons?i=java%2Cspring%2Cnodejs%2Cnestjs%2Cts%2Cgo%2Crust%2Cpostgres%2Cmysql%2Credis%2Ckafka%2Cdocker%2Ckubernetes%2Cgithubactions%2Clinux%2Carch&perline=16&theme=light">
+    <source media="(prefers-color-scheme: dark)" srcset="https://skillicons.dev/icons?i=java%2Cspring%2Cnodejs%2Cnestjs%2Creact%2Cts%2Cgo%2Crust%2Cpostgres%2Cmysql%2Credis%2Ckafka%2Cdocker%2Ckubernetes%2Cgithubactions%2Clinux%2Carch&perline=17&theme=dark">
+    <img alt="Java, Spring, Node.js, NestJS, React, TypeScript, Go, Rust, PostgreSQL, MySQL, Redis, Kafka, Docker, Kubernetes, GitHub Actions, Linux, Arch" src="https://skillicons.dev/icons?i=java%2Cspring%2Cnodejs%2Cnestjs%2Creact%2Cts%2Cgo%2Crust%2Cpostgres%2Cmysql%2Credis%2Ckafka%2Cdocker%2Ckubernetes%2Cgithubactions%2Clinux%2Carch&perline=17&theme=light">
   </picture>
 </p>
 

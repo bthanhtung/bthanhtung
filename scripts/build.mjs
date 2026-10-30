@@ -19,13 +19,13 @@ const esc = s => String(s).replace(/&/g, '&amp;').replace(/</g, '&lt;').replace(
 function banner(t) {
   const lines = [
     ['$', 'whoami'],
-    ['', 'tungdadev  //  backend engineer @ payments & wallets'],
+    ['', 'tungdadev // engineer · builder · learner · writer'],
     ['$', 'cat focus.txt'],
     ['', 'distributed systems · fintech · AI coding agents'],
     ['$', 'squad --plan "ship it"'],
     ['', '✓ 3 tasks · 3 workers · merged · tests green'],
   ];
-  let y = 128, at = 0.6;
+  let y = 118, at = 0.6;
   const rows = lines.map(([p, s], i) => {
     const w = (s.length + (p ? 2 : 0)) * 9.1 + 4, dur = p ? Math.max(.5, s.length * .055) : .35;
     const out = `
@@ -35,7 +35,7 @@ function banner(t) {
     return out;
   }).join('');
   const cy = y - 26;
-  return `<svg xmlns="http://www.w3.org/2000/svg" width="1200" height="340" viewBox="0 0 1200 340" role="img" aria-label="TungDaDev — backend engineer, payments and wallets, Viet Nam">
+  return `<svg xmlns="http://www.w3.org/2000/svg" width="1200" height="340" viewBox="0 0 1200 340" role="img" aria-label="TungDaDev — software engineer, builder, learner, writer. Building financial and payment systems. Viet Nam">
   <defs>
     <linearGradient id="g" x1="0" x2="1"><stop offset="0" stop-color="${t.a}"/><stop offset=".5" stop-color="${t.b}"/><stop offset="1" stop-color="${t.a}"/>
       <animateTransform attributeName="gradientTransform" type="translate" values="-1 0;0 0;-1 0" dur="8s" repeatCount="indefinite"/></linearGradient>
@@ -52,23 +52,23 @@ function banner(t) {
 
   <text x="64" y="104" font-family="${MONO}" font-size="16" letter-spacing="3" fill="${t.dim}">HELLO, WORLD — I'M</text>
   <text x="60" y="182" font-family="${SANS}" font-size="78" font-weight="800" letter-spacing="-2" fill="url(#g)">TungDaDev</text>
-  <text x="64" y="226" font-family="${SANS}" font-size="21" fill="${t.text}">Backend engineer building <tspan font-weight="700">payments &amp; wallets</tspan></text>
-  <text x="64" y="256" font-family="${SANS}" font-size="17" fill="${t.dim}">Java · Spring · Node · Go · Rust  —  🇻🇳 Viet Nam</text>
+  <text x="64" y="226" font-family="${SANS}" font-size="21" fill="${t.text}"><tspan font-weight="700">Software Engineer</tspan> | Builder | Learner | Writer</text>
+  <text x="64" y="256" font-family="${SANS}" font-size="17" fill="${t.dim}">Building financial &amp; payment systems  —  🇻🇳 Viet Nam</text>
   <g font-family="${MONO}" font-size="13" fill="${t.dim}">
     <rect x="64" y="282" width="10" height="10" rx="5" fill="${t.c}"><animate attributeName="opacity" values="1;.25;1" dur="2s" repeatCount="indefinite"/></rect>
     <text x="84" y="291">open to interesting problems · tungdadev.com</text>
   </g>
 
   <g transform="translate(0 0)">
-    <rect x="620" y="58" width="530" height="232" rx="12" fill="${t.panel}" stroke="${t.line}"/>
-    <path d="M620 70 a12 12 0 0 1 12 -12 h506 a12 12 0 0 1 12 12 v22 h-530 z" fill="${t.line}" fill-opacity=".45"/>
-    <circle cx="642" cy="75" r="6" fill="#ff5f57"/><circle cx="662" cy="75" r="6" fill="#febc2e"/><circle cx="682" cy="75" r="6" fill="#28c840"/>
-    <text x="885" y="80" text-anchor="middle" font-family="${MONO}" font-size="12" fill="${t.dim}">~/tungdadev — zsh</text>
+    <rect x="620" y="50" width="530" height="262" rx="12" fill="${t.panel}" stroke="${t.line}"/>
+    <path d="M620 62 a12 12 0 0 1 12 -12 h506 a12 12 0 0 1 12 12 v22 h-530 z" fill="${t.line}" fill-opacity=".45"/>
+    <circle cx="642" cy="67" r="6" fill="#ff5f57"/><circle cx="662" cy="67" r="6" fill="#febc2e"/><circle cx="682" cy="67" r="6" fill="#28c840"/>
+    <text x="885" y="72" text-anchor="middle" font-family="${MONO}" font-size="12" fill="${t.dim}">~/tungdadev — zsh</text>
     ${rows}
-    <rect x="646" y="${cy + 10}" width="9" height="17" fill="${t.a}" opacity="0">
+    <rect x="646" y="${cy + 12}" width="9" height="17" fill="${t.a}" opacity="0">
       <animate attributeName="opacity" values="0;1;1;0;0" keyTimes="0;.01;.5;.51;1" dur="1.1s" begin="${at}s" repeatCount="indefinite"/></rect>
   </g>
-  <rect x="64" y="318" width="1072" height="2" rx="1" fill="url(#spread)" opacity=".5"/>
+  <rect x="64" y="326" width="1072" height="2" rx="1" fill="url(#spread)" opacity=".5"/>
 </svg>\n`;
 }
 
