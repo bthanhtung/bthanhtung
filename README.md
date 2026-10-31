@@ -91,5 +91,5 @@ const tungdadev = {
 </table>
 
 <!--QUOTE:START-->
-<p align="center"><sub><i>“The function of good software is to make the complex appear to be simple.”</i> — Grady Booch</sub></p>
+<p align="center"><sub><i>“Before software can be reusable it first has to be usable.”</i> — Ralph Johnson</sub></p>
 <!--QUOTE:END-->
