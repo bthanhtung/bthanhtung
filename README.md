@@ -62,9 +62,13 @@ const tungdadev = {
     </td>
   </tr>
   <tr>
-    <td colspan="2" valign="top">
+    <td width="50%" valign="top">
       <a href="https://github.com/bthanhtung/leetcode"><b>🧠 Make LeetCode easy</b></a> &nbsp;<img alt="Java" src="https://img.shields.io/badge/Java-ED8B00?style=flat-square&logo=openjdk&logoColor=white">
       <br><sub>384 LeetCode problems explained in Vietnamese, with tested Java solutions and step-by-step animations you can replay with your own input. Practice logic, get ready for big-tech interviews. <a href="https://algorithm.tungdadev.com/">ui-visualizer →</a></sub>
+    </td>
+    <td width="50%" valign="top">
+      <a href="https://github.com/bthanhtung/ai-devkit"><b>🧰 ai-devkit</b></a> &nbsp;<img alt="TypeScript" src="https://img.shields.io/badge/TypeScript-3178c6?style=flat-square&logo=typescript&logoColor=white">
+      <br><sub>My fork of <a href="https://github.com/codeaholicguy/ai-devkit">codeaholicguy/ai-devkit</a>, the control plane for AI coding agents, plus 22 community skills in the same format: draw.io diagrams, performance, observability, API design, research and more.</sub>
     </td>
   </tr>
 </table>
