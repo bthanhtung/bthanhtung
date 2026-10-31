@@ -68,7 +68,7 @@ const tungdadev = {
     </td>
     <td width="50%" valign="top">
       <a href="https://github.com/bthanhtung/ai-devkit"><b>🧰 ai-devkit</b></a> &nbsp;<img alt="TypeScript" src="https://img.shields.io/badge/TypeScript-3178c6?style=flat-square&logo=typescript&logoColor=white">
-      <br><sub>My fork of <a href="https://github.com/codeaholicguy/ai-devkit">codeaholicguy/ai-devkit</a>, the control plane for AI coding agents, plus 22 community skills in the same format: draw.io diagrams, performance, observability, API design, research and more.</sub>
+      <br><sub>My fork of <a href="https://github.com/codeaholicguy/ai-devkit">codeaholicguy/ai-devkit</a>, the control plane for AI coding agents, plus 9 community skills the registry does not cover yet, in the same format: draw.io diagrams, codebase design, domain modeling, research, git guardrails and more.</sub>
     </td>
   </tr>
 </table>
