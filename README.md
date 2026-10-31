@@ -48,7 +48,7 @@ const tungdadev = {
     </td>
     <td width="50%" valign="top">
       <a href="https://github.com/bthanhtung/pwd-manager"><b>🔐 pwd-manager</b></a> &nbsp;<img alt="TypeScript" src="https://img.shields.io/badge/TypeScript-3178c6?style=flat-square&logo=typescript&logoColor=white">
-      <br><sub>A self-hosted, team-oriented password and secret manager.</sub>
+      <br><sub>OpenPass: a self-hosted, end-to-end encrypted password manager for families and teams. The server never sees your secrets.</sub>
     </td>
   </tr>
   <tr>
@@ -61,28 +61,39 @@ const tungdadev = {
       <br><sub>Build LaTeX resumes locally: one-click PDF, auto-cleanup, no compile limits. A lightweight Overleaf alternative.</sub>
     </td>
   </tr>
+  <tr>
+    <td colspan="2" valign="top">
+      <a href="https://algorithm.tungdadev.com/"><b>🧠 Make LeetCode easy</b></a> &nbsp;<img alt="Java" src="https://img.shields.io/badge/Java-ED8B00?style=flat-square&logo=openjdk&logoColor=white">
+      <br><sub>384 LeetCode problems explained in Vietnamese, with tested Java solutions and step-by-step animations you can replay with your own input. Practice logic, get ready for big-tech interviews. <a href="https://algorithm.tungdadev.com/">Open it →</a></sub>
+    </td>
+  </tr>
 </table>
 
 ### 🎈 Just for fun
 
 <table>
   <tr>
-    <td width="25%" align="center" valign="top">
+    <td width="20%" align="center" valign="top">
       <a href="https://www.tungdadev.com/"><b>✍️ Blog</b></a>
       <br><sub>Engineering, systems &amp; life</sub>
       <br><sub><a href="https://www.tungdadev.com/">tungdadev.com →</a></sub>
     </td>
-    <td width="25%" align="center" valign="top">
+    <td width="20%" align="center" valign="top">
       <a href="https://quote.tungdadev.com/"><b>💬 Quotes Random</b></a>
       <br><sub>A random quote, one click away</sub>
       <br><sub><a href="https://quote.tungdadev.com/">live</a> · <a href="https://github.com/bthanhtung/quote-random">source</a></sub>
     </td>
-    <td width="25%" align="center" valign="top">
+    <td width="20%" align="center" valign="top">
       <a href="https://saptet.tungdadev.com/"><b>🧧 Tet Countdown</b></a>
       <br><sub>Countdown to Lunar New Year</sub>
       <br><sub><a href="https://saptet.tungdadev.com/">live</a> · <a href="https://github.com/bthanhtung/count-down">source</a></sub>
     </td>
-    <td width="25%" align="center" valign="top">
+    <td width="20%" align="center" valign="top">
+      <a href="https://tet.tungdadev.com/"><b>🎆 Happy New Year</b></a>
+      <br><sub>Fireworks show over the city at midnight</sub>
+      <br><sub><a href="https://tet.tungdadev.com/">live</a> · <a href="https://github.com/bthanhtung/happy-new-year">source</a></sub>
+    </td>
+    <td width="20%" align="center" valign="top">
       <a href="https://christmas.tungdadev.com/"><b>🎄 Merry Christmas</b></a>
       <br><sub>A little Christmas greeting page</sub>
       <br><sub><a href="https://christmas.tungdadev.com/">live</a> · <a href="https://github.com/bthanhtung/merry-christmas">source</a></sub>
