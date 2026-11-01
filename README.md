@@ -43,18 +43,28 @@ const tungdadev = {
 <table>
   <tr>
     <td width="50%" valign="top">
-      <a href="https://github.com/bthanhtung/squad-devkit"><b>🤖 squad-devkit</b></a> &nbsp;<img alt="Rust" src="https://img.shields.io/badge/Rust-dea584?style=flat-square&logo=rust&logoColor=black">
-      <br><sub>One manager agent, on-demand workers, fewer tokens. Claude Code plans; Codex / Claude workers build in isolated git worktrees; the manager verifies and merges.</sub>
+      <a href="https://github.com/bthanhtung/ai-devkit"><b>🧰 ai-devkit</b></a> &nbsp;<img alt="TypeScript" src="https://img.shields.io/badge/TypeScript-3178c6?style=flat-square&logo=typescript&logoColor=white">
+      <br><sub>My fork of <a href="https://github.com/codeaholicguy/ai-devkit">codeaholicguy/ai-devkit</a>, the control plane for AI coding agents, plus 9 community skills the registry does not cover yet, in the same format: draw.io diagrams, codebase design, domain modeling, research, git guardrails and more.</sub>
     </td>
     <td width="50%" valign="top">
-      <a href="https://github.com/bthanhtung/pwd-manager"><b>🔐 pwd-manager</b></a> &nbsp;<img alt="TypeScript" src="https://img.shields.io/badge/TypeScript-3178c6?style=flat-square&logo=typescript&logoColor=white">
-      <br><sub>OpenPass: a self-hosted, end-to-end encrypted password manager for families and teams. The server never sees your secrets.</sub>
+      <a href="https://github.com/bthanhtung/squad-devkit"><b>🤖 squad-devkit</b></a> &nbsp;<img alt="Rust" src="https://img.shields.io/badge/Rust-dea584?style=flat-square&logo=rust&logoColor=black">
+      <br><sub>One manager agent, on-demand workers, fewer tokens. Claude Code plans; Codex / Claude workers build in isolated git worktrees; the manager verifies and merges.</sub>
     </td>
   </tr>
   <tr>
     <td width="50%" valign="top">
+      <a href="https://github.com/bthanhtung/mcp-toolkit"><b>🔌 mcp-toolkit</b></a> &nbsp;<img alt="Node.js" src="https://img.shields.io/badge/Node.js-339933?style=flat-square&logo=node.js&logoColor=white">
+      <br><sub>One command to install 36 curated MCP servers (GitHub, Jira, Playwright, Grafana, Figma...) by role or group for dev, QA, BA, PO, PM, lead, DevOps and designers, into Claude Code, Cursor, VS Code, Gemini CLI and Codex. Read-only by default, versions pinned.</sub>
+    </td>
+    <td width="50%" valign="top">
       <a href="https://github.com/bthanhtung/snap-frame"><b>📸 snap-frame</b></a> &nbsp;<img alt="TypeScript" src="https://img.shields.io/badge/TypeScript-3178c6?style=flat-square&logo=typescript&logoColor=white">
       <br><sub>62 film looks (Kodak, Fujifilm, B&amp;W…) and 34 frames with EXIF captions, right in the browser — photos never leave your device. <a href="https://snap-frame.tungdadev.com">Live demo →</a></sub>
+    </td>
+  </tr>
+  <tr>
+    <td width="50%" valign="top">
+      <a href="https://github.com/bthanhtung/pwd-manager"><b>🔐 pwd-manager</b></a> &nbsp;<img alt="TypeScript" src="https://img.shields.io/badge/TypeScript-3178c6?style=flat-square&logo=typescript&logoColor=white">
+      <br><sub>OpenPass: a self-hosted, end-to-end encrypted password manager for families and teams. The server never sees your secrets.</sub>
     </td>
     <td width="50%" valign="top">
       <a href="https://github.com/bthanhtung/latex-resume-builder"><b>📄 latex-resume-builder</b></a> &nbsp;<img alt="TeX" src="https://img.shields.io/badge/LaTeX-3D6117?style=flat-square&logo=latex&logoColor=white">
@@ -62,19 +72,9 @@ const tungdadev = {
     </td>
   </tr>
   <tr>
-    <td width="50%" valign="top">
+    <td colspan="2" valign="top">
       <a href="https://github.com/bthanhtung/leetcode"><b>🧠 Make LeetCode easy</b></a> &nbsp;<img alt="Java" src="https://img.shields.io/badge/Java-ED8B00?style=flat-square&logo=openjdk&logoColor=white">
       <br><sub>384 LeetCode problems explained in Vietnamese, with tested Java solutions and step-by-step animations you can replay with your own input. Practice logic, get ready for big-tech interviews. <a href="https://algorithm.tungdadev.com/">ui-visualizer →</a></sub>
-    </td>
-    <td width="50%" valign="top">
-      <a href="https://github.com/bthanhtung/ai-devkit"><b>🧰 ai-devkit</b></a> &nbsp;<img alt="TypeScript" src="https://img.shields.io/badge/TypeScript-3178c6?style=flat-square&logo=typescript&logoColor=white">
-      <br><sub>My fork of <a href="https://github.com/codeaholicguy/ai-devkit">codeaholicguy/ai-devkit</a>, the control plane for AI coding agents, plus 9 community skills the registry does not cover yet, in the same format: draw.io diagrams, codebase design, domain modeling, research, git guardrails and more.</sub>
-    </td>
-  </tr>
-  <tr>
-    <td colspan="2" valign="top">
-      <a href="https://github.com/bthanhtung/mcp-toolkit"><b>🔌 mcp-toolkit</b></a> &nbsp;<img alt="Node.js" src="https://img.shields.io/badge/Node.js-339933?style=flat-square&logo=node.js&logoColor=white">
-      <br><sub>One command to install 36 curated MCP servers (GitHub, Jira, Playwright, Grafana, Figma...) by role or group for dev, QA, BA, PO, PM, lead, DevOps and designers, into Claude Code, Cursor, VS Code, Gemini CLI and Codex. Read-only by default, versions pinned.</sub>
     </td>
   </tr>
 </table>
