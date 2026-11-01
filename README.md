@@ -71,6 +71,12 @@ const tungdadev = {
       <br><sub>My fork of <a href="https://github.com/codeaholicguy/ai-devkit">codeaholicguy/ai-devkit</a>, the control plane for AI coding agents, plus 9 community skills the registry does not cover yet, in the same format: draw.io diagrams, codebase design, domain modeling, research, git guardrails and more.</sub>
     </td>
   </tr>
+  <tr>
+    <td colspan="2" valign="top">
+      <a href="https://github.com/bthanhtung/mcp-toolkit"><b>🔌 mcp-toolkit</b></a> &nbsp;<img alt="Node.js" src="https://img.shields.io/badge/Node.js-339933?style=flat-square&logo=node.js&logoColor=white">
+      <br><sub>One command to install 36 curated MCP servers (GitHub, Jira, Playwright, Grafana, Figma...) by role or group for dev, QA, BA, PO, PM, lead, DevOps and designers, into Claude Code, Cursor, VS Code, Gemini CLI and Codex. Read-only by default, versions pinned.</sub>
+    </td>
+  </tr>
 </table>
 
 ### 🎈 Just for fun
