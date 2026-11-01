@@ -106,5 +106,5 @@ const tungdadev = {
 </table>
 
 <!--QUOTE:START-->
-<p align="center"><sub><i>“Before software can be reusable it first has to be usable.”</i> — Ralph Johnson</sub></p>
+<p align="center"><sub><i>“Good code is its own best documentation.”</i> — Steve McConnell</sub></p>
 <!--QUOTE:END-->
