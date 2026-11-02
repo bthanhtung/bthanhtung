@@ -112,5 +112,5 @@ const tungdadev = {
 </table>
 
 <!--QUOTE:START-->
-<p align="center"><sub><i>“Good code is its own best documentation.”</i> — Steve McConnell</sub></p>
+<p align="center"><sub><i>“First, solve the problem. Then, write the code.”</i> — John Johnson</sub></p>
 <!--QUOTE:END-->
