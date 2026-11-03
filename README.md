@@ -116,5 +116,5 @@ const tungdadev = {
 </table>
 
 <!--QUOTE:START-->
-<p align="center"><sub><i>“First, solve the problem. Then, write the code.”</i> — John Johnson</sub></p>
+<p align="center"><sub><i>“Talk is cheap. Show me the code.”</i> — Linus Torvalds</sub></p>
 <!--QUOTE:END-->
