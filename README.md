@@ -125,5 +125,5 @@ const tungdadev = {
 </table>
 
 <!--QUOTE:START-->
-<p align="center"><sub><i>“Talk is cheap. Show me the code.”</i> — Linus Torvalds</sub></p>
+<p align="center"><sub><i>“Simplicity is prerequisite for reliability.”</i> — Edsger W. Dijkstra</sub></p>
 <!--QUOTE:END-->
