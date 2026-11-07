@@ -125,5 +125,5 @@ const tungdadev = {
 </table>
 
 <!--QUOTE:START-->
-<p align="center"><sub><i>“Premature optimization is the root of all evil.”</i> — Donald Knuth</sub></p>
+<p align="center"><sub><i>“Make it work, make it right, make it fast.”</i> — Kent Beck</sub></p>
 <!--QUOTE:END-->
