@@ -125,5 +125,5 @@ const tungdadev = {
 </table>
 
 <!--QUOTE:START-->
-<p align="center"><sub><i>“Make it work, make it right, make it fast.”</i> — Kent Beck</sub></p>
+<p align="center"><sub><i>“Any fool can write code that a computer can understand. Good programmers write code that humans can understand.”</i> — Martin Fowler</sub></p>
 <!--QUOTE:END-->
