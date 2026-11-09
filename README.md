@@ -125,5 +125,5 @@ const tungdadev = {
 </table>
 
 <!--QUOTE:START-->
-<p align="center"><sub><i>“Any fool can write code that a computer can understand. Good programmers write code that humans can understand.”</i> — Martin Fowler</sub></p>
+<p align="center"><sub><i>“There are only two hard things in Computer Science: cache invalidation and naming things.”</i> — Phil Karlton</sub></p>
 <!--QUOTE:END-->
