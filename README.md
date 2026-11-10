@@ -125,5 +125,5 @@ const tungdadev = {
 </table>
 
 <!--QUOTE:START-->
-<p align="center"><sub><i>“There are only two hard things in Computer Science: cache invalidation and naming things.”</i> — Phil Karlton</sub></p>
+<p align="center"><sub><i>“The best way to predict the future is to invent it.”</i> — Alan Kay</sub></p>
 <!--QUOTE:END-->
