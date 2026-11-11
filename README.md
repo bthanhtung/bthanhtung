@@ -125,5 +125,5 @@ const tungdadev = {
 </table>
 
 <!--QUOTE:START-->
-<p align="center"><sub><i>“The best way to predict the future is to invent it.”</i> — Alan Kay</sub></p>
+<p align="center"><sub><i>“Walking on water and developing software from a specification are easy if both are frozen.”</i> — Edward V. Berard</sub></p>
 <!--QUOTE:END-->
