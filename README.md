@@ -125,5 +125,5 @@ const tungdadev = {
 </table>
 
 <!--QUOTE:START-->
-<p align="center"><sub><i>“Walking on water and developing software from a specification are easy if both are frozen.”</i> — Edward V. Berard</sub></p>
+<p align="center"><sub><i>“Debugging is twice as hard as writing the code in the first place.”</i> — Brian Kernighan</sub></p>
 <!--QUOTE:END-->
