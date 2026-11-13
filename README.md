@@ -125,5 +125,5 @@ const tungdadev = {
 </table>
 
 <!--QUOTE:START-->
-<p align="center"><sub><i>“Debugging is twice as hard as writing the code in the first place.”</i> — Brian Kernighan</sub></p>
+<p align="center"><sub><i>“Stay hungry, stay foolish.”</i> — Steve Jobs</sub></p>
 <!--QUOTE:END-->
