@@ -125,5 +125,5 @@ const tungdadev = {
 </table>
 
 <!--QUOTE:START-->
-<p align="center"><sub><i>“Stay hungry, stay foolish.”</i> — Steve Jobs</sub></p>
+<p align="center"><sub><i>“Code is like humor. When you have to explain it, it’s bad.”</i> — Cory House</sub></p>
 <!--QUOTE:END-->
