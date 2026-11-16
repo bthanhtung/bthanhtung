@@ -125,5 +125,5 @@ const tungdadev = {
 </table>
 
 <!--QUOTE:START-->
-<p align="center"><sub><i>“Fix the cause, not the symptom.”</i> — Steve Maguire</sub></p>
+<p align="center"><sub><i>“Optimism is an occupational hazard of programming: feedback is the treatment.”</i> — Kent Beck</sub></p>
 <!--QUOTE:END-->
