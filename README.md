@@ -125,5 +125,5 @@ const tungdadev = {
 </table>
 
 <!--QUOTE:START-->
-<p align="center"><sub><i>“Optimism is an occupational hazard of programming: feedback is the treatment.”</i> — Kent Beck</sub></p>
+<p align="center"><sub><i>“Testing shows the presence, not the absence of bugs.”</i> — Edsger W. Dijkstra</sub></p>
 <!--QUOTE:END-->
