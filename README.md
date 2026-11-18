@@ -125,5 +125,5 @@ const tungdadev = {
 </table>
 
 <!--QUOTE:START-->
-<p align="center"><sub><i>“Testing shows the presence, not the absence of bugs.”</i> — Edsger W. Dijkstra</sub></p>
+<p align="center"><sub><i>“Perfection is achieved not when there is nothing more to add, but when there is nothing left to take away.”</i> — Antoine de Saint-Exupéry</sub></p>
 <!--QUOTE:END-->
