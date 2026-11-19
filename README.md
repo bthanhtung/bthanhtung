@@ -125,5 +125,5 @@ const tungdadev = {
 </table>
 
 <!--QUOTE:START-->
-<p align="center"><sub><i>“Perfection is achieved not when there is nothing more to add, but when there is nothing left to take away.”</i> — Antoine de Saint-Exupéry</sub></p>
+<p align="center"><sub><i>“The function of good software is to make the complex appear to be simple.”</i> — Grady Booch</sub></p>
 <!--QUOTE:END-->
