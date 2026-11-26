@@ -125,5 +125,5 @@ const tungdadev = {
 </table>
 
 <!--QUOTE:START-->
-<p align="center"><sub><i>“Programs must be written for people to read, and only incidentally for machines to execute.”</i> — Harold Abelson</sub></p>
+<p align="center"><sub><i>“Premature optimization is the root of all evil.”</i> — Donald Knuth</sub></p>
 <!--QUOTE:END-->
